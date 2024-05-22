@@ -1,0 +1,529 @@
+---
+title: "[Updated] In 2024, Navigating the Path to Facebook's Exclusive Verified Marker"
+date: 2024-05-20T19:54:45.236Z
+updated: 2024-05-21T19:54:45.236Z
+tags:
+  - ai video
+  - ai facebook
+  - ai facebook video
+categories:
+  - ai
+  - facebook
+description: "This Article Describes [Updated] In 2024, Navigating the Path to Facebook's Exclusive Verified Marker"
+excerpt: "This Article Describes [Updated] In 2024, Navigating the Path to Facebook's Exclusive Verified Marker"
+keywords: "FB Verified Marker Tips,Getting Verified on Facebook,Marker Status Secrets,Obtaining FB Exclusivity,Verification Process Guide,Achieving FB Blue Badge,Path to Verified Profile"
+thumbnail: https://www.lifewire.com/thmb/pTaAXs0PqfKWBZavrIqqgPFC5FI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/001_how-to-cancel-paramount-plus-908b2e919d7a49d180fe50992382749a.jpg
+---
+
+## Navigating the Path to Facebook's Exclusive Verified Marker
+
+# Facebook Verification: how to Verify Facebook Page Easily
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+Do you wish to create strong credibility for your brand online? From local businesses to huge brands, all can establish their credibility by getting verified on the Facebook platform. If you want your prospective clients to find you easily, appearing high on search results can work wonders.
+
+But, how can you appear high on search results? Here comes the **Facebook verification**. Attaining the verified blue or grey badge can [prove your business to be trustworthy](https://visualcontenting.com/2016/11/29/difference-blue-gray-facebook-badges-theyre-important-business/) and show your page higher on the search results. Do you know how to get the blue and gray verified badge easily for your profile or page? Check out this article to know how to verify the Facebook page.
+
+You may also like: [**12 Facebook Marketing Tips**](https://tools.techidaily.com/wondershare/filmora/download/) \>>
+
+* [**Part 1: What is the Blue Verification Badge**](#part1)
+* [**Part 2: How to Verify Facebook Page (Blue Badge)**](#part2)
+* [**Part 3: How to Get Your Facebook Page Verified (Gray Badge)**](#part3)
+* [**Part 4: Why Facebook Didn’t Give Verification to Me**](#part4)
+* [**Part 5: 3 Tips to Get Facebook Verification**](#part5)
+
+---
+
+## Best video editor for Facebook - Filmora
+
+Video plays an important part on Facebook if you want to get more likes and engagement. Don't know which video editor to use? Here we recommend using [Filmora](https://tools.techidaily.com/wondershare/filmora/download/). It is designed for beginners who want to edit Facebook videos easily. You can use it to make a high-quality video that can help you get Facebook verification quickly. Download it now to start making Facebook videos (free)! [Filmora Business](https://tools.techidaily.com/wondershare/filmora/download/) is also available to help you quickly make Facebook videos. You can use it to make an amazing product or brand video with a growing resource library.
+
+* You can use it to change the aspect ratio for Facebook: 1:1, 16:9 and more
+* Add various text/title templates to your video
+* More than 300 filters/effects/overlays to use
+* Export to Facebook video format directly
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+---
+
+## Part 1: What is the Blue Verification Badge
+
+The blue verification badge is a seal of your identity. It proves that your pages have a real identity and not fake. Facebook has [three kinds of verification](https://www.facebook.com/help/196050490547892?helpref=popular%5Ftopics) – grey tick pages, blue tick pages, and blue tick profiles.
+
+**The grey tick Facebook pages** represent various organizations and companies that have been verified by Facebook and confirm their real identity.
+
+**The blue tick Facebook pages and Facebook profiles** confirm the identity of the public figures, media, and brands as per their claim. The badge confirms their official pages.
+
+Confirming your Facebook identity verification is important because [it’s a quick sign that your business, brand, or profile is doing well](https://www.weboptimizers.com.au/blue-tick-verification/) and deserve to earn a verifying sign. When your customers or any users check a verified sign on your page, they know that the page they are looking at is not fake. The page is not created by any fraud or fan and it is the real profile or page of a person or company. When the clients seek customer service, the verified Facebook pages show that the company is serious about its client relationship and social media marketing. It also helps your page to rank higher on Google search as well as Facebook search.
+
+**Are you eligible**? [Facebook verification is not allowed for all](https://www.facebook.com/help/1288173394636262). As per the Support Team of Facebook, the verified badge is only available for famous businesses or brands, journalists, media, celebrities, Government officials, sports companies, and people related to the entertainment world. Are you under any of these categories? Then, follow the [Facebook terms of service](https://www.facebook.com/terms) you get a higher chance of being verified quickly.
+
+## Part 2: How to Verify Facebook Page (Blue Badge)
+
+If you want to apply the blue badge for an individual, you need to offer a government-issued photo ID. If you a business owner and want to do Facebook verification for your brand, you can offer utility bills and tax documents. In the end, you need to express your idea to let Facebook know why you want Facebook verification. Once, [all the required information about your business is filled in](https://www.facebook.com/help/contact/342509036134712), you are ready for applying the blue badge. Follow the four steps below to get your brand or profile verified.
+
+### Step 1: Click page verification option
+
+You can find a setting option on the Facebook page at the top. The Page Verification seal is then clicked from the General tab. Get started by clicking on the Verify this Page option.
+
+![Fcebook page verifiation](https://images.wondershare.com/filmora/article-images/page-verifiation-facebook.JPG)
+
+### Step 2: Get verification code
+
+For a more detailed and quick verification process, you can ask the Facebook team to call you up at the registered number listed on your business Facebook page. A verification code enters the number listed and you just need to input it at the box space. Finally, Facebook offers with the verified seal after the process.
+
+**Note**: It won't take much longer time to receive the verification code. In case you haven't receive the verification code after 24 hours, you can try sending **On** or **Fb** to 32665.
+
+### Step 3: Upload the official document
+
+When you pick the more detailed verification process, you need to click on the Verify this Page with Documents option. Then, you receive a prompt to upload the official documents that carried the name and address of the business. It helps in recognizing your page or profile. Finally, after receiving the documents verification request, Facebook confirms or denies it within 48 hours to 45 days timeframe.
+
+![facebook verfication](https://images.wondershare.com/filmora/article-images/facebook-verfication.JPG)
+
+## Part 3: How to Get Your Facebook Page Verified (Gray Badge)
+
+It is so much easier to verify a business or company page, but still, there are preconditions to [get the gray badge](https://www.facebook.com/help/100168986860974/). If your business is in Local Business, Company, or Organization, you can apply for the Gray Badge. You can see the verification entrance in your Page’s Settings if you are an admin have the basic info about your company. You must have some of your business's official documents first like phone number and phone bill.
+
+You need to go to Settings on your page. Then click **General** \> **Page Verification** \> **Verify this Page** \> **Get Started**. Here, you can enter your phone number. Click **Call Me Now**. After a while, you will receive the verification code. Now, enter the code and continue the verification process.
+
+![How to Get Your Facebook Page Verified](https://images.wondershare.com/filmora/filmora-business/how-to-verify-facebook-page-gray-badge.jpg)
+
+## Part 4: Why Facebook Didn’t Give Verification to Me
+
+Facebook said verification can be accepted or rejected. The grey badge verification request takes around 48 hours and the blue badge verification request needs around 3 to 45 days to receive the Facebook response. In case, your verification request is rejected, it is due to the following reasons.
+
+      * **Press releases or marketing is less** \- When your press is less, it is highly possible that your verification request is rejected as your business or page is not identified accurately. You must learn to get featured on Techcrunch, Forbes, etc. You can also [write a press release to get exposure](https://coschedule.com/blog/how-to-write-press-releases-examples-templates/). You may also hire my digital marketing agency for the same.
+      * **Your Wikipedia is missing** \- In order to create a Wiki; you firstly require the high-quality press.
+      * **Your identity proof is not up to the mark** \- When your reason for verification request is not very compelling or the ID provided by you is blurry or inappropriate, your request may get rejected.
+      * **Missing Facebook Native Content** \- Facebook hates a dead page. So, it is important that your page is filled with relevant and great content for long.
+      * **Verification is Strict** \- Facebook only verifies the popular pages and profiles easily if you can establish your popularity. It is very strict on who they verify.
+
+## Part 5: 3 Tips to Get Facebook Verification
+
+### 1\. Provide complete and detailed information
+
+If you want to get verified, you need to fill out as much information as possible in order for the reviewing process is fast. You need to go to your about page to enter some information including phone number, email, company overview, address, and products. It is noted that you don't need to fill out all information as details are much more important.
+
+### 2\. Professional Facebook page is needed
+
+You don't want to give Facebook the impression that you are not professional with wrong info and an ugly page interface. The first thing you need to do is update the banner and then your logo as they are the first two things people would notice at first glance. Besides, you also need to remove low-quality images, poor articles, and posts. All in all, information centered with the brand is the symbol of a professional looking for getting Facebook verification.
+
+![facebook verification blue and gray](https://images.wondershare.com/filmora/filmorapro/great-page-get-facebook-verification.jpg)
+
+### 3\. Update your verification information
+
+When Facebook reviews your account, it takes time to give you the blue badge. You need to provide the latest and detailed information to get a quick review. It is not important if your posts are engaging or how many likes you get. The most important thing is correct. If some info is wrong, the chance you get rejected is higher.
+
+### Conclusion
+
+Facebook blue or grey badge verification is a very important step to ensure your page appears in the top search results of the search engines and strengthen the trust of your clients. Besides, video is also an important factor to attract more likes and followers. If you want to edit Facebook video, try [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) to start the journey! [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) as a solution for quickly making the business video is also available. Check this video to learn more.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+Do you wish to create strong credibility for your brand online? From local businesses to huge brands, all can establish their credibility by getting verified on the Facebook platform. If you want your prospective clients to find you easily, appearing high on search results can work wonders.
+
+But, how can you appear high on search results? Here comes the **Facebook verification**. Attaining the verified blue or grey badge can [prove your business to be trustworthy](https://visualcontenting.com/2016/11/29/difference-blue-gray-facebook-badges-theyre-important-business/) and show your page higher on the search results. Do you know how to get the blue and gray verified badge easily for your profile or page? Check out this article to know how to verify the Facebook page.
+
+You may also like: [**12 Facebook Marketing Tips**](https://tools.techidaily.com/wondershare/filmora/download/) \>>
+
+* [**Part 1: What is the Blue Verification Badge**](#part1)
+* [**Part 2: How to Verify Facebook Page (Blue Badge)**](#part2)
+* [**Part 3: How to Get Your Facebook Page Verified (Gray Badge)**](#part3)
+* [**Part 4: Why Facebook Didn’t Give Verification to Me**](#part4)
+* [**Part 5: 3 Tips to Get Facebook Verification**](#part5)
+
+---
+
+## Best video editor for Facebook - Filmora
+
+Video plays an important part on Facebook if you want to get more likes and engagement. Don't know which video editor to use? Here we recommend using [Filmora](https://tools.techidaily.com/wondershare/filmora/download/). It is designed for beginners who want to edit Facebook videos easily. You can use it to make a high-quality video that can help you get Facebook verification quickly. Download it now to start making Facebook videos (free)! [Filmora Business](https://tools.techidaily.com/wondershare/filmora/download/) is also available to help you quickly make Facebook videos. You can use it to make an amazing product or brand video with a growing resource library.
+
+* You can use it to change the aspect ratio for Facebook: 1:1, 16:9 and more
+* Add various text/title templates to your video
+* More than 300 filters/effects/overlays to use
+* Export to Facebook video format directly
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+---
+
+## Part 1: What is the Blue Verification Badge
+
+The blue verification badge is a seal of your identity. It proves that your pages have a real identity and not fake. Facebook has [three kinds of verification](https://www.facebook.com/help/196050490547892?helpref=popular%5Ftopics) – grey tick pages, blue tick pages, and blue tick profiles.
+
+**The grey tick Facebook pages** represent various organizations and companies that have been verified by Facebook and confirm their real identity.
+
+**The blue tick Facebook pages and Facebook profiles** confirm the identity of the public figures, media, and brands as per their claim. The badge confirms their official pages.
+
+Confirming your Facebook identity verification is important because [it’s a quick sign that your business, brand, or profile is doing well](https://www.weboptimizers.com.au/blue-tick-verification/) and deserve to earn a verifying sign. When your customers or any users check a verified sign on your page, they know that the page they are looking at is not fake. The page is not created by any fraud or fan and it is the real profile or page of a person or company. When the clients seek customer service, the verified Facebook pages show that the company is serious about its client relationship and social media marketing. It also helps your page to rank higher on Google search as well as Facebook search.
+
+**Are you eligible**? [Facebook verification is not allowed for all](https://www.facebook.com/help/1288173394636262). As per the Support Team of Facebook, the verified badge is only available for famous businesses or brands, journalists, media, celebrities, Government officials, sports companies, and people related to the entertainment world. Are you under any of these categories? Then, follow the [Facebook terms of service](https://www.facebook.com/terms) you get a higher chance of being verified quickly.
+
+## Part 2: How to Verify Facebook Page (Blue Badge)
+
+If you want to apply the blue badge for an individual, you need to offer a government-issued photo ID. If you a business owner and want to do Facebook verification for your brand, you can offer utility bills and tax documents. In the end, you need to express your idea to let Facebook know why you want Facebook verification. Once, [all the required information about your business is filled in](https://www.facebook.com/help/contact/342509036134712), you are ready for applying the blue badge. Follow the four steps below to get your brand or profile verified.
+
+### Step 1: Click page verification option
+
+You can find a setting option on the Facebook page at the top. The Page Verification seal is then clicked from the General tab. Get started by clicking on the Verify this Page option.
+
+![Fcebook page verifiation](https://images.wondershare.com/filmora/article-images/page-verifiation-facebook.JPG)
+
+### Step 2: Get verification code
+
+For a more detailed and quick verification process, you can ask the Facebook team to call you up at the registered number listed on your business Facebook page. A verification code enters the number listed and you just need to input it at the box space. Finally, Facebook offers with the verified seal after the process.
+
+**Note**: It won't take much longer time to receive the verification code. In case you haven't receive the verification code after 24 hours, you can try sending **On** or **Fb** to 32665.
+
+### Step 3: Upload the official document
+
+When you pick the more detailed verification process, you need to click on the Verify this Page with Documents option. Then, you receive a prompt to upload the official documents that carried the name and address of the business. It helps in recognizing your page or profile. Finally, after receiving the documents verification request, Facebook confirms or denies it within 48 hours to 45 days timeframe.
+
+![facebook verfication](https://images.wondershare.com/filmora/article-images/facebook-verfication.JPG)
+
+## Part 3: How to Get Your Facebook Page Verified (Gray Badge)
+
+It is so much easier to verify a business or company page, but still, there are preconditions to [get the gray badge](https://www.facebook.com/help/100168986860974/). If your business is in Local Business, Company, or Organization, you can apply for the Gray Badge. You can see the verification entrance in your Page’s Settings if you are an admin have the basic info about your company. You must have some of your business's official documents first like phone number and phone bill.
+
+You need to go to Settings on your page. Then click **General** \> **Page Verification** \> **Verify this Page** \> **Get Started**. Here, you can enter your phone number. Click **Call Me Now**. After a while, you will receive the verification code. Now, enter the code and continue the verification process.
+
+![How to Get Your Facebook Page Verified](https://images.wondershare.com/filmora/filmora-business/how-to-verify-facebook-page-gray-badge.jpg)
+
+## Part 4: Why Facebook Didn’t Give Verification to Me
+
+Facebook said verification can be accepted or rejected. The grey badge verification request takes around 48 hours and the blue badge verification request needs around 3 to 45 days to receive the Facebook response. In case, your verification request is rejected, it is due to the following reasons.
+
+      * **Press releases or marketing is less** \- When your press is less, it is highly possible that your verification request is rejected as your business or page is not identified accurately. You must learn to get featured on Techcrunch, Forbes, etc. You can also [write a press release to get exposure](https://coschedule.com/blog/how-to-write-press-releases-examples-templates/). You may also hire my digital marketing agency for the same.
+      * **Your Wikipedia is missing** \- In order to create a Wiki; you firstly require the high-quality press.
+      * **Your identity proof is not up to the mark** \- When your reason for verification request is not very compelling or the ID provided by you is blurry or inappropriate, your request may get rejected.
+      * **Missing Facebook Native Content** \- Facebook hates a dead page. So, it is important that your page is filled with relevant and great content for long.
+      * **Verification is Strict** \- Facebook only verifies the popular pages and profiles easily if you can establish your popularity. It is very strict on who they verify.
+
+## Part 5: 3 Tips to Get Facebook Verification
+
+### 1\. Provide complete and detailed information
+
+If you want to get verified, you need to fill out as much information as possible in order for the reviewing process is fast. You need to go to your about page to enter some information including phone number, email, company overview, address, and products. It is noted that you don't need to fill out all information as details are much more important.
+
+### 2\. Professional Facebook page is needed
+
+You don't want to give Facebook the impression that you are not professional with wrong info and an ugly page interface. The first thing you need to do is update the banner and then your logo as they are the first two things people would notice at first glance. Besides, you also need to remove low-quality images, poor articles, and posts. All in all, information centered with the brand is the symbol of a professional looking for getting Facebook verification.
+
+![facebook verification blue and gray](https://images.wondershare.com/filmora/filmorapro/great-page-get-facebook-verification.jpg)
+
+### 3\. Update your verification information
+
+When Facebook reviews your account, it takes time to give you the blue badge. You need to provide the latest and detailed information to get a quick review. It is not important if your posts are engaging or how many likes you get. The most important thing is correct. If some info is wrong, the chance you get rejected is higher.
+
+### Conclusion
+
+Facebook blue or grey badge verification is a very important step to ensure your page appears in the top search results of the search engines and strengthen the trust of your clients. Besides, video is also an important factor to attract more likes and followers. If you want to edit Facebook video, try [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) to start the journey! [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) as a solution for quickly making the business video is also available. Check this video to learn more.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+Do you wish to create strong credibility for your brand online? From local businesses to huge brands, all can establish their credibility by getting verified on the Facebook platform. If you want your prospective clients to find you easily, appearing high on search results can work wonders.
+
+But, how can you appear high on search results? Here comes the **Facebook verification**. Attaining the verified blue or grey badge can [prove your business to be trustworthy](https://visualcontenting.com/2016/11/29/difference-blue-gray-facebook-badges-theyre-important-business/) and show your page higher on the search results. Do you know how to get the blue and gray verified badge easily for your profile or page? Check out this article to know how to verify the Facebook page.
+
+You may also like: [**12 Facebook Marketing Tips**](https://tools.techidaily.com/wondershare/filmora/download/) \>>
+
+* [**Part 1: What is the Blue Verification Badge**](#part1)
+* [**Part 2: How to Verify Facebook Page (Blue Badge)**](#part2)
+* [**Part 3: How to Get Your Facebook Page Verified (Gray Badge)**](#part3)
+* [**Part 4: Why Facebook Didn’t Give Verification to Me**](#part4)
+* [**Part 5: 3 Tips to Get Facebook Verification**](#part5)
+
+---
+
+## Best video editor for Facebook - Filmora
+
+Video plays an important part on Facebook if you want to get more likes and engagement. Don't know which video editor to use? Here we recommend using [Filmora](https://tools.techidaily.com/wondershare/filmora/download/). It is designed for beginners who want to edit Facebook videos easily. You can use it to make a high-quality video that can help you get Facebook verification quickly. Download it now to start making Facebook videos (free)! [Filmora Business](https://tools.techidaily.com/wondershare/filmora/download/) is also available to help you quickly make Facebook videos. You can use it to make an amazing product or brand video with a growing resource library.
+
+* You can use it to change the aspect ratio for Facebook: 1:1, 16:9 and more
+* Add various text/title templates to your video
+* More than 300 filters/effects/overlays to use
+* Export to Facebook video format directly
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+---
+
+## Part 1: What is the Blue Verification Badge
+
+The blue verification badge is a seal of your identity. It proves that your pages have a real identity and not fake. Facebook has [three kinds of verification](https://www.facebook.com/help/196050490547892?helpref=popular%5Ftopics) – grey tick pages, blue tick pages, and blue tick profiles.
+
+**The grey tick Facebook pages** represent various organizations and companies that have been verified by Facebook and confirm their real identity.
+
+**The blue tick Facebook pages and Facebook profiles** confirm the identity of the public figures, media, and brands as per their claim. The badge confirms their official pages.
+
+Confirming your Facebook identity verification is important because [it’s a quick sign that your business, brand, or profile is doing well](https://www.weboptimizers.com.au/blue-tick-verification/) and deserve to earn a verifying sign. When your customers or any users check a verified sign on your page, they know that the page they are looking at is not fake. The page is not created by any fraud or fan and it is the real profile or page of a person or company. When the clients seek customer service, the verified Facebook pages show that the company is serious about its client relationship and social media marketing. It also helps your page to rank higher on Google search as well as Facebook search.
+
+**Are you eligible**? [Facebook verification is not allowed for all](https://www.facebook.com/help/1288173394636262). As per the Support Team of Facebook, the verified badge is only available for famous businesses or brands, journalists, media, celebrities, Government officials, sports companies, and people related to the entertainment world. Are you under any of these categories? Then, follow the [Facebook terms of service](https://www.facebook.com/terms) you get a higher chance of being verified quickly.
+
+## Part 2: How to Verify Facebook Page (Blue Badge)
+
+If you want to apply the blue badge for an individual, you need to offer a government-issued photo ID. If you a business owner and want to do Facebook verification for your brand, you can offer utility bills and tax documents. In the end, you need to express your idea to let Facebook know why you want Facebook verification. Once, [all the required information about your business is filled in](https://www.facebook.com/help/contact/342509036134712), you are ready for applying the blue badge. Follow the four steps below to get your brand or profile verified.
+
+### Step 1: Click page verification option
+
+You can find a setting option on the Facebook page at the top. The Page Verification seal is then clicked from the General tab. Get started by clicking on the Verify this Page option.
+
+![Fcebook page verifiation](https://images.wondershare.com/filmora/article-images/page-verifiation-facebook.JPG)
+
+### Step 2: Get verification code
+
+For a more detailed and quick verification process, you can ask the Facebook team to call you up at the registered number listed on your business Facebook page. A verification code enters the number listed and you just need to input it at the box space. Finally, Facebook offers with the verified seal after the process.
+
+**Note**: It won't take much longer time to receive the verification code. In case you haven't receive the verification code after 24 hours, you can try sending **On** or **Fb** to 32665.
+
+### Step 3: Upload the official document
+
+When you pick the more detailed verification process, you need to click on the Verify this Page with Documents option. Then, you receive a prompt to upload the official documents that carried the name and address of the business. It helps in recognizing your page or profile. Finally, after receiving the documents verification request, Facebook confirms or denies it within 48 hours to 45 days timeframe.
+
+![facebook verfication](https://images.wondershare.com/filmora/article-images/facebook-verfication.JPG)
+
+## Part 3: How to Get Your Facebook Page Verified (Gray Badge)
+
+It is so much easier to verify a business or company page, but still, there are preconditions to [get the gray badge](https://www.facebook.com/help/100168986860974/). If your business is in Local Business, Company, or Organization, you can apply for the Gray Badge. You can see the verification entrance in your Page’s Settings if you are an admin have the basic info about your company. You must have some of your business's official documents first like phone number and phone bill.
+
+You need to go to Settings on your page. Then click **General** \> **Page Verification** \> **Verify this Page** \> **Get Started**. Here, you can enter your phone number. Click **Call Me Now**. After a while, you will receive the verification code. Now, enter the code and continue the verification process.
+
+![How to Get Your Facebook Page Verified](https://images.wondershare.com/filmora/filmora-business/how-to-verify-facebook-page-gray-badge.jpg)
+
+## Part 4: Why Facebook Didn’t Give Verification to Me
+
+Facebook said verification can be accepted or rejected. The grey badge verification request takes around 48 hours and the blue badge verification request needs around 3 to 45 days to receive the Facebook response. In case, your verification request is rejected, it is due to the following reasons.
+
+      * **Press releases or marketing is less** \- When your press is less, it is highly possible that your verification request is rejected as your business or page is not identified accurately. You must learn to get featured on Techcrunch, Forbes, etc. You can also [write a press release to get exposure](https://coschedule.com/blog/how-to-write-press-releases-examples-templates/). You may also hire my digital marketing agency for the same.
+      * **Your Wikipedia is missing** \- In order to create a Wiki; you firstly require the high-quality press.
+      * **Your identity proof is not up to the mark** \- When your reason for verification request is not very compelling or the ID provided by you is blurry or inappropriate, your request may get rejected.
+      * **Missing Facebook Native Content** \- Facebook hates a dead page. So, it is important that your page is filled with relevant and great content for long.
+      * **Verification is Strict** \- Facebook only verifies the popular pages and profiles easily if you can establish your popularity. It is very strict on who they verify.
+
+## Part 5: 3 Tips to Get Facebook Verification
+
+### 1\. Provide complete and detailed information
+
+If you want to get verified, you need to fill out as much information as possible in order for the reviewing process is fast. You need to go to your about page to enter some information including phone number, email, company overview, address, and products. It is noted that you don't need to fill out all information as details are much more important.
+
+### 2\. Professional Facebook page is needed
+
+You don't want to give Facebook the impression that you are not professional with wrong info and an ugly page interface. The first thing you need to do is update the banner and then your logo as they are the first two things people would notice at first glance. Besides, you also need to remove low-quality images, poor articles, and posts. All in all, information centered with the brand is the symbol of a professional looking for getting Facebook verification.
+
+![facebook verification blue and gray](https://images.wondershare.com/filmora/filmorapro/great-page-get-facebook-verification.jpg)
+
+### 3\. Update your verification information
+
+When Facebook reviews your account, it takes time to give you the blue badge. You need to provide the latest and detailed information to get a quick review. It is not important if your posts are engaging or how many likes you get. The most important thing is correct. If some info is wrong, the chance you get rejected is higher.
+
+### Conclusion
+
+Facebook blue or grey badge verification is a very important step to ensure your page appears in the top search results of the search engines and strengthen the trust of your clients. Besides, video is also an important factor to attract more likes and followers. If you want to edit Facebook video, try [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) to start the journey! [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) as a solution for quickly making the business video is also available. Check this video to learn more.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+Do you wish to create strong credibility for your brand online? From local businesses to huge brands, all can establish their credibility by getting verified on the Facebook platform. If you want your prospective clients to find you easily, appearing high on search results can work wonders.
+
+But, how can you appear high on search results? Here comes the **Facebook verification**. Attaining the verified blue or grey badge can [prove your business to be trustworthy](https://visualcontenting.com/2016/11/29/difference-blue-gray-facebook-badges-theyre-important-business/) and show your page higher on the search results. Do you know how to get the blue and gray verified badge easily for your profile or page? Check out this article to know how to verify the Facebook page.
+
+You may also like: [**12 Facebook Marketing Tips**](https://tools.techidaily.com/wondershare/filmora/download/) \>>
+
+* [**Part 1: What is the Blue Verification Badge**](#part1)
+* [**Part 2: How to Verify Facebook Page (Blue Badge)**](#part2)
+* [**Part 3: How to Get Your Facebook Page Verified (Gray Badge)**](#part3)
+* [**Part 4: Why Facebook Didn’t Give Verification to Me**](#part4)
+* [**Part 5: 3 Tips to Get Facebook Verification**](#part5)
+
+---
+
+## Best video editor for Facebook - Filmora
+
+Video plays an important part on Facebook if you want to get more likes and engagement. Don't know which video editor to use? Here we recommend using [Filmora](https://tools.techidaily.com/wondershare/filmora/download/). It is designed for beginners who want to edit Facebook videos easily. You can use it to make a high-quality video that can help you get Facebook verification quickly. Download it now to start making Facebook videos (free)! [Filmora Business](https://tools.techidaily.com/wondershare/filmora/download/) is also available to help you quickly make Facebook videos. You can use it to make an amazing product or brand video with a growing resource library.
+
+* You can use it to change the aspect ratio for Facebook: 1:1, 16:9 and more
+* Add various text/title templates to your video
+* More than 300 filters/effects/overlays to use
+* Export to Facebook video format directly
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+---
+
+## Part 1: What is the Blue Verification Badge
+
+The blue verification badge is a seal of your identity. It proves that your pages have a real identity and not fake. Facebook has [three kinds of verification](https://www.facebook.com/help/196050490547892?helpref=popular%5Ftopics) – grey tick pages, blue tick pages, and blue tick profiles.
+
+**The grey tick Facebook pages** represent various organizations and companies that have been verified by Facebook and confirm their real identity.
+
+**The blue tick Facebook pages and Facebook profiles** confirm the identity of the public figures, media, and brands as per their claim. The badge confirms their official pages.
+
+Confirming your Facebook identity verification is important because [it’s a quick sign that your business, brand, or profile is doing well](https://www.weboptimizers.com.au/blue-tick-verification/) and deserve to earn a verifying sign. When your customers or any users check a verified sign on your page, they know that the page they are looking at is not fake. The page is not created by any fraud or fan and it is the real profile or page of a person or company. When the clients seek customer service, the verified Facebook pages show that the company is serious about its client relationship and social media marketing. It also helps your page to rank higher on Google search as well as Facebook search.
+
+**Are you eligible**? [Facebook verification is not allowed for all](https://www.facebook.com/help/1288173394636262). As per the Support Team of Facebook, the verified badge is only available for famous businesses or brands, journalists, media, celebrities, Government officials, sports companies, and people related to the entertainment world. Are you under any of these categories? Then, follow the [Facebook terms of service](https://www.facebook.com/terms) you get a higher chance of being verified quickly.
+
+## Part 2: How to Verify Facebook Page (Blue Badge)
+
+If you want to apply the blue badge for an individual, you need to offer a government-issued photo ID. If you a business owner and want to do Facebook verification for your brand, you can offer utility bills and tax documents. In the end, you need to express your idea to let Facebook know why you want Facebook verification. Once, [all the required information about your business is filled in](https://www.facebook.com/help/contact/342509036134712), you are ready for applying the blue badge. Follow the four steps below to get your brand or profile verified.
+
+### Step 1: Click page verification option
+
+You can find a setting option on the Facebook page at the top. The Page Verification seal is then clicked from the General tab. Get started by clicking on the Verify this Page option.
+
+![Fcebook page verifiation](https://images.wondershare.com/filmora/article-images/page-verifiation-facebook.JPG)
+
+### Step 2: Get verification code
+
+For a more detailed and quick verification process, you can ask the Facebook team to call you up at the registered number listed on your business Facebook page. A verification code enters the number listed and you just need to input it at the box space. Finally, Facebook offers with the verified seal after the process.
+
+**Note**: It won't take much longer time to receive the verification code. In case you haven't receive the verification code after 24 hours, you can try sending **On** or **Fb** to 32665.
+
+### Step 3: Upload the official document
+
+When you pick the more detailed verification process, you need to click on the Verify this Page with Documents option. Then, you receive a prompt to upload the official documents that carried the name and address of the business. It helps in recognizing your page or profile. Finally, after receiving the documents verification request, Facebook confirms or denies it within 48 hours to 45 days timeframe.
+
+![facebook verfication](https://images.wondershare.com/filmora/article-images/facebook-verfication.JPG)
+
+## Part 3: How to Get Your Facebook Page Verified (Gray Badge)
+
+It is so much easier to verify a business or company page, but still, there are preconditions to [get the gray badge](https://www.facebook.com/help/100168986860974/). If your business is in Local Business, Company, or Organization, you can apply for the Gray Badge. You can see the verification entrance in your Page’s Settings if you are an admin have the basic info about your company. You must have some of your business's official documents first like phone number and phone bill.
+
+You need to go to Settings on your page. Then click **General** \> **Page Verification** \> **Verify this Page** \> **Get Started**. Here, you can enter your phone number. Click **Call Me Now**. After a while, you will receive the verification code. Now, enter the code and continue the verification process.
+
+![How to Get Your Facebook Page Verified](https://images.wondershare.com/filmora/filmora-business/how-to-verify-facebook-page-gray-badge.jpg)
+
+## Part 4: Why Facebook Didn’t Give Verification to Me
+
+Facebook said verification can be accepted or rejected. The grey badge verification request takes around 48 hours and the blue badge verification request needs around 3 to 45 days to receive the Facebook response. In case, your verification request is rejected, it is due to the following reasons.
+
+      * **Press releases or marketing is less** \- When your press is less, it is highly possible that your verification request is rejected as your business or page is not identified accurately. You must learn to get featured on Techcrunch, Forbes, etc. You can also [write a press release to get exposure](https://coschedule.com/blog/how-to-write-press-releases-examples-templates/). You may also hire my digital marketing agency for the same.
+      * **Your Wikipedia is missing** \- In order to create a Wiki; you firstly require the high-quality press.
+      * **Your identity proof is not up to the mark** \- When your reason for verification request is not very compelling or the ID provided by you is blurry or inappropriate, your request may get rejected.
+      * **Missing Facebook Native Content** \- Facebook hates a dead page. So, it is important that your page is filled with relevant and great content for long.
+      * **Verification is Strict** \- Facebook only verifies the popular pages and profiles easily if you can establish your popularity. It is very strict on who they verify.
+
+## Part 5: 3 Tips to Get Facebook Verification
+
+### 1\. Provide complete and detailed information
+
+If you want to get verified, you need to fill out as much information as possible in order for the reviewing process is fast. You need to go to your about page to enter some information including phone number, email, company overview, address, and products. It is noted that you don't need to fill out all information as details are much more important.
+
+### 2\. Professional Facebook page is needed
+
+You don't want to give Facebook the impression that you are not professional with wrong info and an ugly page interface. The first thing you need to do is update the banner and then your logo as they are the first two things people would notice at first glance. Besides, you also need to remove low-quality images, poor articles, and posts. All in all, information centered with the brand is the symbol of a professional looking for getting Facebook verification.
+
+![facebook verification blue and gray](https://images.wondershare.com/filmora/filmorapro/great-page-get-facebook-verification.jpg)
+
+### 3\. Update your verification information
+
+When Facebook reviews your account, it takes time to give you the blue badge. You need to provide the latest and detailed information to get a quick review. It is not important if your posts are engaging or how many likes you get. The most important thing is correct. If some info is wrong, the chance you get rejected is higher.
+
+### Conclusion
+
+Facebook blue or grey badge verification is a very important step to ensure your page appears in the top search results of the search engines and strengthen the trust of your clients. Besides, video is also an important factor to attract more likes and followers. If you want to edit Facebook video, try [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) to start the journey! [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) as a solution for quickly making the business video is also available. Check this video to learn more.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/facebook-featured-best-10-music-clips-today-for-2024/"><u>Facebook Featured  Best 10 Music Clips Today for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-top-8-best-apps-to-get-likes-on-facebook-android-and-iphone/"><u>[New] 2024 Approved  Top 8 Best Apps to Get Likes on Facebook (Android and iPhone)</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-assessing-common-fb-video-formats/"><u>[New] 2024 Approved  Assessing Common FB Video Formats</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-five-best-free-fb-video-downloader-hacks/"><u>[New] In 2024, Five Best Free FB Video Downloader Hacks</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-discover-and-make-the-fb-most-watched-song-videos-for-2024/"><u>[New] Discover & Make the #FB Most-Watched Song Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-circumventing-video-send-blockages-in-facebook-chat-apps/"><u>In 2024, Circumventing Video Send Blockages in Facebook Chat Apps</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-the-art-of-revisiting-historical-facebook-posts-mobilelaptop/"><u>[Updated] The Art of Revisiting Historical Facebook Posts (Mobile/Laptop)</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-achieve-hd-video-quality-on-fb-live/"><u>[Updated] In 2024, Achieve HD Video Quality on FB Live</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-immediate-removal-policy-for-videos-user-concerns/"><u>[Updated] Immediate Removal Policy for Videos - User Concerns</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/breaking-barriers-watching-live-events-on-your-roku-screen-for-2024/"><u>Breaking Barriers  Watching Live Events on Your Roku Screen for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/simplified-guide-to-creating-group-conversations-for-2024/"><u>Simplified Guide to Creating Group Conversations for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-seamlessly-streaming-social-media-vids-via-television/"><u>[Updated] 2024 Approved  Seamlessly Streaming Social Media Vids via Television</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-time-hopping-through-facebook-stories-a-device-based-expedition/"><u>[New] Time-Hopping Through Facebook Stories  A Device-Based Expedition</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-best-ff-browser-add-ons-for-fb-videos/"><u>[Updated] 2024 Approved  Best FF Browser Add-Ons for FB Videos</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-what-does-the-signature-blue-glyph-on-messenger-stand-for/"><u>[New] In 2024, What Does the Signature Blue Glyph on Messenger Stand For?</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-innovation-in-social-media-redefining-the-role-of-facebook-stories/"><u>[Updated] 2024 Approved  Innovation in Social Media  Redefining the Role of Facebook Stories</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-facebooks-vanished-video-suggestions-explained/"><u>[New] In 2024, Facebook's Vanished Video Suggestions Explained</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-detailed-review-of-neros-waveeditor-capabilities-for-2024/"><u>New Detailed Review of Neros WaveEditor Capabilities for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/tecno-camon-20-premier-5g-camera-not-working-unexpected-error-fix-it-now-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Tecno Camon 20 Premier 5G Camera Not Working Unexpected Error? Fix It Now | Dr.fone</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/say-goodbye-to-watermarks-the-best-free-video-editing-software-for-2024/"><u>Say Goodbye to Watermarks The Best Free Video Editing Software for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-5-quick-methods-to-bypass-poco-x6-frp-by-drfone-android/"><u>In 2024, 5 Quick Methods to Bypass Poco X6 FRP</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-the-ultimate-guide-to-free-online-glitch-effect-makers-2023-edition/"><u>Updated In 2024, The Ultimate Guide to Free Online Glitch Effect Makers (2023 Edition)</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-free-mov-video-editors-top-picks/"><u>Updated Free MOV Video Editors Top Picks</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-in-2024-bring-your-ideas-to-life-top-7-animation-drawing-tools/"><u>New In 2024, Bring Your Ideas to Life Top 7 Animation Drawing Tools</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/a-perfect-guide-to-remove-or-disable-google-smart-lock-on-honor-100-by-drfone-android/"><u>A Perfect Guide To Remove or Disable Google Smart Lock On Honor 100</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/overview-of-the-best-realme-v30t-screen-mirroring-app-drfone-by-drfone-android/"><u>Overview of the Best Realme V30T Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/how-to-perfectly-stream-your-ps4-gaming-session/"><u>How to Perfectly Stream Your PS4 Gaming Session</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-oppo-a58-4g-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Oppo A58 4G to Samsung Phone | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-5-quick-methods-to-bypass-nokia-c32-frp-by-drfone-android/"><u>In 2024, 5 Quick Methods to Bypass Nokia C32 FRP</u></a></li>
+</ul></div>
+
