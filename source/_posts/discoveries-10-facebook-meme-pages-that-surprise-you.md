@@ -1,7 +1,7 @@
 ---
 title: "\"Discoveries  10 Facebook Meme Pages That Surprise You\""
-date: 2024-05-20T19:37:55.210Z
-updated: 2024-05-21T19:37:55.210Z
+date: 2024-06-09T12:26:36.904Z
+updated: 2024-06-10T12:26:36.904Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Discoveries: 10 Facebook Meme Pages That Surprise You\""
 excerpt: "\"This Article Describes Discoveries: 10 Facebook Meme Pages That Surprise You\""
 keywords: "Social Media Memes,Funny FB Pages,Innovative FB Groups,Surprising Meme Sites,Unique Facebook Content,Hidden Memes on Social,Shocking Facebook Pages"
-thumbnail: https://www.lifewire.com/thmb/A9lp-TVKNjN87xTqZYQ6TV5uPrM=/540x405/filters:no_upscale():max_bytes(150000):strip_icc()/AfroFreelancer1-da88b7a239f349e2a8870e670a7496fe.png
+thumbnail: https://thmb.techidaily.com/65d1648a69e474032218f98a4f9088236faaaabb296646cc458aad0041a1d229.png
 ---
 
 ## Discoveries: 10 Facebook Meme Pages That Surprise You

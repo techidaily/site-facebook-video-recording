@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Pinterest Avatar Recording  Resolution, Frame Rate, Length\""
-date: 2024-05-20T18:33:56.305Z
-updated: 2024-05-21T18:33:56.305Z
+date: 2024-06-09T12:26:33.703Z
+updated: 2024-06-10T12:26:33.703Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] Pinterest Avatar Recording: Resolution, Frame Rate, Length\""
 excerpt: "\"This Article Describes [Updated] Pinterest Avatar Recording: Resolution, Frame Rate, Length\""
 keywords: "\"PinArt Resolutions,Pinterest Framespeed,Avatar Recording Quality,High-ResPinFrames,PinRecording Lengths,ImageRate Pinterest,PinFrame Ratio\""
-thumbnail: https://www.lifewire.com/thmb/dVn4l0H_Q4lS9y54mPgaZ7x5VtA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/snow-tracks-of-senior-couple-walking-to-trees-and-mountain-range--sattelbergalm--tyrol--austria-592233383-c47ecd50c6ee406687da83916a3f2ff1.jpg
+thumbnail: https://thmb.techidaily.com/436acba0c9c893929d5ec6208fba8a64936bfc6bd1c8126cb50df85aef146e19.jpg
 ---
 
 ## Pinterest Avatar Recording: Resolution, Frame Rate, Length

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Unlock Old Facebook Memories with a Click"
-date: 2024-05-20T19:25:31.448Z
-updated: 2024-05-21T19:25:31.448Z
+date: 2024-06-09T12:26:28.350Z
+updated: 2024-06-10T12:26:28.350Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] Unlock Old Facebook Memories with a Click"
 excerpt: "This Article Describes [Updated] Unlock Old Facebook Memories with a Click"
 keywords: "Unlock FB Memories,Click to Recall FB Past,Access Old FB Content,Revisit Fb Old Posts,Unlock Memories on Facebook,Easily View Previous FB Activity,Click to Find Lost FB Moments"
-thumbnail: https://www.lifewire.com/thmb/EVPMwUvvJxpJdiKeU4q7SREScME=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/mothersday_NataliaCampbell_Getty-5a4baef6c7822d00371e56cd.jpg
+thumbnail: https://thmb.techidaily.com/c367633b9f9ef727c06fd08d3dd4d78a496570d920b7ae31f5d249d448106c6d.jpg
 ---
 
 ## Unlock Old Facebook Memories with a Click

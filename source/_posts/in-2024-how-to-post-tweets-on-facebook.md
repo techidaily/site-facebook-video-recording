@@ -1,7 +1,7 @@
 ---
 title: "In 2024, How to Post Tweets on Facebook"
-date: 2024-05-20T19:16:58.211Z
-updated: 2024-05-21T19:16:58.211Z
+date: 2024-06-09T12:26:35.132Z
+updated: 2024-06-10T12:26:35.132Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes In 2024, How to Post Tweets on Facebook"
 excerpt: "This Article Describes In 2024, How to Post Tweets on Facebook"
 keywords: "Twitter FB Sharing Guide,FB Tweet Integration,Share Tweet To FB,Post Tweet On FB,FB Tweet Feature,Facebook Tweet Linking,Tweet to FB Connection"
-thumbnail: https://www.lifewire.com/thmb/Uc4eFELHCUVYbHwckJlDHvIiygQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-755651087-3682bb0c113447199101a344615a7bf2.jpg
+thumbnail: https://thmb.techidaily.com/7618ed5212ad2fa17c4d0cff006f1dcb4d7c52766a583e2029f0351c0b405229.jpg
 ---
 
 ## Navigating Twitter & Facebook Integration

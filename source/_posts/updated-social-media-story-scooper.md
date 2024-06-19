@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Social Media Story Scooper"
-date: 2024-05-20T19:47:52.933Z
-updated: 2024-05-21T19:47:52.933Z
+date: 2024-06-09T12:26:32.967Z
+updated: 2024-06-10T12:26:32.967Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] Social Media Story Scooper"
 excerpt: "This Article Describes [Updated] Social Media Story Scooper"
 keywords: "Social Story Tools,Media Content Scoop,Engage Stories Easy,Brand Social Scoops,Interactive Story Ready,Shareable Story Collector,Viral Stories Manager"
-thumbnail: https://www.lifewire.com/thmb/5tD-_gpIrKxGqi4E54Dp4SLyqMY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/On-Line-Job-Search-aa2565e859bd43a2aa34dfa1537dbd50.jpg
+thumbnail: https://thmb.techidaily.com/51dee520b6548ad713de001f9d872ff359ce7157fc9657d20a61cd8374fcc9ae.jpg
 ---
 
 ## Social Media Story Scooper

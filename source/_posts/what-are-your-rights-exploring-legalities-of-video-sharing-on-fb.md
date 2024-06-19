@@ -1,7 +1,7 @@
 ---
 title: "What Are Your Rights? Exploring Legalities of Video Sharing on FB"
-date: 2024-05-20T19:22:46.520Z
-updated: 2024-05-21T19:22:46.520Z
+date: 2024-06-09T12:26:27.861Z
+updated: 2024-06-10T12:26:27.861Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes What Are Your Rights? Exploring Legalities of Video Sharing on FB"
 excerpt: "This Article Describes What Are Your Rights? Exploring Legalities of Video Sharing on FB"
 keywords: "\"Facebook Video Sharing Law,Share Videos: Legal Implications,Understanding FB Video Rights,FB Video Usage Regulations,Protecting Yourself on FB Sharing,Legality of FB Video Posts,Consumer Rights in Facebook Video Content\""
-thumbnail: https://www.lifewire.com/thmb/M6FrUQYVn8owVXpQEd284jH9pPE=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-1430921659-97a3a9e254e1450a89f0d9c41ffd7920.jpg
+thumbnail: https://thmb.techidaily.com/7951d32be8f36c4eb18b2a1ca73585423cfb1568fc448e5639b2a4a582d5f7dd.jpg
 ---
 
 ## What Are Your Rights? Exploring Legalities of Video Sharing on FB

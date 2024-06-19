@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  FB Moments  Snappy Storytime\""
-date: 2024-05-20T20:02:43.835Z
-updated: 2024-05-21T20:02:43.835Z
+date: 2024-06-09T12:26:30.895Z
+updated: 2024-06-10T12:26:30.895Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: FB Moments: Snappy Storytime\""
 excerpt: "\"This Article Describes 2024 Approved: FB Moments: Snappy Storytime\""
 keywords: "FB Moments Stories,Quick FB Snapshots,Social Media Flashes,Instant Moment Sharing,Facebook Narrative Time,Ephemeral FB Storytime,Snapshot Moments on FB"
-thumbnail: https://www.lifewire.com/thmb/GEh6yikW2dAwe3RKl5habYgW_jc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/hulu-5804f6075f9b5805c2cbae24.png
+thumbnail: https://thmb.techidaily.com/6c0361031673718dd65b08f3b6f24eb590de40f0c8e00739939cad23b109e68b.png
 ---
 
 ## FB Moments: Snappy Storytime

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Unlocking the Art of Captions  A Short Guide to Facebook Videos\""
-date: 2024-05-20T19:36:13.607Z
-updated: 2024-05-21T19:36:13.607Z
+date: 2024-06-09T12:26:32.156Z
+updated: 2024-06-10T12:26:32.156Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Unlocking the Art of Captions: A Short Guide to Facebook Videos\""
 excerpt: "\"This Article Describes [New] Unlocking the Art of Captions: A Short Guide to Facebook Videos\""
 keywords: "Video Caption Art,Caption Writing Tips,Facebook Video Guide,Social Media Captions,Caption Creation,Short Caption Guide,Effective Video Descriptions"
-thumbnail: https://www.lifewire.com/thmb/OuVef_5haGHVKpJil20272Du6cI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/computer-internals-with-red-LED-and-RGB-GettyImages-ebb5630f80ee4f8e874dd787739ad3cb.jpg
+thumbnail: https://thmb.techidaily.com/bab37a5357094e09dd42f37d3cc78e25fe907bbcf4a7b3121bebc119dc83e730.jpg
 ---
 
 ## Unlocking the Art of Captions: A Short Guide to Facebook Videos

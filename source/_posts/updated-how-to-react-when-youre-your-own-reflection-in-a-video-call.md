@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to React When You're Your Own Reflection in a Video Call"
-date: 2024-05-20T19:02:32.376Z
-updated: 2024-05-21T19:02:32.376Z
+date: 2024-06-09T12:26:29.131Z
+updated: 2024-06-10T12:26:29.131Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] How to React When You're Your Own Reflection in a Video Call"
 excerpt: "This Article Describes [Updated] How to React When You're Your Own Reflection in a Video Call"
 keywords: "\"Self-Reflection Video Call,Mirror Image Online,Identity Crisis Calls,Facing Self in Video,Online Reflection Challenges,Seeing Oneself on Screen,Coping Mirror Meetings\""
-thumbnail: https://www.lifewire.com/thmb/W3GWqmvVnsX-u0REEWJqqyOErDA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/dellstudentdiscount-e67f4f7e4b4b46cba7af6aa676fcf535.jpg
+thumbnail: https://thmb.techidaily.com/5ba7b3f6e60e87bd15e4d0d59cd473305f169947afe8b79e803b03fc556698ce.jpg
 ---
 
 ## How to React When You're Your Own Reflection in a Video Call

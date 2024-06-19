@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Dive Into 360 Videos  IPhone Edition for Facebook Posts\""
-date: 2024-05-20T18:55:44.613Z
-updated: 2024-05-21T18:55:44.613Z
+date: 2024-06-09T12:26:25.750Z
+updated: 2024-06-10T12:26:25.750Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] 2024 Approved: Dive Into 360 Videos: IPhone Edition for Facebook Posts\""
 excerpt: "\"This Article Describes [Updated] 2024 Approved: Dive Into 360 Videos: IPhone Edition for Facebook Posts\""
 keywords: "IPhone 360 Video,FaceBook 360 Photos,360 Videos For FB,Iphone 360 Streaming,Facebook 360 Posts,IPhone VR Videos,Social Media 360 Pics"
-thumbnail: https://www.lifewire.com/thmb/slEcAvIb95fP3sjPyuUiAqWxAnU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/best-ways-to-use-google-maps-trip-planner-4584427-8-9b4ba3c12bfb44a1acfe947a31c815fa.jpg
+thumbnail: https://thmb.techidaily.com/596d58530eb9322168d7babcbb9a9489a386dda09536b6b2d4f38f91d6402603.jpg
 ---
 
 ## Dive Into 360 Videos: IPhone Edition for Facebook Posts

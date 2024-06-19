@@ -1,7 +1,7 @@
 ---
 title: "In 2024, DirectVid Snapper for Video Calls"
-date: 2024-05-20T19:44:56.268Z
-updated: 2024-05-21T19:44:56.268Z
+date: 2024-06-09T12:26:36.068Z
+updated: 2024-06-10T12:26:36.068Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes In 2024, DirectVid Snapper for Video Calls"
 excerpt: "This Article Describes In 2024, DirectVid Snapper for Video Calls"
 keywords: "VidSnapperCalls,DirectVideoSnapper,VideoCallSnapper,SnappyVideoCalls,QuickVidSnapperVC,DirectVCVideoSnap,EfficientDirectSnapping"
-thumbnail: https://www.lifewire.com/thmb/3NvFp5LngXdNcgXymAXs6HlGjPw=/540x405/filters:no_upscale():max_bytes(150000):strip_icc()/dudeontrain_compressed-5bb126b146e0fb0026d7904e.jpg
+thumbnail: https://thmb.techidaily.com/c6048430c1339bc95d70af5b42f06e3231c3552b043c7e6cc92b16fd863d9438.jpg
 ---
 
 ## DirectVid Snapper for Video Calls

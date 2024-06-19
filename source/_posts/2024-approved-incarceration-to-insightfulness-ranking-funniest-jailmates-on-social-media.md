@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Incarceration to Insightfulness  Ranking Funniest Jailmates on Social Media\""
-date: 2024-05-20T18:50:30.587Z
-updated: 2024-05-21T18:50:30.587Z
+date: 2024-06-09T12:26:30.824Z
+updated: 2024-06-10T12:26:30.824Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Incarceration to Insightfulness: Ranking Funniest Jailmates on Social Media\""
 excerpt: "\"This Article Describes 2024 Approved: Incarceration to Insightfulness: Ranking Funniest Jailmates on Social Media\""
 keywords: "\"Jailmate Hilarity,Laughs Behind Bars,Prisoner Pranks,Humor in Cells,Locked-Up Chuckles,Social Media Inmates,Insightful Incarceration\""
-thumbnail: https://www.lifewire.com/thmb/IgeBPlRVmOuk11sb_EIfMaAzpgM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/changemarginsingoogledocs-5a1c6c9d4e4f7d00371a9aca.png
+thumbnail: https://thmb.techidaily.com/9cc152d1aca0892df1ca5596ac3ad03cce388893be920721cefd3090f694d72e.png
 ---
 
 ## Incarceration to Insightfulness: Ranking Funniest Jailmates on Social Media

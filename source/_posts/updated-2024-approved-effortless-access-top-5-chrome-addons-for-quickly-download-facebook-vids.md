@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Effortless Access  Top 5 Chrome Addons for Quickly Download Facebook Vids\""
-date: 2024-05-20T19:12:32.033Z
-updated: 2024-05-21T19:12:32.033Z
+date: 2024-06-09T12:26:32.468Z
+updated: 2024-06-10T12:26:32.468Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] 2024 Approved: Effortless Access: Top 5 Chrome Addons for Quickly Download Facebook Vids\""
 excerpt: "\"This Article Describes [Updated] 2024 Approved: Effortless Access: Top 5 Chrome Addons for Quickly Download Facebook Vids\""
 keywords: "Fast FB Video Downloader,Easy Chroma Ads Extension,Instant FB Videos,Quick Access to FB Media,Chrome FB Vid Downloader,Seamless Facebook Downloads,Rapid FB Video Extraction"
-thumbnail: https://www.lifewire.com/thmb/YDbqv0KlCSwJ6pxbiAiduwvZbiQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-735894879-59a33461519de20010087422.jpg
+thumbnail: https://thmb.techidaily.com/e35b5be1f091e9309ed35244938c575401125e5d762e94ab1bade24154e68d3e.jpg
 ---
 
 ## Effortless Access: Top 5 Chrome Addons for Quickly Download Facebook Vids

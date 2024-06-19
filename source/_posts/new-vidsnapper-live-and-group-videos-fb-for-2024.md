@@ -1,7 +1,7 @@
 ---
 title: "\"[New] VidSnapper  Live and Group Videos, FB for 2024\""
-date: 2024-05-20T19:49:55.355Z
-updated: 2024-05-21T19:49:55.355Z
+date: 2024-06-09T12:26:29.876Z
+updated: 2024-06-10T12:26:29.876Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] VidSnapper: Live and Group Videos, FB for 2024\""
 excerpt: "\"This Article Describes [New] VidSnapper: Live and Group Videos, FB for 2024\""
 keywords: "\"VidSnapper Live Video,Group Video Capture,Live Social Media Video,Facebook Video Sharing,Real-Time Video Grouping,Mobile Live Video Edit,FB Integrated Video Feed\""
-thumbnail: https://www.lifewire.com/thmb/vKEwb4AlzyMChLbSj_hDTsfIoW4=/540x405/filters:no_upscale():max_bytes(150000):strip_icc()/what-is-g-suite-4686959-207e64f4d3944612bd68f690d8f143f9.png
+thumbnail: https://thmb.techidaily.com/35711b04893827e589108adbb18a73b7e3ecd093c90f2ad47957b85620005c06.png
 ---
 
 ## VidSnapper: Live and Group Videos, FB

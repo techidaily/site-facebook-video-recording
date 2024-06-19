@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Understanding the Social TV Landscape  Roku's Role\""
-date: 2024-05-20T19:24:22.051Z
-updated: 2024-05-21T19:24:22.051Z
+date: 2024-06-09T12:26:38.206Z
+updated: 2024-06-10T12:26:38.206Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Understanding the Social TV Landscape: Roku's Role\""
 excerpt: "\"This Article Describes 2024 Approved: Understanding the Social TV Landscape: Roku's Role\""
 keywords: "\"Social TV Trends,Roku Viewing Impact,Streaming Media Growth,Television Integration,Digital TV Evolution,Live-Stream Content,Roku Broadcasting\""
-thumbnail: https://www.lifewire.com/thmb/8yj4A4h-WC4nUxpd0s5dSLOUi6k=/300x200/filters:no_upscale():max_bytes(150000):strip_icc()/netflix-iphone-lede-5954e15a16e343deadfdd40c08483247.jpg
+thumbnail: https://thmb.techidaily.com/f51042103ff6c3f87c92a84096e29bdaf9eccd433a92cd047a35aea4a9510783.jpg
 ---
 
 ## Understanding the Social TV Landscape: Roku's Role

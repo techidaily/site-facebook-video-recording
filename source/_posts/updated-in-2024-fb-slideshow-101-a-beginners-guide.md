@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, FB Slideshow 101  A Beginner's Guide\""
-date: 2024-05-20T19:24:36.394Z
-updated: 2024-05-21T19:24:36.394Z
+date: 2024-06-09T12:26:31.821Z
+updated: 2024-06-10T12:26:31.821Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] In 2024, FB Slideshow 101: A Beginner's Guide\""
 excerpt: "\"This Article Describes [Updated] In 2024, FB Slideshow 101: A Beginner's Guide\""
 keywords: "FB Slide Show Basics,FB Slideshow Essentials,Learn Facebook Slideshows,Start with FB Slides,Master FB Slideshow,FB Slideshow for Beginners,Introduction to FB Slides"
-thumbnail: https://www.lifewire.com/thmb/qhKTHSVkDe6Tf9aQ3h9q7IAZdvc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/womanonkayak-5ba7f7c0c9e77c0050d59319.jpg
+thumbnail: https://thmb.techidaily.com/ea52c7c75e7b3032041ebf8f7a073a81be868964630fead8d644714b724c8d98.jpg
 ---
 
 ## FB Slideshow 101: A Beginner's Guide

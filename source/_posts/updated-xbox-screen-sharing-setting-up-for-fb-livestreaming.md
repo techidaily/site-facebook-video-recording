@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Xbox Screen Sharing  Setting Up for FB Livestreaming\""
-date: 2024-05-20T19:43:08.088Z
-updated: 2024-05-21T19:43:08.088Z
+date: 2024-06-09T12:26:31.253Z
+updated: 2024-06-10T12:26:31.253Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] Xbox Screen Sharing: Setting Up for FB Livestreaming\""
 excerpt: "\"This Article Describes [Updated] Xbox Screen Sharing: Setting Up for FB Livestreaming\""
 keywords: "Xbox Live Stream,FB Screen Share,Xbox Livestream Setup,Xbox Screen Broadcast,Social Media Xbox,Facebook Xbox Streaming,Xbox Screen Sharing Tips"
-thumbnail: https://www.lifewire.com/thmb/VvuHnDpS4EJ9t4f5Kuwv3T94pw0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/how-to-watch-the-alien-movies-in-order-612898751c874dffb6c6f3990444f8fe.jpg
+thumbnail: https://thmb.techidaily.com/c07b7ea823a20fff0d48f1accc60826d6016566f3469f152eba0254ae0b7e1bc.jpg
 ---
 
 ## Xbox Screen Sharing: Setting Up for FB Livestreaming

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Film the Face of Your FB Space\""
-date: 2024-05-20T18:45:57.434Z
-updated: 2024-05-21T18:45:57.434Z
+date: 2024-06-09T12:26:25.876Z
+updated: 2024-06-10T12:26:25.876Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Film the Face of Your FB Space\""
 excerpt: "\"This Article Describes 2024 Approved: Film the Face of Your FB Space\""
 keywords: "\"Facebook Profile Filming,Virtual Self-Portrait,Personal FB Space Cinematography,Film Your Facebook PF,Facial Portrait in FB,Capture Face on FB Space,FB Avatar Shoot\""
-thumbnail: https://www.lifewire.com/thmb/nY-xMmJ8eSNy6sVe0OKN-PVjSNM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/subwaysurfers-11a4d59f94d64363ad6a19cd07dfe109.jpeg
+thumbnail: https://thmb.techidaily.com/d156dc661c6f6baa9eb3b5c3ab4152f8f8f4fcdc0dbe084557e36eab0ab2db64.jpeg
 ---
 
 ## Film the Face of Your FB Space

@@ -1,7 +1,7 @@
 ---
 title: "Evaluation of FB Video Shapes"
-date: 2024-05-20T19:57:35.780Z
-updated: 2024-05-21T19:57:35.780Z
+date: 2024-06-09T12:26:37.240Z
+updated: 2024-06-10T12:26:37.240Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes Evaluation of FB Video Shapes"
 excerpt: "This Article Describes Evaluation of FB Video Shapes"
 keywords: "FB Video Analysis,Content Formats Eval,Video Shape Assessment,Media Quality Reviewing,Videography Structure,Shape Dimension Study,Video Format Comparison"
-thumbnail: https://www.lifewire.com/thmb/zjPjlWJTSL68ZSlBHgpVNVEF0Y0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/free-disk-partition-software-tools-2624950-fad3ccc557d34ed89d53eff7538f5fdb.png
+thumbnail: https://thmb.techidaily.com/295eacd64272b4b4a8e96856aef38358e19d3e53299073754d2c1fe5d922072f.png
 ---
 
 ## Evaluation of FB Video Shapes

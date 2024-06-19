@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Break Free the Chuckles  Ranking 20 Hilarious FB Detention Scenes\""
-date: 2024-05-20T19:04:47.557Z
-updated: 2024-05-21T19:04:47.557Z
+date: 2024-06-09T12:26:40.057Z
+updated: 2024-06-10T12:26:40.057Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Break Free the Chuckles: Ranking 20 Hilarious FB Detention Scenes\""
 excerpt: "\"This Article Describes 2024 Approved: Break Free the Chuckles: Ranking 20 Hilarious FB Detention Scenes\""
 keywords: "\"Funny Fb Detentions,Humorous FB Arrests,Laughable Online Bans,Comical Social Blocks,Hilarity in Facebook Limits,Amusing Social Suspensions,Chuckle-Worthy Fb Penalties\""
-thumbnail: https://www.lifewire.com/thmb/o7l_Dn7Ptjx09bR0D-TWUViQhpU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Neurons-c0191b68778e4529a26a159c12733ed9.jpg
+thumbnail: https://thmb.techidaily.com/a080ef814e8219bc0372e6a68a593bc00b4cb1212abb381c555dc4e79829ce23.jpg
 ---
 
 ## Break Free the Chuckles: Ranking 20 Hilarious FB Detention Scenes

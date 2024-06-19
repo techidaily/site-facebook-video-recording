@@ -1,7 +1,7 @@
 ---
 title: "\"Web + Add-On  FB Story Capture Tool\""
-date: 2024-05-20T19:13:02.846Z
-updated: 2024-05-21T19:13:02.846Z
+date: 2024-06-09T12:26:36.187Z
+updated: 2024-06-10T12:26:36.187Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Web + Add-On: FB Story Capture Tool\""
 excerpt: "\"This Article Describes Web + Add-On: FB Story Capture Tool\""
 keywords: "\"FB Stories Capture,Social Media Video Tools,Digital Story Recording,Live Video Capture Tool,FB Add-On for Videos,Web Content Grabber,Online Video Archive\""
-thumbnail: https://www.lifewire.com/thmb/Dd2B3zsDarX1-Xug_NIgymlaAyg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/secondcarbattery-5680931d3df78ccc15a5aadb.jpg
+thumbnail: https://thmb.techidaily.com/96ca9c739207d23d042e7f8016b381f18f2564ff73ddf98034c5d696bcc3f7e9.jpg
 ---
 
 ## Web + Add-On: FB Story Capture Tool

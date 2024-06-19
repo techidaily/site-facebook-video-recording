@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Navigating Social Streams  Find Just-Watched Video List on Facebook\""
-date: 2024-05-20T18:52:55.552Z
-updated: 2024-05-21T18:52:55.552Z
+date: 2024-06-09T12:26:25.168Z
+updated: 2024-06-10T12:26:25.168Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Navigating Social Streams: Find Just-Watched Video List on Facebook\""
 excerpt: "\"This Article Describes [New] Navigating Social Streams: Find Just-Watched Video List on Facebook\""
 keywords: "\"Watch Just Video FB,FB Just-Watched List,Navigate FB Videos,Discover New FB Content,FB Recent Views Tracker,Find Liked Vids on FB,Facebook Video Alerts\""
-thumbnail: https://www.lifewire.com/thmb/Z3Xs6-UzsSzaSd95X6saYFKQuKE=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-77744394-e5f79596e54a4ba6a914eed31be7efc4.jpg
+thumbnail: https://thmb.techidaily.com/f3f7c2648aae473eb47faf6b1572e2de9e0b4b9ceaf1fe51880dc088692edac0.jpg
 ---
 
 ## Navigating Social Streams: Find Just-Watched Video List on Facebook

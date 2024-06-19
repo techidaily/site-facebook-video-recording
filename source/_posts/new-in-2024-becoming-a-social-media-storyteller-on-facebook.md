@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Becoming a Social Media Storyteller on Facebook"
-date: 2024-05-20T19:41:56.162Z
-updated: 2024-05-21T19:41:56.162Z
+date: 2024-06-09T12:26:33.274Z
+updated: 2024-06-10T12:26:33.274Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] In 2024, Becoming a Social Media Storyteller on Facebook"
 excerpt: "This Article Describes [New] In 2024, Becoming a Social Media Storyteller on Facebook"
 keywords: "Social Media Strategist,FB Content Creator,Storytelling on Fb,Digital Narrative Expert,Engaging Stories Fb,Fb Social Influencer,Branded Storytellers FB"
-thumbnail: https://www.lifewire.com/thmb/Io31dsLA5x59AerOl1OVgtsSCrU=/540x405/filters:no_upscale():max_bytes(150000):strip_icc()/JasonBourne2-578fd3ac3df78c09e9741172.jpg
+thumbnail: https://thmb.techidaily.com/dccb34317888d85bf5b03242f6ff077822b2720dd93141b57f6f0f2fbe555fd1.jpg
 ---
 
 ## Becoming a Social Media Storyteller on Facebook

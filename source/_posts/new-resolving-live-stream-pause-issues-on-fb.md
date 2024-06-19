@@ -1,7 +1,7 @@
 ---
 title: "[New] Resolving Live Stream Pause Issues on FB"
-date: 2024-05-20T19:57:57.833Z
-updated: 2024-05-21T19:57:57.833Z
+date: 2024-06-09T12:26:35.432Z
+updated: 2024-06-10T12:26:35.432Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] Resolving Live Stream Pause Issues on FB"
 excerpt: "This Article Describes [New] Resolving Live Stream Pause Issues on FB"
 keywords: "Fb Live Fix,Stream Resume,Facebook Pause Stop,Live Fix FB,Resolve Stream Halt,Unpause Video Fb,Mend Live Stoppage"
-thumbnail: https://www.lifewire.com/thmb/dyswmYNpv0N5nDaCdhxQ7fAUz7s=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Taylor-Dent-candid-02cfe5d4fc174cd585cfc43cb77b48f7.jpg
+thumbnail: https://thmb.techidaily.com/144ba6c2b445ab473f613c1a9b64b4025f153684504ed90b87c56b4f36e8f03d.jpg
 ---
 
 ## Resolving Live Stream Pause Issues on FB

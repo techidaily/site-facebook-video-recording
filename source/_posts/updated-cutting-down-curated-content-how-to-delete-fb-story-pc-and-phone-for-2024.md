@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Cutting Down Curated Content  How to Delete FB Story (PC & Phone) for 2024\""
-date: 2024-05-20T19:59:28.584Z
-updated: 2024-05-21T19:59:28.584Z
+date: 2024-06-09T12:26:27.400Z
+updated: 2024-06-10T12:26:27.400Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] Cutting Down Curated Content: How to Delete FB Story (PC & Phone) for 2024\""
 excerpt: "\"This Article Describes [Updated] Cutting Down Curated Content: How to Delete FB Story (PC & Phone) for 2024\""
 keywords: "Delete Facebook Story PC,Remove FB Stories Mobile,Deleting Curated FB Content,Removing Customized FB Feed,Erase Facebook Live PC/Phone,Unfollow FB's Automated Snippets,Cleanse Personalized FB Shows"
-thumbnail: https://www.lifewire.com/thmb/mFm3wLQN2qU0xXhu8ii-4Ee59Nc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/ImagefromiOS1-d1c97c13048a4fc88627e315957d98d8.jpg
+thumbnail: https://thmb.techidaily.com/f14d93751e019bfea4a977ac2ac9bc564b77ea9b7c9b8b27159acb247e2b395b.jpg
 ---
 
 ## Cutting Down Curated Content: How to Delete FB Story (PC & Phone)

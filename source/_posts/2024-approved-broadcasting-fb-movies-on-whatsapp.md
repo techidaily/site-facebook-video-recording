@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Broadcasting FB Movies on WhatsApp\""
-date: 2024-05-20T19:58:54.614Z
-updated: 2024-05-21T19:58:54.614Z
+date: 2024-06-09T12:26:28.124Z
+updated: 2024-06-10T12:26:28.124Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Broadcasting FB Movies on WhatsApp\""
 excerpt: "\"This Article Describes 2024 Approved: Broadcasting FB Movies on WhatsApp\""
 keywords: "FB Movie Broadcasting,WhatsApp Media Play,Facebook Video Sharing,WhatsApp Film Stream,FB Movie Direct Send,Live FB Movies Transfer,WhatsApp FB Movie Share"
-thumbnail: https://www.lifewire.com/thmb/5bAauqi_bb7ys9ioKuCAGL8Irhw=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Screen-Shot-2016-08-30-at-10.48.32-PM-57c670023df78cc16e8d0bfa.png
+thumbnail: https://thmb.techidaily.com/0275b65ec50c26c096fbd58891ad5416742f7595ba3ecd2f30cf7442df5bd214.png
 ---
 
 ## Broadcasting FB Movies on WhatsApp

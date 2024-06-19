@@ -1,7 +1,7 @@
 ---
 title: "[New] Celebrating the Best Ten Music Video Lives"
-date: 2024-05-20T19:40:20.157Z
-updated: 2024-05-21T19:40:20.157Z
+date: 2024-06-09T12:26:30.639Z
+updated: 2024-06-10T12:26:30.639Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] Celebrating the Best Ten Music Video Lives"
 excerpt: "This Article Describes [New] Celebrating the Best Ten Music Video Lives"
 keywords: "Top Music Videos Life,Greatest Music Video Hits,Iconic Music Video Moments,Memorable Music Video Years,Favorite Music Video Shows,Best Music Video Chronicles,Ultimate Music Video History"
-thumbnail: https://www.lifewire.com/thmb/EVZ4ZqbJ0Qw7Ukb_4E0ULLesBrY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/reverse-tether-142309616-resized-56a62b765f9b58b7d0e045a4.jpg
+thumbnail: https://thmb.techidaily.com/5f63ba1e3593ebd7d73d1c72fb68eace0cd63a5c8a537d585a504e6de4ee75de.jpg
 ---
 
 ## Celebrating the Best Ten Music Video Lives

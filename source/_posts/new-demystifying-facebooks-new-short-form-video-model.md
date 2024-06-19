@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Demystifying Facebook's New Short-Form Video Model\""
-date: 2024-05-20T19:07:12.359Z
-updated: 2024-05-21T19:07:12.359Z
+date: 2024-06-09T12:26:33.934Z
+updated: 2024-06-10T12:26:33.934Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Demystifying Facebook's New Short-Form Video Model\""
 excerpt: "\"This Article Describes [New] Demystifying Facebook's New Short-Form Video Model\""
 keywords: "FB Video Trends,Social Media Shifts,Content Creation Guide,Platform Evolution,Streaming Service Innovations,Engaging Short Videos,Algorithmic Updates Impact"
-thumbnail: https://www.lifewire.com/thmb/e91Og3Zn-sMosAtMZ6uJlw5wXLo=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/001-Visual-voicemail-3d8aec660545471fbe131dc8ddc16535.jpg
+thumbnail: https://thmb.techidaily.com/286866a306a63ee3881a3e82bbbdfd6a5621a0735c9f349a630ef1e39c65837d.jpg
 ---
 
 ## Demystifying Facebook's New Short-Form Video Model

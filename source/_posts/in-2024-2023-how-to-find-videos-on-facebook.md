@@ -1,7 +1,7 @@
 ---
 title: "In 2024, 2023 | How to Find Videos on Facebook?"
-date: 2024-05-20T19:24:07.359Z
-updated: 2024-05-21T19:24:07.359Z
+date: 2024-06-09T12:26:27.254Z
+updated: 2024-06-10T12:26:27.254Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes In 2024, 2023 | How to Find Videos on Facebook?"
 excerpt: "This Article Describes In 2024, 2023 | How to Find Videos on Facebook?"
 keywords: "Facebook Video Search Tips,Finding FB Videos Guide,Locate FB Media Quickly,Accessing FB Vids Easily,Find Social Media Videos,YouTube to Facebook Conversion,Navigating Facebook Videos"
-thumbnail: https://www.lifewire.com/thmb/d0mGdrqxpsdprUs6Uuc2MTsWHRg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/transportation--two-car-accident--wreck-with-people-still-inside-red-vehicle--173056956-5a39d819beba33003715b346.jpg
+thumbnail: https://thmb.techidaily.com/8f7f92c4fc16a81d47d86f2a37a2e3afe657d72abf04f0d91c9f6ae155f73630.jpg
 ---
 
 ## 2023 | How to Find Videos on Facebook?

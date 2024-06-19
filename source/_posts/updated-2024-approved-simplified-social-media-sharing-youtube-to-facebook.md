@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Simplified Social Media Sharing  YouTube to Facebook\""
-date: 2024-05-20T18:53:30.184Z
-updated: 2024-05-21T18:53:30.184Z
+date: 2024-06-09T12:26:35.394Z
+updated: 2024-06-10T12:26:35.394Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] 2024 Approved: Simplified Social Media Sharing: YouTube to Facebook\""
 excerpt: "\"This Article Describes [Updated] 2024 Approved: Simplified Social Media Sharing: YouTube to Facebook\""
 keywords: "\"Social Share Tool,YouTube Posting,Facebook Linking,Media Sharing Simp,Video-to-Facebook,StreamSync Upload,Platform Crosspost\""
-thumbnail: https://www.lifewire.com/thmb/EJGqNuL4vQUE0pWKInuJg5UQx10=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/KeyVisual3-5d7fc9bbaad24dd0a7d7f2468b890e34.jpg
+thumbnail: https://thmb.techidaily.com/a0065ec58e14aa7a294fd33338e90d4d15fa577ac0b3dd7d4dd7c6264c50f140.jpg
 ---
 
 ## Simplified Social Media Sharing: YouTube to Facebook

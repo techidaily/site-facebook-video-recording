@@ -1,7 +1,7 @@
 ---
 title: "[New] Facebook Videos; Vertical or Horizontal?"
-date: 2024-05-20T19:56:29.953Z
-updated: 2024-05-21T19:56:29.953Z
+date: 2024-06-09T12:26:38.166Z
+updated: 2024-06-10T12:26:38.166Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] Facebook Videos; Vertical or Horizontal?"
 excerpt: "This Article Describes [New] Facebook Videos; Vertical or Horizontal?"
 keywords: "\"FB Video Orientation,Video Playback: Facebook,Horiz/Vert Video Facebook,Social Media Video Alignment,Facebook Video Format,Optimal Video Width FB,Choose Video Aspect FB\""
-thumbnail: https://www.lifewire.com/thmb/Pk_0jlTa9FMG_mHOzn4DAXZNakE=/540x405/filters:no_upscale():max_bytes(150000):strip_icc()/IMG_0832-d94757c52efd405eadbf624087e29782.jpeg
+thumbnail: https://thmb.techidaily.com/6ed52b8d826a5b6701c9229d81239cb21a1a6ea95480871656b8b252c90f9890.jpeg
 ---
 
 ## Facebook Videos; Vertical or Horizontal?

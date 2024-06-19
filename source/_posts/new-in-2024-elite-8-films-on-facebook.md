@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Elite 8 Films on Facebook"
-date: 2024-05-20T18:41:39.715Z
-updated: 2024-05-21T18:41:39.715Z
+date: 2024-06-09T12:26:33.094Z
+updated: 2024-06-10T12:26:33.094Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] In 2024, Elite 8 Films on Facebook"
 excerpt: "This Article Describes [New] In 2024, Elite 8 Films on Facebook"
 keywords: "Elite8 Film FB,Eight Film League,Elite Film Series,Film Leagues Finals,FB Film Championships,Elite Film Showdown,Top Films Elite8"
-thumbnail: https://www.lifewire.com/thmb/Cybxf6SmAvud6HS9HlbwApzcOmg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/discordparentalcontrols-3cd5138e8a9341978f0bcb164fcb7d62.jpg
+thumbnail: https://thmb.techidaily.com/92d935200679b107d6e949886541d1fff9656f8b1ef1aeadb85afda988825dc9.jpg
 ---
 
 ## Elite 8 Films on Facebook

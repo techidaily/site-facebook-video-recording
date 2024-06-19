@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Discover the Top 6 FB Lite Video Export Apps of 2023"
-date: 2024-05-20T19:52:45.065Z
-updated: 2024-05-21T19:52:45.065Z
+date: 2024-06-09T12:26:35.919Z
+updated: 2024-06-10T12:26:35.919Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] Discover the Top 6 FB Lite Video Export Apps of 2023"
 excerpt: "This Article Describes [Updated] Discover the Top 6 FB Lite Video Export Apps of 2023"
 keywords: "FB Lite Video Export,Top Video Exporters,Video Export Tools,2023 Lite Video Apps,Social Media Exports,FB Streaming Utilities,Optimal Lite Video Exporter"
-thumbnail: https://www.lifewire.com/thmb/QazpgtYzmxhrKIqBVhFkiVTJzDU=/300x200/filters:no_upscale():max_bytes(150000):strip_icc()/NetgearEX3700Wi-FiRangeExtender-ce6ea0cfc4594cd98752d9cfdf86c0d6.jpg
+thumbnail: https://thmb.techidaily.com/b855ebe51b5189358ef7af65d06591503136d0471619c6e6540592a14f8eb424.jpg
 ---
 
 ## Discover the Top 6 FB Lite Video Export Apps of 2023

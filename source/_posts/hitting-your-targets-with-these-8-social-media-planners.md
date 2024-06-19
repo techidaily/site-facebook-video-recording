@@ -1,7 +1,7 @@
 ---
 title: "Hitting Your Targets with These 8 Social Media Planners"
-date: 2024-05-20T19:10:39.263Z
-updated: 2024-05-21T19:10:39.263Z
+date: 2024-06-09T12:26:29.959Z
+updated: 2024-06-10T12:26:29.959Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes Hitting Your Targets with These 8 Social Media Planners"
 excerpt: "This Article Describes Hitting Your Targets with These 8 Social Media Planners"
 keywords: "Social Media Strategies,Content Creation Tips,Engagement Boosting Techniques,Advertising ROI Analysis,User Growth Hacks,Community Building Methods,Brand Awareness Planning"
-thumbnail: https://www.lifewire.com/thmb/eyPEW_zh-5Xw0J7hoJ-kChdCQ1M=/360x240/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/001_how-to-transfer-data-from-ps4-to-ps5-3392eb400af3482fabad65cabb2a1a91.jpg
+thumbnail: https://thmb.techidaily.com/4413b601ad195439beff9581253d1c8f619535fc721b43b4dca709d022c56e41.jpg
 ---
 
 ## Hitting Your Targets with These 8 Social Media Planners
