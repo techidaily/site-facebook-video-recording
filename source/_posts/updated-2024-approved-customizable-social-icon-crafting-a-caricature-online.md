@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Customizable Social Icon  Crafting a Caricature Online\""
-date: 2024-05-20T19:31:27.830Z
-updated: 2024-05-21T19:31:27.830Z
+date: 2024-06-26T02:29:15.300Z
+updated: 2024-06-27T02:29:15.300Z
 tags:
   - ai video
   - ai facebook
@@ -12,14 +12,12 @@ categories:
 description: "\"This Article Describes [Updated] 2024 Approved: Customizable Social Icon: Crafting a Caricature Online\""
 excerpt: "\"This Article Describes [Updated] 2024 Approved: Customizable Social Icon: Crafting a Caricature Online\""
 keywords: "\"Custom Social Icons,Caricature Designs,Personalized Logos,Digital Portrait Art,Icon Creation,Online Graphic Design,User-Custom Images\""
-thumbnail: https://www.lifewire.com/thmb/2gHaaXQ_kdz4PXOihSc2PV3WzwI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Delete-Photos-iOS-1e8f0abbb73442a0b00d242ff0bbc79a.jpg
+thumbnail: https://thmb.techidaily.com/545eb30532b146292d910492a3de0882f942d02de7b5ef10d79d0e3f377f7561.jpg
 ---
 
 ## Customizable Social Icon: Crafting a Caricature Online
 
-# Facebook Avatar: Create Your Own Cartoonish Character
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# Facebook Avatar: Create Your Own Cartoonish Character ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 

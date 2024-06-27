@@ -1,7 +1,7 @@
 ---
 title: "Mastery in Muting Facebook Videos (Mobile/Laptop)"
-date: 2024-05-20T18:44:33.680Z
-updated: 2024-05-21T18:44:33.680Z
+date: 2024-06-26T02:29:15.113Z
+updated: 2024-06-27T02:29:15.113Z
 tags:
   - ai video
   - ai facebook
@@ -96,11 +96,11 @@ You can make your stories visible to your friends, customize the viewers, or kee
 
 **Step 1:** Go to your Facebook home page and click on Your Story. Upload a story, but please click on the privacy option before clicking on the share option.
 
-![  Facebook Story privacy option](https://images.wondershare.com/filmora/article-images/facebook-story-privacy-option.jpg)
+![Facebook Story privacy option](https://images.wondershare.com/filmora/article-images/facebook-story-privacy-option.jpg)
 
 **Step 2:** Now, the privacy setting page will let you choose from- public, friends, and custom. You can hide your story from a few people as well. Choose the one that meets your requirement. Then, go back and share the story.
 
-![  Facebook Story privacy  ](https://images.wondershare.com/filmora/article-images/facebook-story-privacy.jpg)
+![Facebook Story privacy](https://images.wondershare.com/filmora/article-images/facebook-story-privacy.jpg)
 
 ## Part 5: How to Hide Facebook Story from Specific People?
 
@@ -108,7 +108,7 @@ Facebook has made sharing stories easy because of the multiple features it offer
 
 **Step 1:** Launch your Facebook account, and then upload something on your story and set the privacy to Friends. After that, you need to click on the Hide Story From option.
 
-![  Facebook Story hide from specific person  ](https://images.wondershare.com/filmora/article-images/hide-facebook-story-from-specific-people.jpg)
+![Facebook Story hide from specific person](https://images.wondershare.com/filmora/article-images/hide-facebook-story-from-specific-people.jpg)
 
 **Step 2:** You will be shown the complete list of people you are connected with on Facebook. Select the people you don't want to share your stories with, and then click on done.
 
@@ -118,7 +118,7 @@ If you don't want to see someone else’s story, then you can mute their stories
 
 Visit the Stories section, and then tap on a story of a person that you don't want to see. There will be three dots on the top right, select it and then click on the Mute option, and the specific person's stories will be muted.
 
-![ delete other's Facebook Story  ](https://images.wondershare.com/filmora/article-images/delete-people-facebook-story.jpg)
+![delete other's Facebook Story](https://images.wondershare.com/filmora/article-images/delete-people-facebook-story.jpg)
 
 **Conclusion**
 
@@ -207,11 +207,11 @@ You can make your stories visible to your friends, customize the viewers, or kee
 
 **Step 1:** Go to your Facebook home page and click on Your Story. Upload a story, but please click on the privacy option before clicking on the share option.
 
-![  Facebook Story privacy option](https://images.wondershare.com/filmora/article-images/facebook-story-privacy-option.jpg)
+![Facebook Story privacy option](https://images.wondershare.com/filmora/article-images/facebook-story-privacy-option.jpg)
 
 **Step 2:** Now, the privacy setting page will let you choose from- public, friends, and custom. You can hide your story from a few people as well. Choose the one that meets your requirement. Then, go back and share the story.
 
-![  Facebook Story privacy  ](https://images.wondershare.com/filmora/article-images/facebook-story-privacy.jpg)
+![Facebook Story privacy](https://images.wondershare.com/filmora/article-images/facebook-story-privacy.jpg)
 
 ## Part 5: How to Hide Facebook Story from Specific People?
 
@@ -219,7 +219,7 @@ Facebook has made sharing stories easy because of the multiple features it offer
 
 **Step 1:** Launch your Facebook account, and then upload something on your story and set the privacy to Friends. After that, you need to click on the Hide Story From option.
 
-![  Facebook Story hide from specific person  ](https://images.wondershare.com/filmora/article-images/hide-facebook-story-from-specific-people.jpg)
+![Facebook Story hide from specific person](https://images.wondershare.com/filmora/article-images/hide-facebook-story-from-specific-people.jpg)
 
 **Step 2:** You will be shown the complete list of people you are connected with on Facebook. Select the people you don't want to share your stories with, and then click on done.
 
@@ -229,7 +229,7 @@ If you don't want to see someone else’s story, then you can mute their stories
 
 Visit the Stories section, and then tap on a story of a person that you don't want to see. There will be three dots on the top right, select it and then click on the Mute option, and the specific person's stories will be muted.
 
-![ delete other's Facebook Story  ](https://images.wondershare.com/filmora/article-images/delete-people-facebook-story.jpg)
+![delete other's Facebook Story](https://images.wondershare.com/filmora/article-images/delete-people-facebook-story.jpg)
 
 **Conclusion**
 
@@ -318,11 +318,11 @@ You can make your stories visible to your friends, customize the viewers, or kee
 
 **Step 1:** Go to your Facebook home page and click on Your Story. Upload a story, but please click on the privacy option before clicking on the share option.
 
-![  Facebook Story privacy option](https://images.wondershare.com/filmora/article-images/facebook-story-privacy-option.jpg)
+![Facebook Story privacy option](https://images.wondershare.com/filmora/article-images/facebook-story-privacy-option.jpg)
 
 **Step 2:** Now, the privacy setting page will let you choose from- public, friends, and custom. You can hide your story from a few people as well. Choose the one that meets your requirement. Then, go back and share the story.
 
-![  Facebook Story privacy  ](https://images.wondershare.com/filmora/article-images/facebook-story-privacy.jpg)
+![Facebook Story privacy](https://images.wondershare.com/filmora/article-images/facebook-story-privacy.jpg)
 
 ## Part 5: How to Hide Facebook Story from Specific People?
 
@@ -330,7 +330,7 @@ Facebook has made sharing stories easy because of the multiple features it offer
 
 **Step 1:** Launch your Facebook account, and then upload something on your story and set the privacy to Friends. After that, you need to click on the Hide Story From option.
 
-![  Facebook Story hide from specific person  ](https://images.wondershare.com/filmora/article-images/hide-facebook-story-from-specific-people.jpg)
+![Facebook Story hide from specific person](https://images.wondershare.com/filmora/article-images/hide-facebook-story-from-specific-people.jpg)
 
 **Step 2:** You will be shown the complete list of people you are connected with on Facebook. Select the people you don't want to share your stories with, and then click on done.
 
@@ -340,7 +340,7 @@ If you don't want to see someone else’s story, then you can mute their stories
 
 Visit the Stories section, and then tap on a story of a person that you don't want to see. There will be three dots on the top right, select it and then click on the Mute option, and the specific person's stories will be muted.
 
-![ delete other's Facebook Story  ](https://images.wondershare.com/filmora/article-images/delete-people-facebook-story.jpg)
+![delete other's Facebook Story](https://images.wondershare.com/filmora/article-images/delete-people-facebook-story.jpg)
 
 **Conclusion**
 
@@ -429,11 +429,11 @@ You can make your stories visible to your friends, customize the viewers, or kee
 
 **Step 1:** Go to your Facebook home page and click on Your Story. Upload a story, but please click on the privacy option before clicking on the share option.
 
-![  Facebook Story privacy option](https://images.wondershare.com/filmora/article-images/facebook-story-privacy-option.jpg)
+![Facebook Story privacy option](https://images.wondershare.com/filmora/article-images/facebook-story-privacy-option.jpg)
 
 **Step 2:** Now, the privacy setting page will let you choose from- public, friends, and custom. You can hide your story from a few people as well. Choose the one that meets your requirement. Then, go back and share the story.
 
-![  Facebook Story privacy  ](https://images.wondershare.com/filmora/article-images/facebook-story-privacy.jpg)
+![Facebook Story privacy](https://images.wondershare.com/filmora/article-images/facebook-story-privacy.jpg)
 
 ## Part 5: How to Hide Facebook Story from Specific People?
 
@@ -441,7 +441,7 @@ Facebook has made sharing stories easy because of the multiple features it offer
 
 **Step 1:** Launch your Facebook account, and then upload something on your story and set the privacy to Friends. After that, you need to click on the Hide Story From option.
 
-![  Facebook Story hide from specific person  ](https://images.wondershare.com/filmora/article-images/hide-facebook-story-from-specific-people.jpg)
+![Facebook Story hide from specific person](https://images.wondershare.com/filmora/article-images/hide-facebook-story-from-specific-people.jpg)
 
 **Step 2:** You will be shown the complete list of people you are connected with on Facebook. Select the people you don't want to share your stories with, and then click on done.
 
@@ -451,7 +451,7 @@ If you don't want to see someone else’s story, then you can mute their stories
 
 Visit the Stories section, and then tap on a story of a person that you don't want to see. There will be three dots on the top right, select it and then click on the Mute option, and the specific person's stories will be muted.
 
-![ delete other's Facebook Story  ](https://images.wondershare.com/filmora/article-images/delete-people-facebook-story.jpg)
+![delete other's Facebook Story](https://images.wondershare.com/filmora/article-images/delete-people-facebook-story.jpg)
 
 **Conclusion**
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Direct Tweet Transfers to Facebook Feed\""
-date: 2024-05-20T19:26:55.915Z
-updated: 2024-05-21T19:26:55.915Z
+date: 2024-06-26T02:29:27.391Z
+updated: 2024-06-27T02:29:27.391Z
 tags:
   - ai video
   - ai facebook
@@ -12,14 +12,12 @@ categories:
 description: "\"This Article Describes [New] 2024 Approved: Direct Tweet Transfers to Facebook Feed\""
 excerpt: "\"This Article Describes [New] 2024 Approved: Direct Tweet Transfers to Facebook Feed\""
 keywords: "Twitter Direct Send FB,Instant FB Tweet Transfer,Tweet Payments to FB,Immediate FB Tweet Share,Quick Tweet on Facebook,Direct Tweet Upload FB,Instant Tweet Broadcast FB"
-thumbnail: https://www.lifewire.com/thmb/jEvS4hCjQpYChJrL63gqB32mNQ8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/185267882-56a0e1e03df78cafdaa603c6.jpg
+thumbnail: https://thmb.techidaily.com/5d0cffeef3a457f6d646442a32f08e24ee51602aa778ea2d41cdc52aa7fdbdaa.jpg
 ---
 
 ## Direct Tweet Transfers to Facebook Feed
 
-# How to Post Tweets on Facebook
-
-![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+# How to Post Tweets on Facebook ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
 

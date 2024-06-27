@@ -1,7 +1,7 @@
 ---
 title: "Set Up a Dynamic FB Cover"
-date: 2024-05-20T18:36:12.377Z
-updated: 2024-05-21T18:36:12.377Z
+date: 2024-06-26T02:29:16.011Z
+updated: 2024-06-27T02:29:16.011Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes Set Up a Dynamic FB Cover"
 excerpt: "This Article Describes Set Up a Dynamic FB Cover"
 keywords: "FB Cover Setup Guide,Dynamic Facebook Cover,Create Engaging FB Cover,FB Profile Enhancement,Customized FB Cover Design,Update Facebook Cover Image,Interactive FB Covers"
-thumbnail: https://www.lifewire.com/thmb/i2KcWj6SqjUqYwH-JYQMGGocxXI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Greentechhomeconcept-182b5c8902524865b7461097333c9046.jpg
+thumbnail: https://thmb.techidaily.com/7077ddd1132ef7b304c8a4c6d57fc2c4c3da823c4ca2efa45fb7b2172157b200.jpg
 ---
 
 ## Set Up a Dynamic FB Cover

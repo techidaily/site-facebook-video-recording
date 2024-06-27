@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  The ABCs of Facebook Cover Video Production\""
-date: 2024-05-20T19:47:54.976Z
-updated: 2024-05-21T19:47:54.976Z
+date: 2024-06-26T02:29:26.263Z
+updated: 2024-06-27T02:29:26.263Z
 tags:
   - ai video
   - ai facebook
@@ -12,14 +12,12 @@ categories:
 description: "\"This Article Describes 2024 Approved: The ABCs of Facebook Cover Video Production\""
 excerpt: "\"This Article Describes 2024 Approved: The ABCs of Facebook Cover Video Production\""
 keywords: "FB Cover Video Basics,Create FB Video Covers,Film FB Cover Content,Crafting FB Cover Videos,Master FB Video Covers,Producing FB Video Covers,FB Video Cover Guide"
-thumbnail: https://www.lifewire.com/thmb/m-K3IzE697zmvCh3fDv5AHkpXLE=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/ipad-parent-kids-57a274ec3df78c32764996b7.jpg
+thumbnail: https://thmb.techidaily.com/d44947af2d23263a61b2bb19233d3717a7fd178394378301c673d9cd094e466a.jpg
 ---
 
 ## The ABCs of Facebook Cover Video Production
 
-# Facebook Cover Video: All You Need to Know
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# Facebook Cover Video: All You Need to Know ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 

@@ -1,7 +1,7 @@
 ---
 title: "Unveiling the Basics of Facebook Membership Creation"
-date: 2024-05-20T20:02:35.666Z
-updated: 2024-05-21T20:02:35.666Z
+date: 2024-06-26T02:29:29.561Z
+updated: 2024-06-27T02:29:29.561Z
 tags:
   - ai video
   - ai facebook
@@ -12,14 +12,12 @@ categories:
 description: "This Article Describes Unveiling the Basics of Facebook Membership Creation"
 excerpt: "This Article Describes Unveiling the Basics of Facebook Membership Creation"
 keywords: "Create FB Account,Join Facebook,Sign Up for Facebook,Make a Facebook Profile,Start on Facebook,Register to Facebook,Access Facebook"
-thumbnail: https://www.lifewire.com/thmb/4XBKBeuRAARBy1u3vDVh6ycEpCU=/300x200/filters:no_upscale():max_bytes(150000):strip_icc()/PolkAudioRC80i-594adc4a3df78cae81a59280.jpg
+thumbnail: https://thmb.techidaily.com/1b74b748e6b2e328a07a7b57a377bfde7d1cf69849bc4b8a8c3c123bbebb43d1.jpg
 ---
 
 ## Unveiling the Basics of Facebook Membership Creation
 
-# How to Create a Facebook Account
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# How to Create a Facebook Account ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 

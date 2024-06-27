@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Types of Facebook Video Aspect Ratios\""
-date: 2024-05-20T18:28:22.423Z
-updated: 2024-05-21T18:28:22.423Z
+date: 2024-06-26T02:29:13.501Z
+updated: 2024-06-27T02:29:13.501Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] 2024 Approved: Types of Facebook Video Aspect Ratios\""
 excerpt: "\"This Article Describes [New] 2024 Approved: Types of Facebook Video Aspect Ratios\""
 keywords: "FB Video Ratio Types,Social Media Video Sizes,Video Aspects on Facebook,Facebook Video Frame Dimensions,Common FB Video Shapes,Video Width/Height Ratios Fb,Standard FB Video Formats"
-thumbnail: https://www.lifewire.com/thmb/jVj3zTPzlSk-TEYtLIyBRT63fA4=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-535970955-5b0ef2cca474be003791023e.jpg
+thumbnail: https://thmb.techidaily.com/a6017269d4c04c5e1e1b5dd34c08e1f92a0a41c1ec409bdbe7a0807e99cdc6f4.jpg
 ---
 
 ## Types of Facebook Video Aspect Ratios
@@ -25,7 +25,7 @@ Therefore, it is essential that video quality complement with platform dimension
 
 #### In this article
 
-01 [Types of Facebook Video Aspect Ratios ](#Part 1)
+01 [Types of Facebook Video Aspect Ratios](#Part 1)
 
 02 [What is the Best Video Size for Facebook?](#Part 2)
 
@@ -37,9 +37,7 @@ When you talk about videos, Facebook always recommends to upload videos with squ
 
 Facebook also suggests you upload short videos (15 seconds or less) and design videos that work both without and with sound. It would be best if you enable the captions. For the best results, choose the following specifications for videos:
 
-### 1\. Facebook Feed Videos
-
-![Facebook Feed Videos](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-1.jpg)
+### 1\. Facebook Feed Videos ![Facebook Feed Videos](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-1.jpg)
 
 **●** Minimum Width: 120 px
 
@@ -61,9 +59,7 @@ For video ads, Facebook suggests you to upload the video with the highest resolu
 
 Use MP4, MOV, or GIF format, with a maximum 4GB file and 241 min length.
 
-### 2\. Facebook Article Videos
-
-![Facebook Article Videos](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-3.jpg)
+### 2\. Facebook Article Videos ![Facebook Article Videos](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-3.jpg)
 
 **●** Resolution: at least 1080 x 1080 px
 
@@ -75,9 +71,7 @@ Use MP4, MOV, or GIF format, with a maximum 4GB file and 241 min length.
 
 **●** Maximum Video Length: 240 minutes
 
-### 3\. Facebook In-Stream Videos
-
-![Facebook In-Stream Videos](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-4.jpg)
+### 3\. Facebook In-Stream Videos ![Facebook In-Stream Videos](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-4.jpg)
 
 **●** Resolution: at least 1080 x 1080 px
 
@@ -89,9 +83,7 @@ Use MP4, MOV, or GIF format, with a maximum 4GB file and 241 min length.
 
 **●** Maximum Video Length: 10 minutes (limit varies based on objective)
 
-### 4\. Facebook Marketplace Video Ads
-
-![Facebook Marketplace Video Ads](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-5.jpg)
+### 4\. Facebook Marketplace Video Ads ![Facebook Marketplace Video Ads](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-5.jpg)
 
 **●** Recommended: Highest resolution available (at least 1080 x 1080 px)
 
@@ -103,9 +95,7 @@ Use MP4, MOV, or GIF format, with a maximum 4GB file and 241 min length.
 
 **●** Maximum Video Length: 240 minutes
 
-### 5\. Facebook Stories Ads
-
-![Facebook Stories Ads](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-6.jpg)
+### 5\. Facebook Stories Ads ![Facebook Stories Ads](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-6.jpg)
 
 **●** Recommended: Highest resolution available (at least 1080 x 1080 px)
 
@@ -115,9 +105,7 @@ Use MP4, MOV, or GIF format, with a maximum 4GB file and 241 min length.
 
 **●** Maximum Video Length: 2 minutes
 
-### 6\. Facebook Video Feeds
-
-![Facebook Video Feeds](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-7.jpg)
+### 6\. Facebook Video Feeds ![Facebook Video Feeds](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-7.jpg)
 
 Facebook video feeds and in-stream videos are different. Also, there is a difference between video feeds and newsfeed videos. When you click a video in your feed, it will open up in a video player with some other video feeds.
 
@@ -173,9 +161,7 @@ Then, the color matching feature enables you to copy the color settings of one v
 
 #### Wondershare Filmora
 
-Get started easily with Filmora's powerful performance, intuitive interface, and countless effects!
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More about Filmora>](https://tools.techidaily.com/wondershare/filmora/download/)
+Get started easily with Filmora's powerful performance, intuitive interface, and countless effects ![Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More about Filmora>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![download](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
@@ -185,9 +171,7 @@ Some other features are:
 
 **●** Color grading
 
-**●** Upload videos directly on social media by Filmora
-
-![Upload on Social Media ](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-10.jpg)
+**●** Upload videos directly on social media by Filmora ![Upload on Social Media](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-10.jpg)
 
 **●** Experience fast editing
 
@@ -207,9 +191,7 @@ Choose the ratio that you want by simply clicking on it.
 
 #### Wondershare Filmora
 
-Get started easily with Filmora's powerful performance, intuitive interface, and countless effects!
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More about Filmora>](https://tools.techidaily.com/wondershare/filmora/download/)
+Get started easily with Filmora's powerful performance, intuitive interface, and countless effects ![Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More about Filmora>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![download](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
@@ -259,7 +241,7 @@ Once you select the aspect ratio, click on the "Analyze" button. Filmora will Au
 
 After completing adjustment or reframing, click on the "Export" button to save your video. Change the name of the video and select the location where you want to save the video. Now, click on the "Export" again to save.
 
-![Click Export Button ](https://images.wondershare.com/filmora/article-images/auto-reframe-save-video.jpg)
+![Click Export Button](https://images.wondershare.com/filmora/article-images/auto-reframe-save-video.jpg)
 
 #### Method 5: Adjust Aspect Ratio at Exporting
 
@@ -267,9 +249,7 @@ You can save the clip to your system or smartphones, depending on your requireme
 
 ![Upload or Burn by Clicking on Export Button](https://images.wondershare.com/filmora/article-images/output-format.jpg)
 
-### 2\. Animaker
-
-![Animaker](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-11.jpg)
+### 2\. Animaker ![Animaker](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-11.jpg)
 
 Animaker video resizer is an easy and reliable tool that quickly changes or resizes the video aspect ratio. Moreover, it lets you download some watermark-free videos. It helps you to make a video that perfectly fit the required dimensions.
 
@@ -277,9 +257,7 @@ Animaker’s video editing suite offers tools that you can use to edit videos on
 
 This software has been created explicitly for marketers, non-designers, or anyone who wants to edit social media or web videos.
 
-### 3\. VEED.IO
-
-![VEED.IO](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-12.jpg)
+### 3\. VEED.IO ![VEED.IO](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-12.jpg)
 
 VEED is a great software that offers subtitling, effect/text encoding, editing, and other features. This tool allows you to use some incredible video effects, brightness, color grading, rotate your videos, exposure, and more.
 
@@ -299,9 +277,7 @@ When you talk about videos, Facebook always recommends to upload videos with squ
 
 Facebook also suggests you upload short videos (15 seconds or less) and design videos that work both without and with sound. It would be best if you enable the captions. For the best results, choose the following specifications for videos:
 
-### 1\. Facebook Feed Videos
-
-![Facebook Feed Videos](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-1.jpg)
+### 1\. Facebook Feed Videos ![Facebook Feed Videos](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-1.jpg)
 
 **●** Minimum Width: 120 px
 
@@ -323,9 +299,7 @@ For video ads, Facebook suggests you to upload the video with the highest resolu
 
 Use MP4, MOV, or GIF format, with a maximum 4GB file and 241 min length.
 
-### 2\. Facebook Article Videos
-
-![Facebook Article Videos](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-3.jpg)
+### 2\. Facebook Article Videos ![Facebook Article Videos](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-3.jpg)
 
 **●** Resolution: at least 1080 x 1080 px
 
@@ -337,9 +311,7 @@ Use MP4, MOV, or GIF format, with a maximum 4GB file and 241 min length.
 
 **●** Maximum Video Length: 240 minutes
 
-### 3\. Facebook In-Stream Videos
-
-![Facebook In-Stream Videos](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-4.jpg)
+### 3\. Facebook In-Stream Videos ![Facebook In-Stream Videos](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-4.jpg)
 
 **●** Resolution: at least 1080 x 1080 px
 
@@ -351,9 +323,7 @@ Use MP4, MOV, or GIF format, with a maximum 4GB file and 241 min length.
 
 **●** Maximum Video Length: 10 minutes (limit varies based on objective)
 
-### 4\. Facebook Marketplace Video Ads
-
-![Facebook Marketplace Video Ads](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-5.jpg)
+### 4\. Facebook Marketplace Video Ads ![Facebook Marketplace Video Ads](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-5.jpg)
 
 **●** Recommended: Highest resolution available (at least 1080 x 1080 px)
 
@@ -365,9 +335,7 @@ Use MP4, MOV, or GIF format, with a maximum 4GB file and 241 min length.
 
 **●** Maximum Video Length: 240 minutes
 
-### 5\. Facebook Stories Ads
-
-![Facebook Stories Ads](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-6.jpg)
+### 5\. Facebook Stories Ads ![Facebook Stories Ads](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-6.jpg)
 
 **●** Recommended: Highest resolution available (at least 1080 x 1080 px)
 
@@ -377,9 +345,7 @@ Use MP4, MOV, or GIF format, with a maximum 4GB file and 241 min length.
 
 **●** Maximum Video Length: 2 minutes
 
-### 6\. Facebook Video Feeds
-
-![Facebook Video Feeds](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-7.jpg)
+### 6\. Facebook Video Feeds ![Facebook Video Feeds](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-7.jpg)
 
 Facebook video feeds and in-stream videos are different. Also, there is a difference between video feeds and newsfeed videos. When you click a video in your feed, it will open up in a video player with some other video feeds.
 
@@ -435,9 +401,7 @@ Then, the color matching feature enables you to copy the color settings of one v
 
 #### Wondershare Filmora
 
-Get started easily with Filmora's powerful performance, intuitive interface, and countless effects!
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More about Filmora>](https://tools.techidaily.com/wondershare/filmora/download/)
+Get started easily with Filmora's powerful performance, intuitive interface, and countless effects ![Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More about Filmora>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![download](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
@@ -447,9 +411,7 @@ Some other features are:
 
 **●** Color grading
 
-**●** Upload videos directly on social media by Filmora
-
-![Upload on Social Media ](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-10.jpg)
+**●** Upload videos directly on social media by Filmora ![Upload on Social Media](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-10.jpg)
 
 **●** Experience fast editing
 
@@ -469,9 +431,7 @@ Choose the ratio that you want by simply clicking on it.
 
 #### Wondershare Filmora
 
-Get started easily with Filmora's powerful performance, intuitive interface, and countless effects!
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More about Filmora>](https://tools.techidaily.com/wondershare/filmora/download/)
+Get started easily with Filmora's powerful performance, intuitive interface, and countless effects ![Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More about Filmora>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![download](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
@@ -521,7 +481,7 @@ Once you select the aspect ratio, click on the "Analyze" button. Filmora will Au
 
 After completing adjustment or reframing, click on the "Export" button to save your video. Change the name of the video and select the location where you want to save the video. Now, click on the "Export" again to save.
 
-![Click Export Button ](https://images.wondershare.com/filmora/article-images/auto-reframe-save-video.jpg)
+![Click Export Button](https://images.wondershare.com/filmora/article-images/auto-reframe-save-video.jpg)
 
 #### Method 5: Adjust Aspect Ratio at Exporting
 
@@ -529,9 +489,7 @@ You can save the clip to your system or smartphones, depending on your requireme
 
 ![Upload or Burn by Clicking on Export Button](https://images.wondershare.com/filmora/article-images/output-format.jpg)
 
-### 2\. Animaker
-
-![Animaker](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-11.jpg)
+### 2\. Animaker ![Animaker](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-11.jpg)
 
 Animaker video resizer is an easy and reliable tool that quickly changes or resizes the video aspect ratio. Moreover, it lets you download some watermark-free videos. It helps you to make a video that perfectly fit the required dimensions.
 
@@ -539,9 +497,7 @@ Animaker’s video editing suite offers tools that you can use to edit videos on
 
 This software has been created explicitly for marketers, non-designers, or anyone who wants to edit social media or web videos.
 
-### 3\. VEED.IO
-
-![VEED.IO](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-12.jpg)
+### 3\. VEED.IO ![VEED.IO](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-12.jpg)
 
 VEED is a great software that offers subtitling, effect/text encoding, editing, and other features. This tool allows you to use some incredible video effects, brightness, color grading, rotate your videos, exposure, and more.
 
@@ -561,9 +517,7 @@ When you talk about videos, Facebook always recommends to upload videos with squ
 
 Facebook also suggests you upload short videos (15 seconds or less) and design videos that work both without and with sound. It would be best if you enable the captions. For the best results, choose the following specifications for videos:
 
-### 1\. Facebook Feed Videos
-
-![Facebook Feed Videos](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-1.jpg)
+### 1\. Facebook Feed Videos ![Facebook Feed Videos](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-1.jpg)
 
 **●** Minimum Width: 120 px
 
@@ -585,9 +539,7 @@ For video ads, Facebook suggests you to upload the video with the highest resolu
 
 Use MP4, MOV, or GIF format, with a maximum 4GB file and 241 min length.
 
-### 2\. Facebook Article Videos
-
-![Facebook Article Videos](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-3.jpg)
+### 2\. Facebook Article Videos ![Facebook Article Videos](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-3.jpg)
 
 **●** Resolution: at least 1080 x 1080 px
 
@@ -599,9 +551,7 @@ Use MP4, MOV, or GIF format, with a maximum 4GB file and 241 min length.
 
 **●** Maximum Video Length: 240 minutes
 
-### 3\. Facebook In-Stream Videos
-
-![Facebook In-Stream Videos](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-4.jpg)
+### 3\. Facebook In-Stream Videos ![Facebook In-Stream Videos](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-4.jpg)
 
 **●** Resolution: at least 1080 x 1080 px
 
@@ -613,9 +563,7 @@ Use MP4, MOV, or GIF format, with a maximum 4GB file and 241 min length.
 
 **●** Maximum Video Length: 10 minutes (limit varies based on objective)
 
-### 4\. Facebook Marketplace Video Ads
-
-![Facebook Marketplace Video Ads](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-5.jpg)
+### 4\. Facebook Marketplace Video Ads ![Facebook Marketplace Video Ads](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-5.jpg)
 
 **●** Recommended: Highest resolution available (at least 1080 x 1080 px)
 
@@ -627,9 +575,7 @@ Use MP4, MOV, or GIF format, with a maximum 4GB file and 241 min length.
 
 **●** Maximum Video Length: 240 minutes
 
-### 5\. Facebook Stories Ads
-
-![Facebook Stories Ads](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-6.jpg)
+### 5\. Facebook Stories Ads ![Facebook Stories Ads](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-6.jpg)
 
 **●** Recommended: Highest resolution available (at least 1080 x 1080 px)
 
@@ -639,9 +585,7 @@ Use MP4, MOV, or GIF format, with a maximum 4GB file and 241 min length.
 
 **●** Maximum Video Length: 2 minutes
 
-### 6\. Facebook Video Feeds
-
-![Facebook Video Feeds](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-7.jpg)
+### 6\. Facebook Video Feeds ![Facebook Video Feeds](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-7.jpg)
 
 Facebook video feeds and in-stream videos are different. Also, there is a difference between video feeds and newsfeed videos. When you click a video in your feed, it will open up in a video player with some other video feeds.
 
@@ -697,9 +641,7 @@ Then, the color matching feature enables you to copy the color settings of one v
 
 #### Wondershare Filmora
 
-Get started easily with Filmora's powerful performance, intuitive interface, and countless effects!
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More about Filmora>](https://tools.techidaily.com/wondershare/filmora/download/)
+Get started easily with Filmora's powerful performance, intuitive interface, and countless effects ![Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More about Filmora>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![download](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
@@ -709,9 +651,7 @@ Some other features are:
 
 **●** Color grading
 
-**●** Upload videos directly on social media by Filmora
-
-![Upload on Social Media ](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-10.jpg)
+**●** Upload videos directly on social media by Filmora ![Upload on Social Media](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-10.jpg)
 
 **●** Experience fast editing
 
@@ -731,9 +671,7 @@ Choose the ratio that you want by simply clicking on it.
 
 #### Wondershare Filmora
 
-Get started easily with Filmora's powerful performance, intuitive interface, and countless effects!
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More about Filmora>](https://tools.techidaily.com/wondershare/filmora/download/)
+Get started easily with Filmora's powerful performance, intuitive interface, and countless effects ![Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More about Filmora>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![download](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
@@ -783,7 +721,7 @@ Once you select the aspect ratio, click on the "Analyze" button. Filmora will Au
 
 After completing adjustment or reframing, click on the "Export" button to save your video. Change the name of the video and select the location where you want to save the video. Now, click on the "Export" again to save.
 
-![Click Export Button ](https://images.wondershare.com/filmora/article-images/auto-reframe-save-video.jpg)
+![Click Export Button](https://images.wondershare.com/filmora/article-images/auto-reframe-save-video.jpg)
 
 #### Method 5: Adjust Aspect Ratio at Exporting
 
@@ -791,9 +729,7 @@ You can save the clip to your system or smartphones, depending on your requireme
 
 ![Upload or Burn by Clicking on Export Button](https://images.wondershare.com/filmora/article-images/output-format.jpg)
 
-### 2\. Animaker
-
-![Animaker](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-11.jpg)
+### 2\. Animaker ![Animaker](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-11.jpg)
 
 Animaker video resizer is an easy and reliable tool that quickly changes or resizes the video aspect ratio. Moreover, it lets you download some watermark-free videos. It helps you to make a video that perfectly fit the required dimensions.
 
@@ -801,9 +737,7 @@ Animaker’s video editing suite offers tools that you can use to edit videos on
 
 This software has been created explicitly for marketers, non-designers, or anyone who wants to edit social media or web videos.
 
-### 3\. VEED.IO
-
-![VEED.IO](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-12.jpg)
+### 3\. VEED.IO ![VEED.IO](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-12.jpg)
 
 VEED is a great software that offers subtitling, effect/text encoding, editing, and other features. This tool allows you to use some incredible video effects, brightness, color grading, rotate your videos, exposure, and more.
 
@@ -823,9 +757,7 @@ When you talk about videos, Facebook always recommends to upload videos with squ
 
 Facebook also suggests you upload short videos (15 seconds or less) and design videos that work both without and with sound. It would be best if you enable the captions. For the best results, choose the following specifications for videos:
 
-### 1\. Facebook Feed Videos
-
-![Facebook Feed Videos](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-1.jpg)
+### 1\. Facebook Feed Videos ![Facebook Feed Videos](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-1.jpg)
 
 **●** Minimum Width: 120 px
 
@@ -847,9 +779,7 @@ For video ads, Facebook suggests you to upload the video with the highest resolu
 
 Use MP4, MOV, or GIF format, with a maximum 4GB file and 241 min length.
 
-### 2\. Facebook Article Videos
-
-![Facebook Article Videos](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-3.jpg)
+### 2\. Facebook Article Videos ![Facebook Article Videos](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-3.jpg)
 
 **●** Resolution: at least 1080 x 1080 px
 
@@ -861,9 +791,7 @@ Use MP4, MOV, or GIF format, with a maximum 4GB file and 241 min length.
 
 **●** Maximum Video Length: 240 minutes
 
-### 3\. Facebook In-Stream Videos
-
-![Facebook In-Stream Videos](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-4.jpg)
+### 3\. Facebook In-Stream Videos ![Facebook In-Stream Videos](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-4.jpg)
 
 **●** Resolution: at least 1080 x 1080 px
 
@@ -875,9 +803,7 @@ Use MP4, MOV, or GIF format, with a maximum 4GB file and 241 min length.
 
 **●** Maximum Video Length: 10 minutes (limit varies based on objective)
 
-### 4\. Facebook Marketplace Video Ads
-
-![Facebook Marketplace Video Ads](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-5.jpg)
+### 4\. Facebook Marketplace Video Ads ![Facebook Marketplace Video Ads](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-5.jpg)
 
 **●** Recommended: Highest resolution available (at least 1080 x 1080 px)
 
@@ -889,9 +815,7 @@ Use MP4, MOV, or GIF format, with a maximum 4GB file and 241 min length.
 
 **●** Maximum Video Length: 240 minutes
 
-### 5\. Facebook Stories Ads
-
-![Facebook Stories Ads](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-6.jpg)
+### 5\. Facebook Stories Ads ![Facebook Stories Ads](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-6.jpg)
 
 **●** Recommended: Highest resolution available (at least 1080 x 1080 px)
 
@@ -901,9 +825,7 @@ Use MP4, MOV, or GIF format, with a maximum 4GB file and 241 min length.
 
 **●** Maximum Video Length: 2 minutes
 
-### 6\. Facebook Video Feeds
-
-![Facebook Video Feeds](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-7.jpg)
+### 6\. Facebook Video Feeds ![Facebook Video Feeds](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-7.jpg)
 
 Facebook video feeds and in-stream videos are different. Also, there is a difference between video feeds and newsfeed videos. When you click a video in your feed, it will open up in a video player with some other video feeds.
 
@@ -959,9 +881,7 @@ Then, the color matching feature enables you to copy the color settings of one v
 
 #### Wondershare Filmora
 
-Get started easily with Filmora's powerful performance, intuitive interface, and countless effects!
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More about Filmora>](https://tools.techidaily.com/wondershare/filmora/download/)
+Get started easily with Filmora's powerful performance, intuitive interface, and countless effects ![Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More about Filmora>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![download](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
@@ -971,9 +891,7 @@ Some other features are:
 
 **●** Color grading
 
-**●** Upload videos directly on social media by Filmora
-
-![Upload on Social Media ](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-10.jpg)
+**●** Upload videos directly on social media by Filmora ![Upload on Social Media](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-10.jpg)
 
 **●** Experience fast editing
 
@@ -993,9 +911,7 @@ Choose the ratio that you want by simply clicking on it.
 
 #### Wondershare Filmora
 
-Get started easily with Filmora's powerful performance, intuitive interface, and countless effects!
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More about Filmora>](https://tools.techidaily.com/wondershare/filmora/download/)
+Get started easily with Filmora's powerful performance, intuitive interface, and countless effects ![Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More about Filmora>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![download](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
@@ -1045,7 +961,7 @@ Once you select the aspect ratio, click on the "Analyze" button. Filmora will Au
 
 After completing adjustment or reframing, click on the "Export" button to save your video. Change the name of the video and select the location where you want to save the video. Now, click on the "Export" again to save.
 
-![Click Export Button ](https://images.wondershare.com/filmora/article-images/auto-reframe-save-video.jpg)
+![Click Export Button](https://images.wondershare.com/filmora/article-images/auto-reframe-save-video.jpg)
 
 #### Method 5: Adjust Aspect Ratio at Exporting
 
@@ -1053,9 +969,7 @@ You can save the clip to your system or smartphones, depending on your requireme
 
 ![Upload or Burn by Clicking on Export Button](https://images.wondershare.com/filmora/article-images/output-format.jpg)
 
-### 2\. Animaker
-
-![Animaker](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-11.jpg)
+### 2\. Animaker ![Animaker](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-11.jpg)
 
 Animaker video resizer is an easy and reliable tool that quickly changes or resizes the video aspect ratio. Moreover, it lets you download some watermark-free videos. It helps you to make a video that perfectly fit the required dimensions.
 
@@ -1063,9 +977,7 @@ Animaker’s video editing suite offers tools that you can use to edit videos on
 
 This software has been created explicitly for marketers, non-designers, or anyone who wants to edit social media or web videos.
 
-### 3\. VEED.IO
-
-![VEED.IO](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-12.jpg)
+### 3\. VEED.IO ![VEED.IO](https://images.wondershare.com/filmora/article-images/2021/fb-aspect-ratio-12.jpg)
 
 VEED is a great software that offers subtitling, effect/text encoding, editing, and other features. This tool allows you to use some incredible video effects, brightness, color grading, rotate your videos, exposure, and more.
 

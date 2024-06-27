@@ -1,7 +1,7 @@
 ---
 title: "A Marketer’s Manual for Recognizing Fabricated Supporters for 2024"
-date: 2024-06-09T12:26:56.000Z
-updated: 2024-06-10T12:26:56.000Z
+date: 2024-06-26T02:29:34.643Z
+updated: 2024-06-27T02:29:34.643Z
 tags:
   - ai video
   - ai facebook
@@ -17,9 +17,7 @@ thumbnail: https://thmb.techidaily.com/2738dcb65655ca3023848f9ec7026a9cce211e708
 
 ## A Marketer’s Manual for Recognizing Fabricated Supporters
 
-# How to Spot Fake Followers on Facebook for Marketers
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# How to Spot Fake Followers on Facebook for Marketers ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 
@@ -34,7 +32,7 @@ If you want to edit FB video, [Filmora Business](https://tools.techidaily.com/wo
 
 ## Part 1: What are Fake Facebook followers?
 
-Countries such as Indonesia, Nigeria and Bangladesh are[flooded with fake followers on Facebook](https://economictimes.indiatimes.com/tech/internet/shadow-of-bot-followers-and-fake-likes-mars-social-media-influencers/articleshow/64674668.cms). There are businesses that sell fans and allow other business owners to buy cheap and fake fans through advertising to get likes in those countries.
+Countries such as Indonesia, Nigeria and Bangladesh are [flooded with fake followers on Facebook](https://economictimes.indiatimes.com/tech/internet/shadow-of-bot-followers-and-fake-likes-mars-social-media-influencers/articleshow/64674668.cms). There are businesses that sell fans and allow other business owners to buy cheap and fake fans through advertising to get likes in those countries.
 
 No doubt, the Facebook page gains more likes through them, but not effective in the long run. These fake followers have fake accounts intended for selling their like to others accounts. 1000s and 10000s accounts are purchased by brands over social media. Social media platforms such as Instagram pick them up and deletes every now and then.
 

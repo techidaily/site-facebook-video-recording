@@ -1,7 +1,7 @@
 ---
 title: "[New] How to Take 360 Videos on iPhone for Facebook"
-date: 2024-05-20T19:01:34.353Z
-updated: 2024-05-21T19:01:34.353Z
+date: 2024-06-26T02:29:17.379Z
+updated: 2024-06-27T02:29:17.379Z
 tags:
   - ai video
   - ai facebook
@@ -12,14 +12,12 @@ categories:
 description: "This Article Describes [New] How to Take 360 Videos on iPhone for Facebook"
 excerpt: "This Article Describes [New] How to Take 360 Videos on iPhone for Facebook"
 keywords: "IPhone 360 Video Tutorial,Shooting 360iPhone FB,IPhone 360 Social Media,Creating 360 Videos iPhones,IPhone VR Facebook Posts,Capture 360 iPhone for FB,Make 360 Photos iPhone"
-thumbnail: https://www.lifewire.com/thmb/Xmx-BiAhnz7t1UWUT3b_5hfp3uM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Echo-Dot-vs-HomePod-Mini-ea64d290bbc2457494228d7c763f9e26.jpg
+thumbnail: https://thmb.techidaily.com/7aca198401046d15f1204860b0acf905dd286e143743513f29d02bcd22967183.jpg
 ---
 
 ## Social Media Success: IPhone 360 Video Filming Guide
 
-# How to Take 360 Videos on iPhone for Facebook
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# How to Take 360 Videos on iPhone for Facebook ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 
@@ -31,7 +29,7 @@ thumbnail: https://www.lifewire.com/thmb/Xmx-BiAhnz7t1UWUT3b_5hfp3uM=/400x300/fi
 
  The introduction of a variety of VR headsets along with a range of cameras with 360 degree video shooting ability is a clear indicator of the fact that the future lies with Virtual Reality. However not all tech enthusiasts would be able to afford these super expensive cameras. This might lead one to believe that 360 degree videos aren’t for people like you and me. However, this is not the fact. In the last few years Apple has enhanced the iPhone cameras to a great extent and these days you can use your iPhone to create casual 360 degree videos. Keep reading to find out the easiest way to capture 360 degree videos on your iPad and iPhone with the help of Splash 360\. The best part is that you can do it without spending on any additional hardware.
 
-#### [Splash](https://itunes.apple.com/us/app/splash-360-video-camera-virtual-reality-community/id1057262494?mt=8)
+#### Splash
 
  This is an all new application for iPhone which would help you come up with superb 360 degree photos and videos. It is incredible that Splash has created an application which would allow the users to capture up to 10 videos of 2 seconds duration and then stitch them together to create a new video. All this can be done on your smartphone. It goes without saying that the best part of this application is that you can download it for free. With the help of Splash you will be able to directly upload all your photos and videos on Facebook or share them with your friends through a link. The Splash app also comes with full support for Google Cardboard headsets which would let you fully concentrate in the 360 degree environment.
 
@@ -84,7 +82,7 @@ Follow @Shanoon Cox
 
  The introduction of a variety of VR headsets along with a range of cameras with 360 degree video shooting ability is a clear indicator of the fact that the future lies with Virtual Reality. However not all tech enthusiasts would be able to afford these super expensive cameras. This might lead one to believe that 360 degree videos aren’t for people like you and me. However, this is not the fact. In the last few years Apple has enhanced the iPhone cameras to a great extent and these days you can use your iPhone to create casual 360 degree videos. Keep reading to find out the easiest way to capture 360 degree videos on your iPad and iPhone with the help of Splash 360\. The best part is that you can do it without spending on any additional hardware.
 
-#### [Splash](https://itunes.apple.com/us/app/splash-360-video-camera-virtual-reality-community/id1057262494?mt=8)
+#### Splash
 
  This is an all new application for iPhone which would help you come up with superb 360 degree photos and videos. It is incredible that Splash has created an application which would allow the users to capture up to 10 videos of 2 seconds duration and then stitch them together to create a new video. All this can be done on your smartphone. It goes without saying that the best part of this application is that you can download it for free. With the help of Splash you will be able to directly upload all your photos and videos on Facebook or share them with your friends through a link. The Splash app also comes with full support for Google Cardboard headsets which would let you fully concentrate in the 360 degree environment.
 
@@ -137,7 +135,7 @@ Follow @Shanoon Cox
 
  The introduction of a variety of VR headsets along with a range of cameras with 360 degree video shooting ability is a clear indicator of the fact that the future lies with Virtual Reality. However not all tech enthusiasts would be able to afford these super expensive cameras. This might lead one to believe that 360 degree videos aren’t for people like you and me. However, this is not the fact. In the last few years Apple has enhanced the iPhone cameras to a great extent and these days you can use your iPhone to create casual 360 degree videos. Keep reading to find out the easiest way to capture 360 degree videos on your iPad and iPhone with the help of Splash 360\. The best part is that you can do it without spending on any additional hardware.
 
-#### [Splash](https://itunes.apple.com/us/app/splash-360-video-camera-virtual-reality-community/id1057262494?mt=8)
+#### Splash
 
  This is an all new application for iPhone which would help you come up with superb 360 degree photos and videos. It is incredible that Splash has created an application which would allow the users to capture up to 10 videos of 2 seconds duration and then stitch them together to create a new video. All this can be done on your smartphone. It goes without saying that the best part of this application is that you can download it for free. With the help of Splash you will be able to directly upload all your photos and videos on Facebook or share them with your friends through a link. The Splash app also comes with full support for Google Cardboard headsets which would let you fully concentrate in the 360 degree environment.
 
@@ -190,7 +188,7 @@ Follow @Shanoon Cox
 
  The introduction of a variety of VR headsets along with a range of cameras with 360 degree video shooting ability is a clear indicator of the fact that the future lies with Virtual Reality. However not all tech enthusiasts would be able to afford these super expensive cameras. This might lead one to believe that 360 degree videos aren’t for people like you and me. However, this is not the fact. In the last few years Apple has enhanced the iPhone cameras to a great extent and these days you can use your iPhone to create casual 360 degree videos. Keep reading to find out the easiest way to capture 360 degree videos on your iPad and iPhone with the help of Splash 360\. The best part is that you can do it without spending on any additional hardware.
 
-#### [Splash](https://itunes.apple.com/us/app/splash-360-video-camera-virtual-reality-community/id1057262494?mt=8)
+#### Splash
 
  This is an all new application for iPhone which would help you come up with superb 360 degree photos and videos. It is incredible that Splash has created an application which would allow the users to capture up to 10 videos of 2 seconds duration and then stitch them together to create a new video. All this can be done on your smartphone. It goes without saying that the best part of this application is that you can download it for free. With the help of Splash you will be able to directly upload all your photos and videos on Facebook or share them with your friends through a link. The Splash app also comes with full support for Google Cardboard headsets which would let you fully concentrate in the 360 degree environment.
 

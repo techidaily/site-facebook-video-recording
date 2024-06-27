@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Fix the Facebook Message Shows It's You in This Video\""
-date: 2024-05-20T20:03:16.068Z
-updated: 2024-05-21T20:03:16.068Z
+date: 2024-06-26T02:29:26.087Z
+updated: 2024-06-27T02:29:26.087Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] 2024 Approved: Fix the Facebook Message Shows It's You in This Video\""
 excerpt: "\"This Article Describes [New] 2024 Approved: Fix the Facebook Message Shows It's You in This Video\""
 keywords: "\"Fixing Facebook Errors,Clear FB Messaging Glitches,Unblock Your FB Profile,Resolve FB Self-Message Issue,Stop FB Message Replay,Eliminate FB Impersonation Alert,Eradicate FB Identity Confusion\""
-thumbnail: https://www.lifewire.com/thmb/c_W-bqkUFLIKTo_i61jk41BN8k0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Screenshot2024-01-17at12.08.28PM-45f8005316274053872dbaa7c76fd474.png
+thumbnail: https://thmb.techidaily.com/02ef47e4fa1bec9703102ec97417713d4516fad507615fc36a561cee9ad50600.png
 ---
 
 ## Fix the Facebook Message Shows It's You in This Video

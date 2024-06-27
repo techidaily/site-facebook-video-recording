@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Navigating the Netizen's Realm  YouTube Videos FB\""
-date: 2024-05-20T18:29:39.595Z
-updated: 2024-05-21T18:29:39.595Z
+date: 2024-06-26T02:29:28.835Z
+updated: 2024-06-27T02:29:28.835Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] In 2024, Navigating the Netizen's Realm: YouTube Videos FB\""
 excerpt: "\"This Article Describes [Updated] In 2024, Navigating the Netizen's Realm: YouTube Videos FB\""
 keywords: "Netizen Content,YouTube Vids,FB Video Insights,Social Media Trends,Digital Engagement,Online Community,Platform Interactivity"
-thumbnail: https://www.lifewire.com/thmb/md1qW4dSt0BWTpSe9CF4ZL9YHXk=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/nxtpaper5g-c6c5242b7a834ccba6007ad8127cc8ef.jpeg
+thumbnail: https://thmb.techidaily.com/cbd55a60b36d243580c486b7896cd6baf0fe5a1c6ab330fc24fdad62a19d7e96.jpeg
 ---
 
 ## Navigating the Netizen's Realm: YouTube Videos FB
@@ -129,7 +129,7 @@ To find Facebook videos that you have watched recently on the computer, follow t
 
 Open the browser and then go to the Facebook website. Log into your account.
 
-![Log in to your Facebook ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-9.png)
+![Log in to your Facebook](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-9.png)
 
 **Step 2: Go to Your Profile**
 
@@ -187,13 +187,13 @@ From the Profile Settings, click on “Activity Log” and then scroll down. Cli
 
 ![Go to “Activity Log”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-15.png)
 
-![Click on “Logged actions and other activity.” ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-16.png)
+![Click on “Logged actions and other activity.”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-16.png)
 
 **Step 6: Click on “Videos you’ve watched.”**
 
 From the list of activities, tap on “Videos you’ve watched.”
 
-![Click on “Videos you’ve watched.” ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-17.png)
+![Click on “Videos you’ve watched.”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-17.png)
 
 The screen will display all the videos you have watched recently. Watch the one you were looking for and enjoy!
 
@@ -209,9 +209,7 @@ Facebook is such an all-rounded and well-thought-out application that it has eve
 
 One of such features is the Recently Watched and Saved Facebook Videos. Recently Watched videos help you maintain a watch history, whereas Saved videos help save interesting videos. We have shared the methods of finding them on your account.
 
-We hope it helps!
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+We hope it helps ![Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -317,7 +315,7 @@ To find Facebook videos that you have watched recently on the computer, follow t
 
 Open the browser and then go to the Facebook website. Log into your account.
 
-![Log in to your Facebook ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-9.png)
+![Log in to your Facebook](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-9.png)
 
 **Step 2: Go to Your Profile**
 
@@ -375,13 +373,13 @@ From the Profile Settings, click on “Activity Log” and then scroll down. Cli
 
 ![Go to “Activity Log”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-15.png)
 
-![Click on “Logged actions and other activity.” ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-16.png)
+![Click on “Logged actions and other activity.”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-16.png)
 
 **Step 6: Click on “Videos you’ve watched.”**
 
 From the list of activities, tap on “Videos you’ve watched.”
 
-![Click on “Videos you’ve watched.” ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-17.png)
+![Click on “Videos you’ve watched.”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-17.png)
 
 The screen will display all the videos you have watched recently. Watch the one you were looking for and enjoy!
 
@@ -397,9 +395,7 @@ Facebook is such an all-rounded and well-thought-out application that it has eve
 
 One of such features is the Recently Watched and Saved Facebook Videos. Recently Watched videos help you maintain a watch history, whereas Saved videos help save interesting videos. We have shared the methods of finding them on your account.
 
-We hope it helps!
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+We hope it helps ![Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -505,7 +501,7 @@ To find Facebook videos that you have watched recently on the computer, follow t
 
 Open the browser and then go to the Facebook website. Log into your account.
 
-![Log in to your Facebook ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-9.png)
+![Log in to your Facebook](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-9.png)
 
 **Step 2: Go to Your Profile**
 
@@ -563,13 +559,13 @@ From the Profile Settings, click on “Activity Log” and then scroll down. Cli
 
 ![Go to “Activity Log”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-15.png)
 
-![Click on “Logged actions and other activity.” ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-16.png)
+![Click on “Logged actions and other activity.”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-16.png)
 
 **Step 6: Click on “Videos you’ve watched.”**
 
 From the list of activities, tap on “Videos you’ve watched.”
 
-![Click on “Videos you’ve watched.” ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-17.png)
+![Click on “Videos you’ve watched.”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-17.png)
 
 The screen will display all the videos you have watched recently. Watch the one you were looking for and enjoy!
 
@@ -585,9 +581,7 @@ Facebook is such an all-rounded and well-thought-out application that it has eve
 
 One of such features is the Recently Watched and Saved Facebook Videos. Recently Watched videos help you maintain a watch history, whereas Saved videos help save interesting videos. We have shared the methods of finding them on your account.
 
-We hope it helps!
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+We hope it helps ![Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -693,7 +687,7 @@ To find Facebook videos that you have watched recently on the computer, follow t
 
 Open the browser and then go to the Facebook website. Log into your account.
 
-![Log in to your Facebook ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-9.png)
+![Log in to your Facebook](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-9.png)
 
 **Step 2: Go to Your Profile**
 
@@ -751,13 +745,13 @@ From the Profile Settings, click on “Activity Log” and then scroll down. Cli
 
 ![Go to “Activity Log”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-15.png)
 
-![Click on “Logged actions and other activity.” ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-16.png)
+![Click on “Logged actions and other activity.”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-16.png)
 
 **Step 6: Click on “Videos you’ve watched.”**
 
 From the list of activities, tap on “Videos you’ve watched.”
 
-![Click on “Videos you’ve watched.” ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-17.png)
+![Click on “Videos you’ve watched.”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-17.png)
 
 The screen will display all the videos you have watched recently. Watch the one you were looking for and enjoy!
 
@@ -773,9 +767,7 @@ Facebook is such an all-rounded and well-thought-out application that it has eve
 
 One of such features is the Recently Watched and Saved Facebook Videos. Recently Watched videos help you maintain a watch history, whereas Saved videos help save interesting videos. We have shared the methods of finding them on your account.
 
-We hope it helps!
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+We hope it helps ![Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <ins class="adsbygoogle"
      style="display:block"

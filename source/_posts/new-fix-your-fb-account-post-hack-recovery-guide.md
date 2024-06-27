@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Fix Your FB Account  Post-Hack Recovery Guide\""
-date: 2024-05-20T19:14:23.547Z
-updated: 2024-05-21T19:14:23.547Z
+date: 2024-06-26T02:29:14.050Z
+updated: 2024-06-27T02:29:14.050Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Fix Your FB Account: Post-Hack Recovery Guide\""
 excerpt: "\"This Article Describes [New] Fix Your FB Account: Post-Hack Recovery Guide\""
 keywords: "Facebook Hack Fix,FB Security Tips,Reset FB Password,Regain FB Access,Secure Your FB Account,Restore FB Privacy,Recover FB Posts"
-thumbnail: https://www.lifewire.com/thmb/OGSeRJbdwZn73Wl124bNWaxC2T0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/dormroomentfeatured-5b5e9dd3c9e77c004f28632e.jpg
+thumbnail: https://thmb.techidaily.com/fea6185edc685da72ba963a46eed57a3a71d461697393364ab3bd89b9977de72.jpg
 ---
 
 ## Fix Your FB Account: Post-Hack Recovery Guide

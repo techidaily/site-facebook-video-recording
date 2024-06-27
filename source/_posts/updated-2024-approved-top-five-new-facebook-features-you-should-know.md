@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Top Five New Facebook Features You Should Know\""
-date: 2024-06-18T12:50:46.950Z
-updated: 2024-06-19T12:50:46.950Z
+date: 2024-06-26T02:29:34.290Z
+updated: 2024-06-27T02:29:34.290Z
 tags:
   - ai video
   - ai facebook
@@ -17,9 +17,7 @@ thumbnail: https://thmb.techidaily.com/cec958dbb28e58c65e080cad326f07d4e7cdd67a5
 
 ## Essentials: Facebook's Breakthrough Features Unveiled
 
-# Top Five New Facebook Features You Should Know
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# Top Five New Facebook Features You Should Know ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 

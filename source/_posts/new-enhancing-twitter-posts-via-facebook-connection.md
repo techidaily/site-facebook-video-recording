@@ -1,7 +1,7 @@
 ---
 title: "[New] Enhancing Twitter Posts via Facebook Connection"
-date: 2024-05-20T19:38:03.361Z
-updated: 2024-05-21T19:38:03.361Z
+date: 2024-06-26T02:29:13.531Z
+updated: 2024-06-27T02:29:13.531Z
 tags:
   - ai video
   - ai facebook
@@ -12,14 +12,12 @@ categories:
 description: "This Article Describes [New] Enhancing Twitter Posts via Facebook Connection"
 excerpt: "This Article Describes [New] Enhancing Twitter Posts via Facebook Connection"
 keywords: "\"Social Media Integration,Cross-Platform Promotion,Boosting Tweet Visibility,FB to Twt Synergy,Engaging Twitter Followers,Leveraging Facebook Links,Amplifying Content Shares\""
-thumbnail: https://www.lifewire.com/thmb/eN8bOJTi-MKcuZ5z880v82zI6RM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/FP5-Launch-Blog-Thumbnail-1680x565-35926480a5c74ae78297aec3a38be750.jpg
+thumbnail: https://thmb.techidaily.com/235c9a836def3af64d14d9406f5da36fac525d1a6b5286ab03fa2d909747fb1b.jpg
 ---
 
 ## Enhancing Twitter Posts via Facebook Connection
 
-# How to Post Tweets on Facebook
-
-![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+# How to Post Tweets on Facebook ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, How to See What You Just Watched on Facebook"
-date: 2024-05-20T18:35:43.816Z
-updated: 2024-05-21T18:35:43.816Z
+date: 2024-06-26T02:29:29.014Z
+updated: 2024-06-27T02:29:29.014Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] In 2024, How to See What You Just Watched on Facebook"
 excerpt: "This Article Describes [Updated] In 2024, How to See What You Just Watched on Facebook"
 keywords: "\"Facebook View History,FB Watch Recent Videos,See Latest FB Watches,Facebook Watch Trail,Check FB Watch List,Review Just-Watched on FB,Inspect FB Watch History\""
-thumbnail: https://www.lifewire.com/thmb/tJAkAFLn8PgYLDdSxKT4QReLsyg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/macOS-Sonoma-Banner-fe4ffda2caaf4040b81ae0b66f2d6dc0.jpg
+thumbnail: https://thmb.techidaily.com/a6603b4c8e64882a75258ea91034b33184d3edc319264524a7b728bfe67ef7f7.jpg
 ---
 
 ## How to See What You Just Watched on Facebook

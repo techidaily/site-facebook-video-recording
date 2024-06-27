@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Bigo Live Intro Video Details  Area (Px²), Format, Run for 2024\""
-date: 2024-05-20T19:37:24.260Z
-updated: 2024-05-21T19:37:24.260Z
+date: 2024-06-26T02:29:34.763Z
+updated: 2024-06-27T02:29:34.763Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] Bigo Live Intro Video Details: Area (Px²), Format, Run for 2024\""
 excerpt: "\"This Article Describes [Updated] Bigo Live Intro Video Details: Area (Px²), Format, Run for 2024\""
 keywords: "Bigo Live Introduction,Pixel Square Area,Live Stream Format,Bigo Video Run,Live Video Specifications,Intro Video Details,Online Stream Quality"
-thumbnail: https://www.lifewire.com/thmb/oM1F6FMEMZ0Riy1ckp-E8xI__eI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Signal-vs-WhatsApp-511d663c232b4478bbf7c44e7d7e5641.jpg
+thumbnail: https://thmb.techidaily.com/d6473782f31868e794fc3ab8460fc67b139be82f000417effd74e9124ff9dff3.jpg
 ---
 
 ## Bigo Live Intro Video Details: Area (Px²), Format, Run

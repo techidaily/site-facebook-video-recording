@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, From the Field to Social Sharing  GoPro Streams on Facebook/Periscope\""
-date: 2024-05-20T19:23:28.999Z
-updated: 2024-05-21T19:23:28.999Z
+date: 2024-06-26T02:29:24.953Z
+updated: 2024-06-27T02:29:24.953Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] In 2024, From the Field to Social Sharing: GoPro Streams on Facebook/Periscope\""
 excerpt: "\"This Article Describes [Updated] In 2024, From the Field to Social Sharing: GoPro Streams on Facebook/Periscope\""
 keywords: "GoPro Live Broadcast,Periscope Coverage,Social Media Streaming,Facebook Video Upload,YouTube Live Sharing,Instagram Stories Airplay,Twitter Video Dissemination"
-thumbnail: https://www.lifewire.com/thmb/h57-lIQDvScITgWTh6KzTC1eTDc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Download-WhatsApp-For-Mac-Website-8424741-17919dc136494cc09a3924b885d17a6c.jpg
+thumbnail: https://thmb.techidaily.com/7d51f3f0aee270ec2782becb99c1a414abb8cba30f3dde81226f486e6ab605fb.jpg
 ---
 
 ## From the Field to Social Sharing: GoPro Streams on Facebook/Periscope
@@ -37,39 +37,35 @@ Once you have downloaded these 3 apps you will be required to go to your GoPro a
 
 1\. Now you have to choose the device with which you want to connect the app.
 
-![click connect your camera ](https://images.wondershare.com/filmora/article-images/click-connect-your-camera.jpg)
+![click connect your camera](https://images.wondershare.com/filmora/article-images/click-connect-your-camera.jpg)
 
 2\. Just follow the given instructions.
 
-![ Select your device](https://images.wondershare.com/filmora/article-images/select-your-device.jpg)
+![Select your device](https://images.wondershare.com/filmora/article-images/select-your-device.jpg)
 
-3\. Pair your action camera with the GoPro app
-
-![ pair your GoPro](https://images.wondershare.com/filmora/article-images/pair-your-gopro.jpg)
+3\. Pair your action camera with the GoPro app ![pair your GoPro](https://images.wondershare.com/filmora/article-images/pair-your-gopro.jpg)
 
 4\. Once the pairing is done you need to connect your smartphone to the wifi of your action cam.
 
-![camera’s WiFi ](https://images.wondershare.com/filmora/article-images/camera’s-wifi.jpg)
+![camera’s WiFi](https://images.wondershare.com/filmora/article-images/camera’s-wifi.jpg)
 
 ## How to live stream GoPro to Facebook?
 
 1\. Open the Live4 App and tap on the + button. Now log in to your Facebook.
 
-![facebook account ](https://images.wondershare.com/filmora/article-images/facebook-account.jpg)
+![facebook account](https://images.wondershare.com/filmora/article-images/facebook-account.jpg)
 
 2\. You will be asked for a number of permissions where you need to click on yes. This would take you to the streaming screen. Now you just have to select the camera as GoPro and then edit the title of your broadcast.
 
-![edit your title ](https://images.wondershare.com/filmora/article-images/edit-your-title.jpg)
+![edit your title](https://images.wondershare.com/filmora/article-images/edit-your-title.jpg)
 
 3\. In the 3rd step you will be required to tap the ‘f’ icon at the bottom of the right hand side of the screen. This would start to live stream your video on Facebook. You can decide if you want to share your location or not. You can also set your live stream as private or leave it open to the public.
 
-![click the f ](https://images.wondershare.com/filmora/article-images/click-the-f.jpg)
+![click the f](https://images.wondershare.com/filmora/article-images/click-the-f.jpg)
 
 ## How to live stream GoPro to Periscope
 
-Once you are done with your GoPro settings you can start live streaming via the Periscope app. Just open the app and tap the broadcast icon to start broadcasting
-
-![Click broadcast ](https://images.wondershare.com/filmora/article-images/click-broadcast.jpg)
+Once you are done with your GoPro settings you can start live streaming via the Periscope app. Just open the app and tap the broadcast icon to start broadcasting ![Click broadcast](https://images.wondershare.com/filmora/article-images/click-broadcast.jpg)
 
 **Note:**
 
@@ -104,39 +100,35 @@ Once you have downloaded these 3 apps you will be required to go to your GoPro a
 
 1\. Now you have to choose the device with which you want to connect the app.
 
-![click connect your camera ](https://images.wondershare.com/filmora/article-images/click-connect-your-camera.jpg)
+![click connect your camera](https://images.wondershare.com/filmora/article-images/click-connect-your-camera.jpg)
 
 2\. Just follow the given instructions.
 
-![ Select your device](https://images.wondershare.com/filmora/article-images/select-your-device.jpg)
+![Select your device](https://images.wondershare.com/filmora/article-images/select-your-device.jpg)
 
-3\. Pair your action camera with the GoPro app
-
-![ pair your GoPro](https://images.wondershare.com/filmora/article-images/pair-your-gopro.jpg)
+3\. Pair your action camera with the GoPro app ![pair your GoPro](https://images.wondershare.com/filmora/article-images/pair-your-gopro.jpg)
 
 4\. Once the pairing is done you need to connect your smartphone to the wifi of your action cam.
 
-![camera’s WiFi ](https://images.wondershare.com/filmora/article-images/camera’s-wifi.jpg)
+![camera’s WiFi](https://images.wondershare.com/filmora/article-images/camera’s-wifi.jpg)
 
 ## How to live stream GoPro to Facebook?
 
 1\. Open the Live4 App and tap on the + button. Now log in to your Facebook.
 
-![facebook account ](https://images.wondershare.com/filmora/article-images/facebook-account.jpg)
+![facebook account](https://images.wondershare.com/filmora/article-images/facebook-account.jpg)
 
 2\. You will be asked for a number of permissions where you need to click on yes. This would take you to the streaming screen. Now you just have to select the camera as GoPro and then edit the title of your broadcast.
 
-![edit your title ](https://images.wondershare.com/filmora/article-images/edit-your-title.jpg)
+![edit your title](https://images.wondershare.com/filmora/article-images/edit-your-title.jpg)
 
 3\. In the 3rd step you will be required to tap the ‘f’ icon at the bottom of the right hand side of the screen. This would start to live stream your video on Facebook. You can decide if you want to share your location or not. You can also set your live stream as private or leave it open to the public.
 
-![click the f ](https://images.wondershare.com/filmora/article-images/click-the-f.jpg)
+![click the f](https://images.wondershare.com/filmora/article-images/click-the-f.jpg)
 
 ## How to live stream GoPro to Periscope
 
-Once you are done with your GoPro settings you can start live streaming via the Periscope app. Just open the app and tap the broadcast icon to start broadcasting
-
-![Click broadcast ](https://images.wondershare.com/filmora/article-images/click-broadcast.jpg)
+Once you are done with your GoPro settings you can start live streaming via the Periscope app. Just open the app and tap the broadcast icon to start broadcasting ![Click broadcast](https://images.wondershare.com/filmora/article-images/click-broadcast.jpg)
 
 **Note:**
 
@@ -171,39 +163,35 @@ Once you have downloaded these 3 apps you will be required to go to your GoPro a
 
 1\. Now you have to choose the device with which you want to connect the app.
 
-![click connect your camera ](https://images.wondershare.com/filmora/article-images/click-connect-your-camera.jpg)
+![click connect your camera](https://images.wondershare.com/filmora/article-images/click-connect-your-camera.jpg)
 
 2\. Just follow the given instructions.
 
-![ Select your device](https://images.wondershare.com/filmora/article-images/select-your-device.jpg)
+![Select your device](https://images.wondershare.com/filmora/article-images/select-your-device.jpg)
 
-3\. Pair your action camera with the GoPro app
-
-![ pair your GoPro](https://images.wondershare.com/filmora/article-images/pair-your-gopro.jpg)
+3\. Pair your action camera with the GoPro app ![pair your GoPro](https://images.wondershare.com/filmora/article-images/pair-your-gopro.jpg)
 
 4\. Once the pairing is done you need to connect your smartphone to the wifi of your action cam.
 
-![camera’s WiFi ](https://images.wondershare.com/filmora/article-images/camera’s-wifi.jpg)
+![camera’s WiFi](https://images.wondershare.com/filmora/article-images/camera’s-wifi.jpg)
 
 ## How to live stream GoPro to Facebook?
 
 1\. Open the Live4 App and tap on the + button. Now log in to your Facebook.
 
-![facebook account ](https://images.wondershare.com/filmora/article-images/facebook-account.jpg)
+![facebook account](https://images.wondershare.com/filmora/article-images/facebook-account.jpg)
 
 2\. You will be asked for a number of permissions where you need to click on yes. This would take you to the streaming screen. Now you just have to select the camera as GoPro and then edit the title of your broadcast.
 
-![edit your title ](https://images.wondershare.com/filmora/article-images/edit-your-title.jpg)
+![edit your title](https://images.wondershare.com/filmora/article-images/edit-your-title.jpg)
 
 3\. In the 3rd step you will be required to tap the ‘f’ icon at the bottom of the right hand side of the screen. This would start to live stream your video on Facebook. You can decide if you want to share your location or not. You can also set your live stream as private or leave it open to the public.
 
-![click the f ](https://images.wondershare.com/filmora/article-images/click-the-f.jpg)
+![click the f](https://images.wondershare.com/filmora/article-images/click-the-f.jpg)
 
 ## How to live stream GoPro to Periscope
 
-Once you are done with your GoPro settings you can start live streaming via the Periscope app. Just open the app and tap the broadcast icon to start broadcasting
-
-![Click broadcast ](https://images.wondershare.com/filmora/article-images/click-broadcast.jpg)
+Once you are done with your GoPro settings you can start live streaming via the Periscope app. Just open the app and tap the broadcast icon to start broadcasting ![Click broadcast](https://images.wondershare.com/filmora/article-images/click-broadcast.jpg)
 
 **Note:**
 
@@ -238,39 +226,35 @@ Once you have downloaded these 3 apps you will be required to go to your GoPro a
 
 1\. Now you have to choose the device with which you want to connect the app.
 
-![click connect your camera ](https://images.wondershare.com/filmora/article-images/click-connect-your-camera.jpg)
+![click connect your camera](https://images.wondershare.com/filmora/article-images/click-connect-your-camera.jpg)
 
 2\. Just follow the given instructions.
 
-![ Select your device](https://images.wondershare.com/filmora/article-images/select-your-device.jpg)
+![Select your device](https://images.wondershare.com/filmora/article-images/select-your-device.jpg)
 
-3\. Pair your action camera with the GoPro app
-
-![ pair your GoPro](https://images.wondershare.com/filmora/article-images/pair-your-gopro.jpg)
+3\. Pair your action camera with the GoPro app ![pair your GoPro](https://images.wondershare.com/filmora/article-images/pair-your-gopro.jpg)
 
 4\. Once the pairing is done you need to connect your smartphone to the wifi of your action cam.
 
-![camera’s WiFi ](https://images.wondershare.com/filmora/article-images/camera’s-wifi.jpg)
+![camera’s WiFi](https://images.wondershare.com/filmora/article-images/camera’s-wifi.jpg)
 
 ## How to live stream GoPro to Facebook?
 
 1\. Open the Live4 App and tap on the + button. Now log in to your Facebook.
 
-![facebook account ](https://images.wondershare.com/filmora/article-images/facebook-account.jpg)
+![facebook account](https://images.wondershare.com/filmora/article-images/facebook-account.jpg)
 
 2\. You will be asked for a number of permissions where you need to click on yes. This would take you to the streaming screen. Now you just have to select the camera as GoPro and then edit the title of your broadcast.
 
-![edit your title ](https://images.wondershare.com/filmora/article-images/edit-your-title.jpg)
+![edit your title](https://images.wondershare.com/filmora/article-images/edit-your-title.jpg)
 
 3\. In the 3rd step you will be required to tap the ‘f’ icon at the bottom of the right hand side of the screen. This would start to live stream your video on Facebook. You can decide if you want to share your location or not. You can also set your live stream as private or leave it open to the public.
 
-![click the f ](https://images.wondershare.com/filmora/article-images/click-the-f.jpg)
+![click the f](https://images.wondershare.com/filmora/article-images/click-the-f.jpg)
 
 ## How to live stream GoPro to Periscope
 
-Once you are done with your GoPro settings you can start live streaming via the Periscope app. Just open the app and tap the broadcast icon to start broadcasting
-
-![Click broadcast ](https://images.wondershare.com/filmora/article-images/click-broadcast.jpg)
+Once you are done with your GoPro settings you can start live streaming via the Periscope app. Just open the app and tap the broadcast icon to start broadcasting ![Click broadcast](https://images.wondershare.com/filmora/article-images/click-broadcast.jpg)
 
 **Note:**
 

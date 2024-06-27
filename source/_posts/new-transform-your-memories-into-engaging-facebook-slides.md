@@ -1,7 +1,7 @@
 ---
 title: "[New] Transform Your Memories Into Engaging Facebook Slides"
-date: 2024-05-20T18:51:57.763Z
-updated: 2024-05-21T18:51:57.763Z
+date: 2024-06-26T02:29:22.633Z
+updated: 2024-06-27T02:29:22.633Z
 tags:
   - ai video
   - ai facebook
@@ -17,9 +17,7 @@ thumbnail: https://www.lifewire.com/thmb/mRDEV913qkEIRYtJUvDs2lQsT-c=/400x300/fi
 
 ## Transform Your Memories Into Engaging Facebook Slides
 
-# Facebook Slideshow Maker: How to Make a Facebook Slideshow
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# Facebook Slideshow Maker: How to Make a Facebook Slideshow ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 
@@ -34,7 +32,7 @@ So this article is mainly about how to create a **Facebook slideshow**. With a *
 * [**Part 3: Facebook slideshow maker: another way to make slideshow**](#part3)
 * [**Part 4: 5 Tips for Making Facebook Slideshow**](#part4)
 
-## Part 1: Recommended Facebook Slideshow Maker: [Filmora Business](https://tools.techidaily.com/wondershare/filmora/download/)
+## Part 1: Recommended Facebook Slideshow Maker: Filmora Business
 
 The latest version 9 of Filmora video editor provides a lot of royalty free music in the Audio library, you can choose from different styles including Electronic, Folk, Rock, Tender & Sentimental, Young & Bright. Besides, you can also add the specially designed Sound Effects to the Facebook Slideshow.
 
@@ -42,9 +40,7 @@ Filmora allows you to create different aspect ratio videos such as the normally 
 
 The best part of using Filmora to creating Facebook slideshow is that you can add as many as photos and images (while with the Facebook Slideshow maker, you can only add 3 to 10 photos).
 
-You also can add transitions to your Facebook slideshow. Filmora Business includes more than 100 transitions including fade in/out, bar, cubes and more. Now download it to have a try (free)!
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+You also can add transitions to your Facebook slideshow. Filmora Business includes more than 100 transitions including fade in/out, bar, cubes and more. Now download it to have a try (free)![![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Below is a simple guide about how to make a Facebook Slideshow with music in Filmora video editor.
 
@@ -58,13 +54,13 @@ Download and launch Filmora, click New Project to create a new slideshow project
 
 Now, you can add the **built in music and sound effect** from **Audio** tab, or you can add your own music file to the media library and then drag-n-drop it to the audio track in the timeline. To play the slideshow smoother, we recommend you to add some transitions between the photos. With Filmora, you can add specific transition to selected clips or add transitions to selected clips randomly and even to all clips. Since Facebook video is played muted by default, it is recommended to [add title & text to the photo slideshow](https://tools.techidaily.com/wondershare/filmora/download/) as well.
 
-![ Filmora 9 Add Text](https://images.wondershare.com/filmora/article-images/add-titles-text.jpg)
+![Filmora 9 Add Text](https://images.wondershare.com/filmora/article-images/add-titles-text.jpg)
 
 ### Step 3: Export video
 
 Of course, you can also add overlays, filters, and elements to the photo slideshow based on your needs. After all these editing, click the Export to save the video in popular Facebook slideshow formats such as mp4, mov etc or you can also upload video to YouTube directly if needed.
 
-For the detailed information about how to edit videos in Filmora, you can check our[ultimate guide for editing videos](https://tools.techidaily.com/wondershare/filmora/download/).
+For the detailed information about how to edit videos in Filmora, you can check our [ultimate guide for editing videos](https://tools.techidaily.com/wondershare/filmora/download/).
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -98,7 +94,7 @@ You must choose the right aspect ratio for Facebook slideshow. You can select as
 
 The whole duration can't be larger than 15 seconds, so it is not suggested to import many images. For each image, you can choose 0.5, 1, 2, 3, 4 and 5 seconds.
 
-![change facebook slideshow duration ](https://images.wondershare.com/filmora/filmora-business/change-duration-facebook-slideshow.jpg)
+![change facebook slideshow duration](https://images.wondershare.com/filmora/filmora-business/change-duration-facebook-slideshow.jpg)
 
 ### Step 4: Add transition to Facebook slideshow
 
@@ -186,9 +182,7 @@ You won't know which version is better if you don't make A/B test. You can run 2
 
 ## Conclusion
 
-Above are three methods of making Facebook slideshow. Don't know which Facebook slideshow maker to choose? It is advised to use [Filmora Business](https://tools.techidaily.com/wondershare/filmora/download/) if you want to have more controls of your slideshow. You can use it to add free to use music and titles to make your slideshow stand out! Download it now to have a try!
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+Above are three methods of making Facebook slideshow. Don't know which Facebook slideshow maker to choose? It is advised to use [Filmora Business](https://tools.techidaily.com/wondershare/filmora/download/) if you want to have more controls of your slideshow. You can use it to add free to use music and titles to make your slideshow stand out! Download it now to have a try ![![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -211,7 +205,7 @@ So this article is mainly about how to create a **Facebook slideshow**. With a *
 * [**Part 3: Facebook slideshow maker: another way to make slideshow**](#part3)
 * [**Part 4: 5 Tips for Making Facebook Slideshow**](#part4)
 
-## Part 1: Recommended Facebook Slideshow Maker: [Filmora Business](https://tools.techidaily.com/wondershare/filmora/download/)
+## Part 1: Recommended Facebook Slideshow Maker: Filmora Business
 
 The latest version 9 of Filmora video editor provides a lot of royalty free music in the Audio library, you can choose from different styles including Electronic, Folk, Rock, Tender & Sentimental, Young & Bright. Besides, you can also add the specially designed Sound Effects to the Facebook Slideshow.
 
@@ -219,9 +213,7 @@ Filmora allows you to create different aspect ratio videos such as the normally 
 
 The best part of using Filmora to creating Facebook slideshow is that you can add as many as photos and images (while with the Facebook Slideshow maker, you can only add 3 to 10 photos).
 
-You also can add transitions to your Facebook slideshow. Filmora Business includes more than 100 transitions including fade in/out, bar, cubes and more. Now download it to have a try (free)!
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+You also can add transitions to your Facebook slideshow. Filmora Business includes more than 100 transitions including fade in/out, bar, cubes and more. Now download it to have a try (free)![![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Below is a simple guide about how to make a Facebook Slideshow with music in Filmora video editor.
 
@@ -235,13 +227,13 @@ Download and launch Filmora, click New Project to create a new slideshow project
 
 Now, you can add the **built in music and sound effect** from **Audio** tab, or you can add your own music file to the media library and then drag-n-drop it to the audio track in the timeline. To play the slideshow smoother, we recommend you to add some transitions between the photos. With Filmora, you can add specific transition to selected clips or add transitions to selected clips randomly and even to all clips. Since Facebook video is played muted by default, it is recommended to [add title & text to the photo slideshow](https://tools.techidaily.com/wondershare/filmora/download/) as well.
 
-![ Filmora 9 Add Text](https://images.wondershare.com/filmora/article-images/add-titles-text.jpg)
+![Filmora 9 Add Text](https://images.wondershare.com/filmora/article-images/add-titles-text.jpg)
 
 ### Step 3: Export video
 
 Of course, you can also add overlays, filters, and elements to the photo slideshow based on your needs. After all these editing, click the Export to save the video in popular Facebook slideshow formats such as mp4, mov etc or you can also upload video to YouTube directly if needed.
 
-For the detailed information about how to edit videos in Filmora, you can check our[ultimate guide for editing videos](https://tools.techidaily.com/wondershare/filmora/download/).
+For the detailed information about how to edit videos in Filmora, you can check our [ultimate guide for editing videos](https://tools.techidaily.com/wondershare/filmora/download/).
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -275,7 +267,7 @@ You must choose the right aspect ratio for Facebook slideshow. You can select as
 
 The whole duration can't be larger than 15 seconds, so it is not suggested to import many images. For each image, you can choose 0.5, 1, 2, 3, 4 and 5 seconds.
 
-![change facebook slideshow duration ](https://images.wondershare.com/filmora/filmora-business/change-duration-facebook-slideshow.jpg)
+![change facebook slideshow duration](https://images.wondershare.com/filmora/filmora-business/change-duration-facebook-slideshow.jpg)
 
 ### Step 4: Add transition to Facebook slideshow
 
@@ -363,9 +355,7 @@ You won't know which version is better if you don't make A/B test. You can run 2
 
 ## Conclusion
 
-Above are three methods of making Facebook slideshow. Don't know which Facebook slideshow maker to choose? It is advised to use [Filmora Business](https://tools.techidaily.com/wondershare/filmora/download/) if you want to have more controls of your slideshow. You can use it to add free to use music and titles to make your slideshow stand out! Download it now to have a try!
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+Above are three methods of making Facebook slideshow. Don't know which Facebook slideshow maker to choose? It is advised to use [Filmora Business](https://tools.techidaily.com/wondershare/filmora/download/) if you want to have more controls of your slideshow. You can use it to add free to use music and titles to make your slideshow stand out! Download it now to have a try ![![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -388,7 +378,7 @@ So this article is mainly about how to create a **Facebook slideshow**. With a *
 * [**Part 3: Facebook slideshow maker: another way to make slideshow**](#part3)
 * [**Part 4: 5 Tips for Making Facebook Slideshow**](#part4)
 
-## Part 1: Recommended Facebook Slideshow Maker: [Filmora Business](https://tools.techidaily.com/wondershare/filmora/download/)
+## Part 1: Recommended Facebook Slideshow Maker: Filmora Business
 
 The latest version 9 of Filmora video editor provides a lot of royalty free music in the Audio library, you can choose from different styles including Electronic, Folk, Rock, Tender & Sentimental, Young & Bright. Besides, you can also add the specially designed Sound Effects to the Facebook Slideshow.
 
@@ -396,9 +386,7 @@ Filmora allows you to create different aspect ratio videos such as the normally 
 
 The best part of using Filmora to creating Facebook slideshow is that you can add as many as photos and images (while with the Facebook Slideshow maker, you can only add 3 to 10 photos).
 
-You also can add transitions to your Facebook slideshow. Filmora Business includes more than 100 transitions including fade in/out, bar, cubes and more. Now download it to have a try (free)!
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+You also can add transitions to your Facebook slideshow. Filmora Business includes more than 100 transitions including fade in/out, bar, cubes and more. Now download it to have a try (free)![![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Below is a simple guide about how to make a Facebook Slideshow with music in Filmora video editor.
 
@@ -412,13 +400,13 @@ Download and launch Filmora, click New Project to create a new slideshow project
 
 Now, you can add the **built in music and sound effect** from **Audio** tab, or you can add your own music file to the media library and then drag-n-drop it to the audio track in the timeline. To play the slideshow smoother, we recommend you to add some transitions between the photos. With Filmora, you can add specific transition to selected clips or add transitions to selected clips randomly and even to all clips. Since Facebook video is played muted by default, it is recommended to [add title & text to the photo slideshow](https://tools.techidaily.com/wondershare/filmora/download/) as well.
 
-![ Filmora 9 Add Text](https://images.wondershare.com/filmora/article-images/add-titles-text.jpg)
+![Filmora 9 Add Text](https://images.wondershare.com/filmora/article-images/add-titles-text.jpg)
 
 ### Step 3: Export video
 
 Of course, you can also add overlays, filters, and elements to the photo slideshow based on your needs. After all these editing, click the Export to save the video in popular Facebook slideshow formats such as mp4, mov etc or you can also upload video to YouTube directly if needed.
 
-For the detailed information about how to edit videos in Filmora, you can check our[ultimate guide for editing videos](https://tools.techidaily.com/wondershare/filmora/download/).
+For the detailed information about how to edit videos in Filmora, you can check our [ultimate guide for editing videos](https://tools.techidaily.com/wondershare/filmora/download/).
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -452,7 +440,7 @@ You must choose the right aspect ratio for Facebook slideshow. You can select as
 
 The whole duration can't be larger than 15 seconds, so it is not suggested to import many images. For each image, you can choose 0.5, 1, 2, 3, 4 and 5 seconds.
 
-![change facebook slideshow duration ](https://images.wondershare.com/filmora/filmora-business/change-duration-facebook-slideshow.jpg)
+![change facebook slideshow duration](https://images.wondershare.com/filmora/filmora-business/change-duration-facebook-slideshow.jpg)
 
 ### Step 4: Add transition to Facebook slideshow
 
@@ -540,9 +528,7 @@ You won't know which version is better if you don't make A/B test. You can run 2
 
 ## Conclusion
 
-Above are three methods of making Facebook slideshow. Don't know which Facebook slideshow maker to choose? It is advised to use [Filmora Business](https://tools.techidaily.com/wondershare/filmora/download/) if you want to have more controls of your slideshow. You can use it to add free to use music and titles to make your slideshow stand out! Download it now to have a try!
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+Above are three methods of making Facebook slideshow. Don't know which Facebook slideshow maker to choose? It is advised to use [Filmora Business](https://tools.techidaily.com/wondershare/filmora/download/) if you want to have more controls of your slideshow. You can use it to add free to use music and titles to make your slideshow stand out! Download it now to have a try ![![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -565,7 +551,7 @@ So this article is mainly about how to create a **Facebook slideshow**. With a *
 * [**Part 3: Facebook slideshow maker: another way to make slideshow**](#part3)
 * [**Part 4: 5 Tips for Making Facebook Slideshow**](#part4)
 
-## Part 1: Recommended Facebook Slideshow Maker: [Filmora Business](https://tools.techidaily.com/wondershare/filmora/download/)
+## Part 1: Recommended Facebook Slideshow Maker: Filmora Business
 
 The latest version 9 of Filmora video editor provides a lot of royalty free music in the Audio library, you can choose from different styles including Electronic, Folk, Rock, Tender & Sentimental, Young & Bright. Besides, you can also add the specially designed Sound Effects to the Facebook Slideshow.
 
@@ -573,9 +559,7 @@ Filmora allows you to create different aspect ratio videos such as the normally 
 
 The best part of using Filmora to creating Facebook slideshow is that you can add as many as photos and images (while with the Facebook Slideshow maker, you can only add 3 to 10 photos).
 
-You also can add transitions to your Facebook slideshow. Filmora Business includes more than 100 transitions including fade in/out, bar, cubes and more. Now download it to have a try (free)!
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+You also can add transitions to your Facebook slideshow. Filmora Business includes more than 100 transitions including fade in/out, bar, cubes and more. Now download it to have a try (free)![![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Below is a simple guide about how to make a Facebook Slideshow with music in Filmora video editor.
 
@@ -589,13 +573,13 @@ Download and launch Filmora, click New Project to create a new slideshow project
 
 Now, you can add the **built in music and sound effect** from **Audio** tab, or you can add your own music file to the media library and then drag-n-drop it to the audio track in the timeline. To play the slideshow smoother, we recommend you to add some transitions between the photos. With Filmora, you can add specific transition to selected clips or add transitions to selected clips randomly and even to all clips. Since Facebook video is played muted by default, it is recommended to [add title & text to the photo slideshow](https://tools.techidaily.com/wondershare/filmora/download/) as well.
 
-![ Filmora 9 Add Text](https://images.wondershare.com/filmora/article-images/add-titles-text.jpg)
+![Filmora 9 Add Text](https://images.wondershare.com/filmora/article-images/add-titles-text.jpg)
 
 ### Step 3: Export video
 
 Of course, you can also add overlays, filters, and elements to the photo slideshow based on your needs. After all these editing, click the Export to save the video in popular Facebook slideshow formats such as mp4, mov etc or you can also upload video to YouTube directly if needed.
 
-For the detailed information about how to edit videos in Filmora, you can check our[ultimate guide for editing videos](https://tools.techidaily.com/wondershare/filmora/download/).
+For the detailed information about how to edit videos in Filmora, you can check our [ultimate guide for editing videos](https://tools.techidaily.com/wondershare/filmora/download/).
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -629,7 +613,7 @@ You must choose the right aspect ratio for Facebook slideshow. You can select as
 
 The whole duration can't be larger than 15 seconds, so it is not suggested to import many images. For each image, you can choose 0.5, 1, 2, 3, 4 and 5 seconds.
 
-![change facebook slideshow duration ](https://images.wondershare.com/filmora/filmora-business/change-duration-facebook-slideshow.jpg)
+![change facebook slideshow duration](https://images.wondershare.com/filmora/filmora-business/change-duration-facebook-slideshow.jpg)
 
 ### Step 4: Add transition to Facebook slideshow
 
@@ -717,9 +701,7 @@ You won't know which version is better if you don't make A/B test. You can run 2
 
 ## Conclusion
 
-Above are three methods of making Facebook slideshow. Don't know which Facebook slideshow maker to choose? It is advised to use [Filmora Business](https://tools.techidaily.com/wondershare/filmora/download/) if you want to have more controls of your slideshow. You can use it to add free to use music and titles to make your slideshow stand out! Download it now to have a try!
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+Above are three methods of making Facebook slideshow. Don't know which Facebook slideshow maker to choose? It is advised to use [Filmora Business](https://tools.techidaily.com/wondershare/filmora/download/) if you want to have more controls of your slideshow. You can use it to add free to use music and titles to make your slideshow stand out! Download it now to have a try ![![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 

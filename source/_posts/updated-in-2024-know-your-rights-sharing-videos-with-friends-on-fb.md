@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Know Your Rights  Sharing Videos with Friends on FB\""
-date: 2024-05-20T19:34:06.686Z
-updated: 2024-05-21T19:34:06.686Z
+date: 2024-06-26T02:29:33.612Z
+updated: 2024-06-27T02:29:33.612Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] In 2024, Know Your Rights: Sharing Videos with Friends on FB\""
 excerpt: "\"This Article Describes [Updated] In 2024, Know Your Rights: Sharing Videos with Friends on FB\""
 keywords: "Share FB Video Privacy,Friendship FB Videoing,Facebook Video Rights,Respecting Video Views,Personal FB Video Law,Legal FB Video Sharing,Understand FB Video Use"
-thumbnail: https://www.lifewire.com/thmb/GtwnX-n19mVINNxJ4uHQzWwcJ4U=/540x405/filters:no_upscale():max_bytes(150000):strip_icc()/copilotpp03-763a146c397e4255b6dcb549c1073474.jpg
+thumbnail: https://thmb.techidaily.com/64cbdaa1aef5615ff39347b9db4c0280ec8c3ce520d27154774aa65c3ef13831.jpg
 ---
 
 ## Know Your Rights: Sharing Videos with Friends on FB

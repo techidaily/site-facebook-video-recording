@@ -1,7 +1,7 @@
 ---
 title: "How to Live Stream 360 Videos on Facebook"
-date: 2024-05-20T18:46:48.191Z
-updated: 2024-05-21T18:46:48.191Z
+date: 2024-06-26T02:29:33.646Z
+updated: 2024-06-27T02:29:33.646Z
 tags:
   - ai video
   - ai facebook
@@ -17,9 +17,7 @@ thumbnail: https://www.lifewire.com/thmb/il986Jyk6V1_41Ywdkg17FWen7s=/400x300/fi
 
 ## Building a Robust 360 Video Broadcast Framework for FB
 
-# How to Live Stream 360 Videos on Facebook
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# How to Live Stream 360 Videos on Facebook ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 

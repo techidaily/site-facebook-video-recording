@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Cross-Device  The Ultimate Tutorial for Scraping GIFs From FB\""
-date: 2024-05-20T18:32:36.195Z
-updated: 2024-05-21T18:32:36.195Z
+date: 2024-06-26T02:29:09.954Z
+updated: 2024-06-27T02:29:09.954Z
 tags:
   - ai video
   - ai facebook
@@ -17,9 +17,7 @@ thumbnail: https://www.lifewire.com/thmb/CfFxZCTA5C0bz9vqx_XZjrsIMRQ=/400x300/fi
 
 ## Cross-Device: The Ultimate Tutorial for Scraping GIFs From FB
 
-# How to Download GIF from Facebook on PC, Android and iPhone
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# How to Download GIF from Facebook on PC, Android and iPhone ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 

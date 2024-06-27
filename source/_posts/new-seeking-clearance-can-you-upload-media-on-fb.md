@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Seeking Clearance  Can You Upload Media on FB?\""
-date: 2024-05-20T18:38:51.910Z
-updated: 2024-05-21T18:38:51.910Z
+date: 2024-06-26T02:29:27.218Z
+updated: 2024-06-27T02:29:27.218Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Seeking Clearance: Can You Upload Media on FB?\""
 excerpt: "\"This Article Describes [New] Seeking Clearance: Can You Upload Media on FB?\""
 keywords: "Facebook Media Policy,Media Upload Limits FB,Shareable Content Guidelines FB,Media Online Privacy FB,Graphic Media Restrictions FB,FB Video Upload Rules,Photo Sharing on Facebook FB"
-thumbnail: https://www.lifewire.com/thmb/aLu0em22yoHgKW-hxWh3nvXUZcc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Bluetoothspeaker-ca607b5d62c24178babf3eb5b9b876c3.jpg
+thumbnail: https://thmb.techidaily.com/05031c348e3a8b265ca81d9de600b6d3876929f7748d63bf7bb6a077bd78b2a6.jpg
 ---
 
 ## Seeking Clearance: Can You Upload Media on FB?

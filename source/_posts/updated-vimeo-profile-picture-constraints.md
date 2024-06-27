@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Vimeo Profile Picture Constraints"
-date: 2024-05-20T19:00:22.689Z
-updated: 2024-05-21T19:00:22.689Z
+date: 2024-06-26T02:29:20.742Z
+updated: 2024-06-27T02:29:20.742Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] Vimeo Profile Picture Constraints"
 excerpt: "This Article Describes [Updated] Vimeo Profile Picture Constraints"
 keywords: "Vimeo PP Limits,Profile Pic Constraints,Video Platform PP Rules,Vimeo Image Guidelines,Profile Picture Size Vimeo,Vimeo Video Profile,Vimeo Display Settings"
-thumbnail: https://www.lifewire.com/thmb/vQYVU40X1u_KDh2EhtQTxACNEhI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/chatgptlogin-d176b679eef94d49ab45a5b3ec340b5e.jpg
+thumbnail: https://thmb.techidaily.com/450ec1b84e72a24dc748a4aee1ff3d014e9229d42ab5bd65b8cf7e7b256ed53c.jpg
 ---
 
 ## Vimeo Profile Picture Constraints

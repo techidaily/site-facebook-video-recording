@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Micro-Movies on Facebook Galore\""
-date: 2024-05-20T19:07:26.304Z
-updated: 2024-05-21T19:07:26.304Z
+date: 2024-06-26T02:29:23.083Z
+updated: 2024-06-27T02:29:23.083Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes In 2024, Micro-Movies on Facebook Galore\""
 excerpt: "\"This Article Describes In 2024, Micro-Movies on Facebook Galore\""
 keywords: "FB Micro Movies,Movie Galore FB,Short Films FB,Social Media Flicks,Quick TV Shows FB,Digital FB Cinema,Online Film Flashes"
-thumbnail: https://www.lifewire.com/thmb/xkgMG-bnpvmxZip_ipwSLUGjfqk=/1000x333/filters:no_upscale():max_bytes(150000):strip_icc()/HowTo_Streaming-b1314997a00a440b991ad46d81d56038.png
+thumbnail: https://thmb.techidaily.com/03b50fa097007316bd728c0f1505911c6985b5446ee8e6c9838cd48c592632a7.png
 ---
 
 ## Micro-Movies on Facebook Galore
