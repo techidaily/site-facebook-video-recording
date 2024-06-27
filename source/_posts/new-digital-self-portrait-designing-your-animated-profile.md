@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Digital Self-Portrait  Designing Your Animated Profile\""
-date: 2024-05-20T18:43:31.316Z
-updated: 2024-05-21T18:43:31.316Z
+date: 2024-06-18T12:50:51.572Z
+updated: 2024-06-19T12:50:51.572Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Digital Self-Portrait: Designing Your Animated Profile\""
 excerpt: "\"This Article Describes [New] Digital Self-Portrait: Designing Your Animated Profile\""
 keywords: "\"Animate Self Portraits,Profile Design Art,Digital Self-Illustration,Animated Persona Creation,Personalized Avatar,Virtual Image Crafting,Animated Identity Sketch\""
-thumbnail: https://www.lifewire.com/thmb/ryNUpKy9NUZklFGZ1PWnjnlRSBI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/RazerLancehead-edf4c1f15db24c5da92170fb852d0d5d.jpg
+thumbnail: https://thmb.techidaily.com/526c473a4f2f84c7776ce16d41fe4812db866e7d193a0f319769e26791470115.jpg
 ---
 
 ## Digital Self-Portrait: Designing Your Animated Profile

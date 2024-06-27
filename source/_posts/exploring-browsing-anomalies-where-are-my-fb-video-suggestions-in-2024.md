@@ -1,7 +1,7 @@
 ---
 title: "\"Exploring Browsing Anomalies  Where Are My FB Video Suggestions, In 2024\""
-date: 2024-05-20T18:31:35.290Z
-updated: 2024-05-21T18:31:35.290Z
+date: 2024-06-18T12:50:49.156Z
+updated: 2024-06-19T12:50:49.156Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Exploring Browsing Anomalies: Where Are My FB Video Suggestions, In 2024\""
 excerpt: "\"This Article Describes Exploring Browsing Anomalies: Where Are My FB Video Suggestions, In 2024\""
 keywords: "Facebook Video Anomaly,FB Video Suggestions,Video Browse Irregularities,Social Media Video Glitches,Browsing Fb Video Issues,Anomalous FB Video Browsing,FB Video Suggestion Troubleshooting"
-thumbnail: https://www.lifewire.com/thmb/eh5Uc_gzKCVvn-08sTyP2bJc2uI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Cahlaflour1-31d410658870432f8ea92f42d16f89f8.jpeg
+thumbnail: https://thmb.techidaily.com/efe03172267db8e41dde950b174798601940a22588399da557fc77a3f3ce0d36.jpeg
 ---
 
 ## Exploring Browsing Anomalies: Where Are My FB Video Suggestions?

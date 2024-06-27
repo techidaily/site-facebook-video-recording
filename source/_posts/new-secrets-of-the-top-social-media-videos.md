@@ -1,7 +1,7 @@
 ---
 title: "[New] Secrets of the Top Social Media Videos"
-date: 2024-05-20T19:14:34.885Z
-updated: 2024-05-21T19:14:34.885Z
+date: 2024-06-18T12:50:49.932Z
+updated: 2024-06-19T12:50:49.932Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] Secrets of the Top Social Media Videos"
 excerpt: "This Article Describes [New] Secrets of the Top Social Media Videos"
 keywords: "\"Video SEO Tips,Social Media Marketing,Engaging Content Creation,Viral Video Strategies,Platform-Specific SEO,Boosting Video Visibility,Top Video Insights\""
-thumbnail: https://www.lifewire.com/thmb/6e-dHhpfl-OgzUpZXzufYG-qf-Y=/540x405/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/movie-night-at-home-with-popcorn_t20_yv3PA9-5c815f7fc9e77c0001fd5b49.jpg
+thumbnail: https://thmb.techidaily.com/d021ea19d35ef3673abfe0bc9bdff457eb34791e55514d7bc0ce5bafaca00aee.jpg
 ---
 
 ## Secrets of the Top Social Media Videos

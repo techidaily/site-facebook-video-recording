@@ -1,7 +1,7 @@
 ---
 title: "[New] Retrieving Your Liked Videos From Facebook for 2024"
-date: 2024-05-20T19:07:58.763Z
-updated: 2024-05-21T19:07:58.763Z
+date: 2024-06-18T12:50:53.721Z
+updated: 2024-06-19T12:50:53.721Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] Retrieving Your Liked Videos From Facebook for 2024"
 excerpt: "This Article Describes [New] Retrieving Your Liked Videos From Facebook for 2024"
 keywords: "Facebook Video Download,FB Like Video Retrieval,Remove Unliked Videos,Accessing Liked Videos,Retrieve FB Video Likes,FB Video Removal Guide,Unlike Video Reinstatement"
-thumbnail: https://www.lifewire.com/thmb/1X3sRGX1kbV-Ydn8ceXfqTlOH6I=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/african-american-woman-opening-packages-of-shoes-on-sofa-580503483-5a735094d8fdd50036b63f8a.jpg
+thumbnail: https://thmb.techidaily.com/9ca2eff6ae26123de716ede19623049b700dbda01116c41da9ae37331ba659b6.jpg
 ---
 
 ## Retrieving Your Liked Videos From Facebook

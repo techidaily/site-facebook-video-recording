@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Film for a Friendly FB Coverspace"
-date: 2024-05-20T19:34:44.872Z
-updated: 2024-05-21T19:34:44.872Z
+date: 2024-06-18T12:50:43.301Z
+updated: 2024-06-19T12:50:43.301Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes In 2024, Film for a Friendly FB Coverspace"
 excerpt: "This Article Describes In 2024, Film for a Friendly FB Coverspace"
 keywords: "Friendly Films,CoverSpace Movie,FRIENDLY Film Space,Coverspace Film,Friendly Cinema,FB Space Cover,FB Cinema Clip"
-thumbnail: https://www.lifewire.com/thmb/tmFYz3-a45XjOnstllYBhNxpyMM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/aether-6066d2f8168142fab48a9181cb188da7.jpg
+thumbnail: https://thmb.techidaily.com/42db5c6877cc90dcf8ab2d1fd7012cdb680249e89327096af45fe59619012883.jpg
 ---
 
 ## Film for a Friendly FB Coverspace

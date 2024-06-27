@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Permissions for Posting Videos on FB"
-date: 2024-05-20T18:55:24.364Z
-updated: 2024-05-21T18:55:24.364Z
+date: 2024-06-18T12:50:52.660Z
+updated: 2024-06-19T12:50:52.660Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes In 2024, Permissions for Posting Videos on FB"
 excerpt: "This Article Describes In 2024, Permissions for Posting Videos on FB"
 keywords: "Video FB Sharing Perms,FB Video Post Rights,Share FB Video Access,FB Post Video Consent,Access FB for Video Upload,Facebook Video Posting Permission,FB Video Permissions Update"
-thumbnail: https://www.lifewire.com/thmb/HT5maf4eHTE-8eexIKBPujtE7yc=/300x200/filters:no_upscale():max_bytes(150000):strip_icc()/woman-using-phone-in-pool-5c31541c46e0fb000132beb2.jpg
+thumbnail: https://thmb.techidaily.com/dccea8e74312ef3978115e47791b42d8d3af59ddef7b2d9a4c85759dfb53f1ee.jpg
 ---
 
 ## Permissions for Posting Videos on FB

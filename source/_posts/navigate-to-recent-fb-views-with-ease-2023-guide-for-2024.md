@@ -1,7 +1,7 @@
 ---
 title: "Navigate to Recent FB Views with Ease, 2023 Guide for 2024"
-date: 2024-05-20T19:40:36.438Z
-updated: 2024-05-21T19:40:36.438Z
+date: 2024-06-18T12:50:43.093Z
+updated: 2024-06-19T12:50:43.093Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes Navigate to Recent FB Views with Ease, 2023 Guide for 2024"
 excerpt: "This Article Describes Navigate to Recent FB Views with Ease, 2023 Guide for 2024"
 keywords: "Facebook View Tracking,FB Recent Activity Guide,Social Media Insight Tool,Easy FB History Access,FB Visits Tracker 2023,Analyze FB Engagement,Update FB Usage Habits"
-thumbnail: https://www.lifewire.com/thmb/tYwkSg_e9ADiBOgZ3RzB_4oGvlA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-116781276-57d9584e5f9b589b0ae3e357.jpg
+thumbnail: https://thmb.techidaily.com/ccdf50131a6b9e5675eea00d8176eeb8be6c7d5597ded286e2b977dc206141e5.jpg
 ---
 
 ## Navigate to Recent FB Views with Ease, 2023 Guide

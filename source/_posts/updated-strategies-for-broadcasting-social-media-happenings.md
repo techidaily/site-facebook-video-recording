@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Strategies for Broadcasting Social Media Happenings"
-date: 2024-05-20T19:09:50.420Z
-updated: 2024-05-21T19:09:50.420Z
+date: 2024-06-18T12:50:42.411Z
+updated: 2024-06-19T12:50:42.411Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] Strategies for Broadcasting Social Media Happenings"
 excerpt: "This Article Describes [Updated] Strategies for Broadcasting Social Media Happenings"
 keywords: "SoHM Broadcasting,Social Media Strat,Networked Event Plans,Media Happenings Growth,Engage Social Stories,Shareable Content Tips,Viral Social Events"
-thumbnail: https://www.lifewire.com/thmb/YzJitu2vyc9_NPcG_KvvNqSJAas=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/zoom-tim-fisher-8c4ea96e3dac47f4856ba67b81de9eaa.jpg
+thumbnail: https://thmb.techidaily.com/8607afd112c21db80344a74ef1409282fa825e22bfc978ed73479483276176d5.jpg
 ---
 
 ## Strategies for Broadcasting Social Media Happenings

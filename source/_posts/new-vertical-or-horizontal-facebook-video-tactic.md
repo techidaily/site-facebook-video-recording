@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Vertical or Horizontal  Facebook Video Tactic\""
-date: 2024-05-20T20:03:03.046Z
-updated: 2024-05-21T20:03:03.046Z
+date: 2024-06-18T12:50:46.984Z
+updated: 2024-06-19T12:50:46.984Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Vertical or Horizontal: Facebook Video Tactic\""
 excerpt: "\"This Article Describes [New] Vertical or Horizontal: Facebook Video Tactic\""
 keywords: "Vertical FB Video Strategy,Horizontal FB Video Approach,FB Video Orientation Tactics,Facebook Video Layout Choice,FB Video Posting Direction,Social Media Video Angle,Content Distribution"
-thumbnail: https://www.lifewire.com/thmb/bUgwWBmVwo2R1WJT-qkM52ppdCc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/ipad-pro-pencil-56a533763df78cf77286e0e0.png
+thumbnail: https://thmb.techidaily.com/ef69c6cfc05813b51fd415fbeca882846dc473b99199e876bd020898984fe0d1.png
 ---
 
 ## Vertical or Horizontal: Facebook Video Tactic

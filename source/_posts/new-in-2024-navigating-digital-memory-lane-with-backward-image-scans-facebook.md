@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Navigating Digital Memory Lane with Backward Image Scans (Facebook)"
-date: 2024-05-20T18:31:03.527Z
-updated: 2024-05-21T18:31:03.527Z
+date: 2024-06-18T12:50:45.753Z
+updated: 2024-06-19T12:50:45.753Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] In 2024, Navigating Digital Memory Lane with Backward Image Scans (Facebook)"
 excerpt: "This Article Describes [New] In 2024, Navigating Digital Memory Lane with Backward Image Scans (Facebook)"
 keywords: "Digital Memories Scanning,Face Recognition Images,Online Photo Retrieval,Social Media Browsing,Reverse Picture Analysis,Memory Lane Image Tools,Backward Image Syncing (Facebook)"
-thumbnail: https://www.lifewire.com/thmb/OvgDF4DN2kQY2wqfN-oCDktYpM4=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/best-time-of-day-to-instagram-3485858-1-5bb3cc9046e0fb002612537d.jpg
+thumbnail: https://thmb.techidaily.com/485101ae8f555e145174a15eda6071c25617b2b00c96089d339b8e4537366b75.jpg
 ---
 
 ## Navigating Digital Memory Lane with Backward Image Scans (Facebook)
@@ -45,7 +45,7 @@ Facebook provides each image with a unique Facebook Photo ID. Have you ever noti
 
 **Step 01:** First of all, we have to locate the photo ID of the image. To do that, navigate to the image and right-click on it. Now select "Copy Image Address." It will copy the link to the image. Now paste it somewhere like Word or Notepad. To see how it looks like. You can see three sets of numbers that are followed by "jpg" or "png."
 
-![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-photo-id-step1.png)
+![Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-photo-id-step1.png)
 
 _fbid=65502964574389&set=a.846739673xxxxx.2345.10000116735844&type_
 
@@ -57,7 +57,7 @@ Now copy the middle set of numbers and paste it after this URL, and hit enter.
 
 It will lead you to the profile which contains the image.
 
-![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-photo-id-step2.png)
+![Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-photo-id-step2.png)
 
  ---
 
@@ -67,13 +67,13 @@ One of the easiest ways to find information about an image is using platforms sp
 
 **Step 01:** Open <www.tineye.com> in your browser.
 
-![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-tineye-poster.png)
+![Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-tineye-poster.png)
 
 **Step 02:** You can have a reverse image search Facebook by uploading the image from your device or by pasting the URL of the image into the search box. Choose any of the methods that best suit your needs and hit the "Search" Icon.
 
 It will bring you similar as well as some related sources on the internet.
 
-![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-tineye-poster-step2.png)
+![Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-tineye-poster-step2.png)
 
  ---
 
@@ -83,11 +83,11 @@ Google is known for its search engine but most people are unaware of the feature
 
 **Step 01:** Navigate to images.google.com
 
-![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-google-images-step1.png)
+![Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-google-images-step1.png)
 
 **Step 02:** Hit on the "Camera" icon beside the search box. Now click on Search by Google. It will provide you with two options for reverse image search, upload the image or paste the URL of the image. If you have the image saved on your device, then upload it on Google.
 
-![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-google-images-step2.png)
+![Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-google-images-step2.png)
 
 If the Facebook profile that contains the image doesn't have any restrictions, you can see the Facebook profile in the search results. It will show you all the related websites and pages that contain the same image. It will lead to the profile that contains the image you have searched for.
 
@@ -129,7 +129,7 @@ Facebook provides each image with a unique Facebook Photo ID. Have you ever noti
 
 **Step 01:** First of all, we have to locate the photo ID of the image. To do that, navigate to the image and right-click on it. Now select "Copy Image Address." It will copy the link to the image. Now paste it somewhere like Word or Notepad. To see how it looks like. You can see three sets of numbers that are followed by "jpg" or "png."
 
-![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-photo-id-step1.png)
+![Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-photo-id-step1.png)
 
 _fbid=65502964574389&set=a.846739673xxxxx.2345.10000116735844&type_
 
@@ -141,7 +141,7 @@ Now copy the middle set of numbers and paste it after this URL, and hit enter.
 
 It will lead you to the profile which contains the image.
 
-![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-photo-id-step2.png)
+![Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-photo-id-step2.png)
 
  ---
 
@@ -151,13 +151,13 @@ One of the easiest ways to find information about an image is using platforms sp
 
 **Step 01:** Open <www.tineye.com> in your browser.
 
-![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-tineye-poster.png)
+![Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-tineye-poster.png)
 
 **Step 02:** You can have a reverse image search Facebook by uploading the image from your device or by pasting the URL of the image into the search box. Choose any of the methods that best suit your needs and hit the "Search" Icon.
 
 It will bring you similar as well as some related sources on the internet.
 
-![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-tineye-poster-step2.png)
+![Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-tineye-poster-step2.png)
 
  ---
 
@@ -167,11 +167,11 @@ Google is known for its search engine but most people are unaware of the feature
 
 **Step 01:** Navigate to images.google.com
 
-![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-google-images-step1.png)
+![Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-google-images-step1.png)
 
 **Step 02:** Hit on the "Camera" icon beside the search box. Now click on Search by Google. It will provide you with two options for reverse image search, upload the image or paste the URL of the image. If you have the image saved on your device, then upload it on Google.
 
-![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-google-images-step2.png)
+![Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-google-images-step2.png)
 
 If the Facebook profile that contains the image doesn't have any restrictions, you can see the Facebook profile in the search results. It will show you all the related websites and pages that contain the same image. It will lead to the profile that contains the image you have searched for.
 
@@ -213,7 +213,7 @@ Facebook provides each image with a unique Facebook Photo ID. Have you ever noti
 
 **Step 01:** First of all, we have to locate the photo ID of the image. To do that, navigate to the image and right-click on it. Now select "Copy Image Address." It will copy the link to the image. Now paste it somewhere like Word or Notepad. To see how it looks like. You can see three sets of numbers that are followed by "jpg" or "png."
 
-![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-photo-id-step1.png)
+![Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-photo-id-step1.png)
 
 _fbid=65502964574389&set=a.846739673xxxxx.2345.10000116735844&type_
 
@@ -225,7 +225,7 @@ Now copy the middle set of numbers and paste it after this URL, and hit enter.
 
 It will lead you to the profile which contains the image.
 
-![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-photo-id-step2.png)
+![Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-photo-id-step2.png)
 
  ---
 
@@ -235,13 +235,13 @@ One of the easiest ways to find information about an image is using platforms sp
 
 **Step 01:** Open <www.tineye.com> in your browser.
 
-![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-tineye-poster.png)
+![Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-tineye-poster.png)
 
 **Step 02:** You can have a reverse image search Facebook by uploading the image from your device or by pasting the URL of the image into the search box. Choose any of the methods that best suit your needs and hit the "Search" Icon.
 
 It will bring you similar as well as some related sources on the internet.
 
-![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-tineye-poster-step2.png)
+![Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-tineye-poster-step2.png)
 
  ---
 
@@ -251,11 +251,11 @@ Google is known for its search engine but most people are unaware of the feature
 
 **Step 01:** Navigate to images.google.com
 
-![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-google-images-step1.png)
+![Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-google-images-step1.png)
 
 **Step 02:** Hit on the "Camera" icon beside the search box. Now click on Search by Google. It will provide you with two options for reverse image search, upload the image or paste the URL of the image. If you have the image saved on your device, then upload it on Google.
 
-![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-google-images-step2.png)
+![Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-google-images-step2.png)
 
 If the Facebook profile that contains the image doesn't have any restrictions, you can see the Facebook profile in the search results. It will show you all the related websites and pages that contain the same image. It will lead to the profile that contains the image you have searched for.
 
@@ -297,7 +297,7 @@ Facebook provides each image with a unique Facebook Photo ID. Have you ever noti
 
 **Step 01:** First of all, we have to locate the photo ID of the image. To do that, navigate to the image and right-click on it. Now select "Copy Image Address." It will copy the link to the image. Now paste it somewhere like Word or Notepad. To see how it looks like. You can see three sets of numbers that are followed by "jpg" or "png."
 
-![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-photo-id-step1.png)
+![Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-photo-id-step1.png)
 
 _fbid=65502964574389&set=a.846739673xxxxx.2345.10000116735844&type_
 
@@ -309,7 +309,7 @@ Now copy the middle set of numbers and paste it after this URL, and hit enter.
 
 It will lead you to the profile which contains the image.
 
-![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-photo-id-step2.png)
+![Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-photo-id-step2.png)
 
  ---
 
@@ -319,13 +319,13 @@ One of the easiest ways to find information about an image is using platforms sp
 
 **Step 01:** Open <www.tineye.com> in your browser.
 
-![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-tineye-poster.png)
+![Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-tineye-poster.png)
 
 **Step 02:** You can have a reverse image search Facebook by uploading the image from your device or by pasting the URL of the image into the search box. Choose any of the methods that best suit your needs and hit the "Search" Icon.
 
 It will bring you similar as well as some related sources on the internet.
 
-![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-tineye-poster-step2.png)
+![Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-tineye-poster-step2.png)
 
  ---
 
@@ -335,11 +335,11 @@ Google is known for its search engine but most people are unaware of the feature
 
 **Step 01:** Navigate to images.google.com
 
-![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-google-images-step1.png)
+![Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-google-images-step1.png)
 
 **Step 02:** Hit on the "Camera" icon beside the search box. Now click on Search by Google. It will provide you with two options for reverse image search, upload the image or paste the URL of the image. If you have the image saved on your device, then upload it on Google.
 
-![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-google-images-step2.png)
+![Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-google-images-step2.png)
 
 If the Facebook profile that contains the image doesn't have any restrictions, you can see the Facebook profile in the search results. It will show you all the related websites and pages that contain the same image. It will lead to the profile that contains the image you have searched for.
 

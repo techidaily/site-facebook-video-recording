@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Uncovering Old Social Media Narratives on Laptops and Mobile Devices\""
-date: 2024-05-20T19:10:32.739Z
-updated: 2024-05-21T19:10:32.739Z
+date: 2024-06-18T12:50:47.271Z
+updated: 2024-06-19T12:50:47.271Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] 2024 Approved: Uncovering Old Social Media Narratives on Laptops and Mobile Devices\""
 excerpt: "\"This Article Describes [New] 2024 Approved: Uncovering Old Social Media Narratives on Laptops and Mobile Devices\""
 keywords: "Old Social Media Trends,Digital History Insights,Ancient Chat Patterns,Historical Device Usage,Past Tech Interaction,Vintage Network Analysis,Antique Online Behavior"
-thumbnail: https://www.lifewire.com/thmb/7R8mQnuJP3DqKFFTuMg5qMVDNpE=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/1205159Womanholdinggenericsmartphone-9733a5bbd64041d298df8da874a9005d.jpg
+thumbnail: https://thmb.techidaily.com/8b331b35c6d777fdf8e0a1e1e6e83a2b89a91f457eb27f49b343a7f996ac260f.jpg
 ---
 
 ## Uncovering Old Social Media Narratives on Laptops and Mobile Devices

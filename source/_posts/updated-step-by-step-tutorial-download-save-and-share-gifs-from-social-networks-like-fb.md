@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Step-by-Step Tutorial  Download, Save, and Share GIFs From Social Networks Like FB\""
-date: 2024-05-20T19:02:40.986Z
-updated: 2024-05-21T19:02:40.986Z
+date: 2024-06-18T12:50:53.057Z
+updated: 2024-06-19T12:50:53.057Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] Step-by-Step Tutorial: Download, Save, and Share GIFs From Social Networks Like FB\""
 excerpt: "\"This Article Describes [Updated] Step-by-Step Tutorial: Download, Save, and Share GIFs From Social Networks Like FB\""
 keywords: "\"Facebook GIF Download,Save Social Media GIFs,Sharing GIF From FB,FB GIF Saving Steps,Download GIF From Networks,Share GIF on Platforms,Tutorial: Social GIF Save\""
-thumbnail: https://www.lifewire.com/thmb/MDGL2kMJllFexcxpsA_p345aX0g=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/The-Conjuring-3-3d34f5a-scaled-96b4939261ee4274a8be036e7e6aa405.jpeg
+thumbnail: https://thmb.techidaily.com/e3cfe2024e8223233dca02c9346a88bd3c9122571566316abe24ad6c80cbdaa7.jpeg
 ---
 
 ## Step-by-Step Tutorial: Download, Save, and Share GIFs From Social Networks Like FB

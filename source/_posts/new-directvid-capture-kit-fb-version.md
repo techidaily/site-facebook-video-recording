@@ -1,7 +1,7 @@
 ---
 title: "[New] DirectVid Capture Kit, FB Version"
-date: 2024-05-20T18:34:56.229Z
-updated: 2024-05-21T18:34:56.229Z
+date: 2024-06-18T12:50:42.492Z
+updated: 2024-06-19T12:50:42.492Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] DirectVid Capture Kit, FB Version"
 excerpt: "This Article Describes [New] DirectVid Capture Kit, FB Version"
 keywords: "Direct Vid Recorder,Video Capture Kit,HD DirectCapture,DirectVideo Pro,Professional Videography,DirectVid Accessories,FB VideoKit"
-thumbnail: https://www.lifewire.com/thmb/z3uV4BuNDzRDQ7ifJS6KaTNCHfs=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/001-how-to-fix-google-maps-not-working-4802364-966f13bdac7b41f9a9d357d428e168f8.jpg
+thumbnail: https://thmb.techidaily.com/b366957cb2f5f0bbc845d34641faf6413a6383aa8049e6555ff0f80bdf97ed47.jpg
 ---
 
 ## DirectVid Capture Kit, FB Version

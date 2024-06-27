@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Horizontal/Vertical  Selecting Facebook Video Format for 2024\""
-date: 2024-05-20T19:25:49.861Z
-updated: 2024-05-21T19:25:49.861Z
+date: 2024-06-18T12:50:52.403Z
+updated: 2024-06-19T12:50:52.403Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] Horizontal/Vertical: Selecting Facebook Video Format for 2024\""
 excerpt: "\"This Article Describes [Updated] Horizontal/Vertical: Selecting Facebook Video Format for 2024\""
 keywords: "FB Video Formats Selection,Horizontal Vs Vertical Facebook,Optimal FB Video Layout,Choosing FB Video Orientation,Best FB Video Display,Adapt FB Video Styles,FB Format for Videos Content"
-thumbnail: https://www.lifewire.com/thmb/rfNHMWk0UUPWr_UnZFdoraz8Kkg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/DiskDriveStethoscopeGettyImages-585acf823df78ce2c3ed2484.jpg
+thumbnail: https://thmb.techidaily.com/fa651493e7721486825be5cb6becb6ac17b9f66023f1145d44d12b2eec67b831.jpg
 ---
 
 ## Horizontal/Vertical: Selecting Facebook Video Format

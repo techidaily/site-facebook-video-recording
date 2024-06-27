@@ -1,7 +1,7 @@
 ---
 title: "[New] Fiverr Cover Content Proportions"
-date: 2024-05-20T18:35:02.420Z
-updated: 2024-05-21T18:35:02.420Z
+date: 2024-06-18T12:50:48.393Z
+updated: 2024-06-19T12:50:48.393Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] Fiverr Cover Content Proportions"
 excerpt: "This Article Describes [New] Fiverr Cover Content Proportions"
 keywords: "Fiverr Creative Ratios,Fiverr Service Portioning,Fiverr Design Proportion,Fiverr Work Segments,Fiverr Content Split,Balanced Fiverr Tasks,Fiverr Job Distribution"
-thumbnail: https://www.lifewire.com/thmb/mG1jEzWorlq7_ZhXbAoV8fWxZ_g=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/481205627-5804f62c3df78cbc289797fb.jpg
+thumbnail: https://thmb.techidaily.com/de1e2dcf5aeceec6efa479819bb7032cddf48c94924e3a65a00624e5b7030be4.jpg
 ---
 
 ## Fiverr Cover Content Proportions

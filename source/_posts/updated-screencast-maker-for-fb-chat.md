@@ -1,7 +1,7 @@
 ---
 title: "[Updated] ScreenCast Maker for FB Chat"
-date: 2024-05-20T19:01:31.078Z
-updated: 2024-05-21T19:01:31.078Z
+date: 2024-06-18T12:50:42.549Z
+updated: 2024-06-19T12:50:42.549Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] ScreenCast Maker for FB Chat"
 excerpt: "This Article Describes [Updated] ScreenCast Maker for FB Chat"
 keywords: "\"Facebook Live Caster,FB Video Transmitter,Chat to Screen Share,Direct FB Screencasting,Instant Chat Broadcast,Real-Time FB Streamer,Easy FB Screencast\""
-thumbnail: https://www.lifewire.com/thmb/PNjrJl-v_jM7H_DcU9Mu-WK46xM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/IMG_20210219_123925966_HDR-4added339430461499cdb5226239be47.jpg
+thumbnail: https://thmb.techidaily.com/9f88f4d439bd19afe08962ae532d3a6f41b689b2a4dc10b0fa384c3313d41768.jpg
 ---
 
 ## ScreenCast Maker for FB Chat

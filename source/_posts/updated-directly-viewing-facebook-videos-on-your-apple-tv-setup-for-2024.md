@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Directly Viewing Facebook Videos on Your Apple TV Setup for 2024"
-date: 2024-05-20T19:01:46.301Z
-updated: 2024-05-21T19:01:46.301Z
+date: 2024-06-18T12:50:47.162Z
+updated: 2024-06-19T12:50:47.162Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] Directly Viewing Facebook Videos on Your Apple TV Setup for 2024"
 excerpt: "This Article Describes [Updated] Directly Viewing Facebook Videos on Your Apple TV Setup for 2024"
 keywords: "FB Video Streaming,Apple TV Play,Direct Media Watch,OTA Facebook View,Apple Social Screen,Live FB on Apple,IOS Video Access"
-thumbnail: https://www.lifewire.com/thmb/EyLyxngomIHjNeq1Cxo1twyGMsI=/2000x0/filters:no_upscale():max_bytes(150000):strip_icc()/SoftwareandApps_GettyImages-1318174723_OscarWong_CROPPED-0f8969cb51804bae823c37f02a6cd3e8.jpg
+thumbnail: https://thmb.techidaily.com/e8d04162a361e101c6d5fe7cceb85fa9aae79c5e50584f8b8db01d521f6c1c1d.jpg
 ---
 
 ## Directly Viewing Facebook Videos on Your Apple TV Setup

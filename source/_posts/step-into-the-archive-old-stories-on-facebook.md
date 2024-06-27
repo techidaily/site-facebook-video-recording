@@ -1,7 +1,7 @@
 ---
 title: "\"Step Into the Archive  Old Stories on Facebook\""
-date: 2024-05-20T19:02:18.334Z
-updated: 2024-05-21T19:02:18.334Z
+date: 2024-06-18T12:50:53.327Z
+updated: 2024-06-19T12:50:53.327Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Step Into the Archive: Old Stories on Facebook\""
 excerpt: "\"This Article Describes Step Into the Archive: Old Stories on Facebook\""
 keywords: "Archive Storytelling,Social Media Archives,Nostalgic Facebook Content,Digital History Snippets,Vintage Posts Collection,Old Memories Online,Retro Facebook Stories"
-thumbnail: https://www.lifewire.com/thmb/J824Ra8KQFbLaWC_ATGxX22EzOA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/trends_MontyRakusen_Getty-5a4aa079482c5200362b0987.jpg
+thumbnail: https://thmb.techidaily.com/6b70f639163cfe01d6518c08ef2693a5f686b7373d5c47d7a53f258bef450907.jpg
 ---
 
 ## Step Into the Archive: Old Stories on Facebook
