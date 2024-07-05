@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Chrome's Video Performance Boost for Social Media for 2024"
-date: 2024-05-20T19:40:52.659Z
-updated: 2024-05-21T19:40:52.659Z
+date: 2024-07-04T02:05:55.402Z
+updated: 2024-07-05T02:05:55.402Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] Chrome's Video Performance Boost for Social Media for 2024"
 excerpt: "This Article Describes [Updated] Chrome's Video Performance Boost for Social Media for 2024"
 keywords: "Chrome Video Speed Up,Social Media Streaming,Enhanced Video Chromium,Chromebook Optimized Vids,Faster Web Browsing,Social Media Video Boost,Efficient Chrome Videos"
-thumbnail: https://www.lifewire.com/thmb/ec5XpWKf62z1Ou0u0V_qt52PGXs=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/shutterstock_331471589-using-facebook-585c074c3df78ce2c34f61c8.jpg
+thumbnail: https://thmb.techidaily.com/da3a565149456b725f254b5d80c3b1f1c06d74a5fc993d32dbb395957f6fba49.jpg
 ---
 
 ## Chrome's Video Performance Boost for Social Media

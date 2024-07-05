@@ -1,7 +1,7 @@
 ---
 title: "\"Most Shared Moments  Social's Star Vids\""
-date: 2024-05-20T19:18:58.167Z
-updated: 2024-05-21T19:18:58.167Z
+date: 2024-07-04T02:05:45.584Z
+updated: 2024-07-05T02:05:45.584Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Most Shared Moments: Social's Star Vids\""
 excerpt: "\"This Article Describes Most Shared Moments: Social's Star Vids\""
 keywords: "Star Vid Sharing,Viral Moments,Share Top Videos,Popular Video Stars,Social Media Highlights,Favorite Star Vids,Most Shared Videos"
-thumbnail: https://www.lifewire.com/thmb/jMUwjhD5E_K6IoDuBpUXPdSSank=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/what-comes-with-the-nintendo-switch-5113752-dac1b1a21ded4322969307b942a600eb.jpg
+thumbnail: https://thmb.techidaily.com/a08727f11a7832f787474e1a64a135e87ab43cd2d3040a1084f509333c65c397.jpg
 ---
 
 ## Most Shared Moments: Social's Star Vids

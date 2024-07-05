@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Sifting Through Social Media Archives  A Guide for Laptops/Phones\""
-date: 2024-05-20T19:55:33.937Z
-updated: 2024-05-21T19:55:33.937Z
+date: 2024-07-04T02:05:50.069Z
+updated: 2024-07-05T02:05:50.069Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Sifting Through Social Media Archives: A Guide for Laptops/Phones\""
 excerpt: "\"This Article Describes [New] Sifting Through Social Media Archives: A Guide for Laptops/Phones\""
 keywords: "\"Social Media Archive Search,Mobile Social Research,Phones Data Sifting,Laptop Social Exploration,Digital Media Archives,Phone-Based Social Analysis,Archiving Social Content\""
-thumbnail: https://www.lifewire.com/thmb/9P6TB9sqO-6Yq23O2BOj91c-Cvg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-541365354-5c8ad42246e0fb00014a9687.jpg
+thumbnail: https://thmb.techidaily.com/bfe8f97d519484170998bced830c25ea7c96c9f9fefb2b304db02c765d66484d.jpg
 ---
 
 ## Sifting Through Social Media Archives: A Guide for Laptops/Phones

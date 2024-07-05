@@ -1,7 +1,7 @@
 ---
 title: "[New] Examining Copyright Implications of Media Sharing via Social Networks"
-date: 2024-05-20T19:28:42.181Z
-updated: 2024-05-21T19:28:42.181Z
+date: 2024-07-04T02:05:54.733Z
+updated: 2024-07-05T02:05:54.733Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] Examining Copyright Implications of Media Sharing via Social Networks"
 excerpt: "This Article Describes [New] Examining Copyright Implications of Media Sharing via Social Networks"
 keywords: "Media Sharing Law,Social Network Rights,Copyright Online,IP Digital Access,Content Ownership,NetMedia Legalities,Intellectual Property Sharing"
-thumbnail: https://www.lifewire.com/thmb/4rrIDG7880IVGiEmcN8e0zeGrqQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Robothandholdinganapple-fbe6ff482ed641e188dd6650b9ac132e.jpg
+thumbnail: https://thmb.techidaily.com/8e153531bfb1cc2249d2aa88119afd6c59e7a577b57f16e2feb19e964db9e9c8.jpg
 ---
 
 ## Examining Copyright Implications of Media Sharing via Social Networks

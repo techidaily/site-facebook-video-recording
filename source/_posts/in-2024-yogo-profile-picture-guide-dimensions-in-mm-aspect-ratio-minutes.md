@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, YoGo Profile Picture Guide  Dimensions in Mm², Aspect Ratio, Minutes\""
-date: 2024-05-20T19:14:48.373Z
-updated: 2024-05-21T19:14:48.373Z
+date: 2024-07-04T02:05:53.280Z
+updated: 2024-07-05T02:05:53.280Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes In 2024, YoGo Profile Picture Guide: Dimensions in Mm², Aspect Ratio, Minutes\""
 excerpt: "\"This Article Describes In 2024, YoGo Profile Picture Guide: Dimensions in Mm², Aspect Ratio, Minutes\""
 keywords: "Yogopic Dims Guide,Pics Profiles Guide,Aspect Ratio Guide,Profile Pic Sizes,Mm² Picture Guide,Photo Profile Guide,Minutes in Pics Guide"
-thumbnail: https://www.lifewire.com/thmb/TTQs-owdidJ3vVxwHNq2QLaJE5k=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-1124963889-d2e00bd6bec643449b4fe87ca86104d8.jpg
+thumbnail: https://thmb.techidaily.com/5ed909f597267ef924f41dbe3db988e7da363a5d5c3d20cd43f4003c2eedf878.jpg
 ---
 
 ## YoGo Profile Picture Guide: Dimensions in Mm², Aspect Ratio, Minutes

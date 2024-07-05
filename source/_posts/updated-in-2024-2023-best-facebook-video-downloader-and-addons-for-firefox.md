@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, 2023 | Best Facebook Video Downloader And Addons for Firefox"
-date: 2024-05-20T19:20:56.475Z
-updated: 2024-05-21T19:20:56.475Z
+date: 2024-07-04T02:05:49.767Z
+updated: 2024-07-05T02:05:49.767Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] In 2024, 2023 | Best Facebook Video Downloader And Addons for Firefox"
 excerpt: "This Article Describes [Updated] In 2024, 2023 | Best Facebook Video Downloader And Addons for Firefox"
 keywords: "\"FB Video Download,FB Downloader Addon,Firefox Video Extractor,High-Quality FB Videos,Efficient FB Video Tools,Free FB Video Extraction,Advanced FF Video Ads\""
-thumbnail: https://www.lifewire.com/thmb/_zRh-AGrdlf_tw2GGE_lGwA-SOU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/MonicaKang-68f114568a6b4ef98603bc5154109387.jpg
+thumbnail: https://thmb.techidaily.com/a4fdcd80183f244d65d1a43dcdc553851a248e6cf760faf0d85aa4162c1de5de.jpg
 ---
 
 ## 2023 | Best Facebook Video Downloader And Addons for Firefox

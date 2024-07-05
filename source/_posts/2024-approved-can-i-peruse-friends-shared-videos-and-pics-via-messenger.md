@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Can I Peruse Friends' Shared Videos & Pics via Messenger?\""
-date: 2024-05-20T20:07:10.505Z
-updated: 2024-05-21T20:07:10.505Z
+date: 2024-07-04T02:05:54.849Z
+updated: 2024-07-05T02:05:54.849Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Can I Peruse Friends' Shared Videos & Pics via Messenger?\""
 excerpt: "\"This Article Describes 2024 Approved: Can I Peruse Friends' Shared Videos & Pics via Messenger?\""
 keywords: "Messenger Video Sharing,Share Photos on Messenger,View Contacts Media,Access Chat Content,Shared Media in Messages,See Friends' Posts via Messenger,Messenger Privacy Concerns"
-thumbnail: https://www.lifewire.com/thmb/BgslvQpXBZ5ETcIqz3ZmP1x5YnE=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/woman-driving-car-56a634855f9b58b7d0e066ee.jpg
+thumbnail: https://thmb.techidaily.com/17c25677d8b6f855960d685398c90f557dfcb8867eadfe8568f79af44cbea910.jpg
 ---
 
 ## Can I Peruse Friends' Shared Videos & Pics via Messenger?

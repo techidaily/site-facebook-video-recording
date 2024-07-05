@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Bridging Social Media  Posting Tweets on FB\""
-date: 2024-05-20T18:37:49.944Z
-updated: 2024-05-21T18:37:49.944Z
+date: 2024-07-04T02:05:47.238Z
+updated: 2024-07-05T02:05:47.238Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] In 2024, Bridging Social Media: Posting Tweets on FB\""
 excerpt: "\"This Article Describes [New] In 2024, Bridging Social Media: Posting Tweets on FB\""
 keywords: "\"FB Tweet Sharing,Social Media Integration,Cross-Platform Messaging,Twitter to Facebook Links,Social Network Connectivity,Multiplatform Engagement,Social Media Posting Strategies,Share Tweets FB,Integrate Social,Link Twitter/FB,Network Crosslink,Connect Platforms,Engage Multiplatform,Post Strategies Social\""
-thumbnail: https://www.lifewire.com/thmb/DyoHit2PNu7-aSHxtkhq-lAOR7c=/540x405/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-459261809-357446c3aca34ee38c08d3aebe7502f3.jpg
+thumbnail: https://thmb.techidaily.com/f00def1c04cb418f21da5c60f199b078da943127e970aa7acf9eb30479f71c91.jpg
 ---
 
 ## Bridging Social Media: Posting Tweets on FB

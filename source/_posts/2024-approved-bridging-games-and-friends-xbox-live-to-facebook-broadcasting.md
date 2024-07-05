@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Bridging Games and Friends  Xbox Live to Facebook Broadcasting\""
-date: 2024-05-20T20:07:08.374Z
-updated: 2024-05-21T20:07:08.374Z
+date: 2024-07-04T02:05:51.812Z
+updated: 2024-07-05T02:05:51.812Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Bridging Games and Friends: Xbox Live to Facebook Broadcasting\""
 excerpt: "\"This Article Describes 2024 Approved: Bridging Games and Friends: Xbox Live to Facebook Broadcasting\""
 keywords: "\"Xbox-Live-Gaming,Social-Xbox-Network,Gamers-Facebook-Streams,Online-Gameplay-Broadcast,Cross-Platform-Socializing,Gaming-Community-Connect,Live-Gaming-Integration\""
-thumbnail: https://www.lifewire.com/thmb/7iSqR9T6Aul7nVcsld8FAGRFQ6k=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-1149123484-a277077c6bb643caaf22a94a39dfc15d.jpg
+thumbnail: https://thmb.techidaily.com/b940b6b0f5ea7e32cad1821c53c7dd63eece1d15c1851d2a65f8ffeb1e28c4c2.jpg
 ---
 
 ## Bridging Games and Friends: Xbox Live to Facebook Broadcasting
@@ -44,11 +44,11 @@ The Windows 10 OS comes with special Xbox features which includes the capacity t
 
 a. For this you need to go to the settings of your Xbox and then choose Preferences. Now click on the box where it says “Allow game streaming to other devices”.
 
-![game streaming ](https://images.wondershare.com/filmora/article-images/game-streaming.jpg)
+![game streaming](https://images.wondershare.com/filmora/article-images/game-streaming.jpg)
 
 b. Now you have to enable your smartglass connection. This can be done only from the profiles which are signed into your Xbox device or from a SmartGlass device.
 
-![profiles signed ](https://images.wondershare.com/filmora/article-images/profiles-signed.jpg)
+![profiles signed](https://images.wondershare.com/filmora/article-images/profiles-signed.jpg)
 
 **Step 2: Connect the Xbox one to the Windows 10 computer**
 
@@ -58,15 +58,15 @@ b. Now go to the panel on the left hand side and click on **‘connect’**.
 
 c. Your home network is going to be scanned by the Xbox software for any Xbox console present. Select the name of the console with which you would like to connect. Ensure that the console and the Windows pc are on one network.
 
-![Select the name ](https://images.wondershare.com/filmora/article-images/select-the-name.jpg)
+![Select the name](https://images.wondershare.com/filmora/article-images/select-the-name.jpg)
 
 d. Once the connection is established the icons would indicate that and you will find new power, streaming and media remote options. You will also be able to remotely control your console. Now the controller and the Click Stream needs to be connected so as to play your Xbox games on your Windows computer.
 
-![new options ](https://images.wondershare.com/filmora/article-images/new-options.jpg)
+![new options](https://images.wondershare.com/filmora/article-images/new-options.jpg)
 
 ### Method 2:Streaming Xbox to computer with a capture card
 
-You can find many [capture cards](https://www.elgato.com/en/gaming)in the market which would allow you to stream your Xbox onto your computer without altering its quality. HD60 Pro is one of those capture cards which offers perfect streaming and optimum control for an enhanced gaming experience.
+You can find many [capture cards](https://www.elgato.com/en/gaming) in the market which would allow you to stream your Xbox onto your computer without altering its quality. HD60 Pro is one of those capture cards which offers perfect streaming and optimum control for an enhanced gaming experience.
 
 ## Use Wirecast or OBS to stream your desktop to Facebook
 
@@ -78,7 +78,7 @@ Once all is set up you can live stream you desktop screen to facebook, we are no
 
 **Cons**\- It doesn’t offer any support and it would take you a long time to master the settings.
 
-![OBS ](https://images.wondershare.com/filmora/article-images/obs.jpg)
+![OBS](https://images.wondershare.com/filmora/article-images/obs.jpg)
 
 [Wirecast](http://www.telestream.net/wirecast/overview.htm) \- would allow you to capture, produce and stream content from a number of input devices including Xbox, iOS cameras, computer etc. The Wirecast Gameshow can be used for streaming high quality computer games in full HD.
 
@@ -86,7 +86,7 @@ Once all is set up you can live stream you desktop screen to facebook, we are no
 
 **Cons** It is way too expensive for normal gamers.
 
-![ Wirecast](https://images.wondershare.com/filmora/article-images/wirecast.jpg)
+![Wirecast](https://images.wondershare.com/filmora/article-images/wirecast.jpg)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -119,11 +119,11 @@ The Windows 10 OS comes with special Xbox features which includes the capacity t
 
 a. For this you need to go to the settings of your Xbox and then choose Preferences. Now click on the box where it says “Allow game streaming to other devices”.
 
-![game streaming ](https://images.wondershare.com/filmora/article-images/game-streaming.jpg)
+![game streaming](https://images.wondershare.com/filmora/article-images/game-streaming.jpg)
 
 b. Now you have to enable your smartglass connection. This can be done only from the profiles which are signed into your Xbox device or from a SmartGlass device.
 
-![profiles signed ](https://images.wondershare.com/filmora/article-images/profiles-signed.jpg)
+![profiles signed](https://images.wondershare.com/filmora/article-images/profiles-signed.jpg)
 
 **Step 2: Connect the Xbox one to the Windows 10 computer**
 
@@ -133,15 +133,15 @@ b. Now go to the panel on the left hand side and click on **‘connect’**.
 
 c. Your home network is going to be scanned by the Xbox software for any Xbox console present. Select the name of the console with which you would like to connect. Ensure that the console and the Windows pc are on one network.
 
-![Select the name ](https://images.wondershare.com/filmora/article-images/select-the-name.jpg)
+![Select the name](https://images.wondershare.com/filmora/article-images/select-the-name.jpg)
 
 d. Once the connection is established the icons would indicate that and you will find new power, streaming and media remote options. You will also be able to remotely control your console. Now the controller and the Click Stream needs to be connected so as to play your Xbox games on your Windows computer.
 
-![new options ](https://images.wondershare.com/filmora/article-images/new-options.jpg)
+![new options](https://images.wondershare.com/filmora/article-images/new-options.jpg)
 
 ### Method 2:Streaming Xbox to computer with a capture card
 
-You can find many [capture cards](https://www.elgato.com/en/gaming)in the market which would allow you to stream your Xbox onto your computer without altering its quality. HD60 Pro is one of those capture cards which offers perfect streaming and optimum control for an enhanced gaming experience.
+You can find many [capture cards](https://www.elgato.com/en/gaming) in the market which would allow you to stream your Xbox onto your computer without altering its quality. HD60 Pro is one of those capture cards which offers perfect streaming and optimum control for an enhanced gaming experience.
 
 ## Use Wirecast or OBS to stream your desktop to Facebook
 
@@ -153,7 +153,7 @@ Once all is set up you can live stream you desktop screen to facebook, we are no
 
 **Cons**\- It doesn’t offer any support and it would take you a long time to master the settings.
 
-![OBS ](https://images.wondershare.com/filmora/article-images/obs.jpg)
+![OBS](https://images.wondershare.com/filmora/article-images/obs.jpg)
 
 [Wirecast](http://www.telestream.net/wirecast/overview.htm) \- would allow you to capture, produce and stream content from a number of input devices including Xbox, iOS cameras, computer etc. The Wirecast Gameshow can be used for streaming high quality computer games in full HD.
 
@@ -161,7 +161,7 @@ Once all is set up you can live stream you desktop screen to facebook, we are no
 
 **Cons** It is way too expensive for normal gamers.
 
-![ Wirecast](https://images.wondershare.com/filmora/article-images/wirecast.jpg)
+![Wirecast](https://images.wondershare.com/filmora/article-images/wirecast.jpg)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -194,11 +194,11 @@ The Windows 10 OS comes with special Xbox features which includes the capacity t
 
 a. For this you need to go to the settings of your Xbox and then choose Preferences. Now click on the box where it says “Allow game streaming to other devices”.
 
-![game streaming ](https://images.wondershare.com/filmora/article-images/game-streaming.jpg)
+![game streaming](https://images.wondershare.com/filmora/article-images/game-streaming.jpg)
 
 b. Now you have to enable your smartglass connection. This can be done only from the profiles which are signed into your Xbox device or from a SmartGlass device.
 
-![profiles signed ](https://images.wondershare.com/filmora/article-images/profiles-signed.jpg)
+![profiles signed](https://images.wondershare.com/filmora/article-images/profiles-signed.jpg)
 
 **Step 2: Connect the Xbox one to the Windows 10 computer**
 
@@ -208,15 +208,15 @@ b. Now go to the panel on the left hand side and click on **‘connect’**.
 
 c. Your home network is going to be scanned by the Xbox software for any Xbox console present. Select the name of the console with which you would like to connect. Ensure that the console and the Windows pc are on one network.
 
-![Select the name ](https://images.wondershare.com/filmora/article-images/select-the-name.jpg)
+![Select the name](https://images.wondershare.com/filmora/article-images/select-the-name.jpg)
 
 d. Once the connection is established the icons would indicate that and you will find new power, streaming and media remote options. You will also be able to remotely control your console. Now the controller and the Click Stream needs to be connected so as to play your Xbox games on your Windows computer.
 
-![new options ](https://images.wondershare.com/filmora/article-images/new-options.jpg)
+![new options](https://images.wondershare.com/filmora/article-images/new-options.jpg)
 
 ### Method 2:Streaming Xbox to computer with a capture card
 
-You can find many [capture cards](https://www.elgato.com/en/gaming)in the market which would allow you to stream your Xbox onto your computer without altering its quality. HD60 Pro is one of those capture cards which offers perfect streaming and optimum control for an enhanced gaming experience.
+You can find many [capture cards](https://www.elgato.com/en/gaming) in the market which would allow you to stream your Xbox onto your computer without altering its quality. HD60 Pro is one of those capture cards which offers perfect streaming and optimum control for an enhanced gaming experience.
 
 ## Use Wirecast or OBS to stream your desktop to Facebook
 
@@ -228,7 +228,7 @@ Once all is set up you can live stream you desktop screen to facebook, we are no
 
 **Cons**\- It doesn’t offer any support and it would take you a long time to master the settings.
 
-![OBS ](https://images.wondershare.com/filmora/article-images/obs.jpg)
+![OBS](https://images.wondershare.com/filmora/article-images/obs.jpg)
 
 [Wirecast](http://www.telestream.net/wirecast/overview.htm) \- would allow you to capture, produce and stream content from a number of input devices including Xbox, iOS cameras, computer etc. The Wirecast Gameshow can be used for streaming high quality computer games in full HD.
 
@@ -236,7 +236,7 @@ Once all is set up you can live stream you desktop screen to facebook, we are no
 
 **Cons** It is way too expensive for normal gamers.
 
-![ Wirecast](https://images.wondershare.com/filmora/article-images/wirecast.jpg)
+![Wirecast](https://images.wondershare.com/filmora/article-images/wirecast.jpg)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -269,11 +269,11 @@ The Windows 10 OS comes with special Xbox features which includes the capacity t
 
 a. For this you need to go to the settings of your Xbox and then choose Preferences. Now click on the box where it says “Allow game streaming to other devices”.
 
-![game streaming ](https://images.wondershare.com/filmora/article-images/game-streaming.jpg)
+![game streaming](https://images.wondershare.com/filmora/article-images/game-streaming.jpg)
 
 b. Now you have to enable your smartglass connection. This can be done only from the profiles which are signed into your Xbox device or from a SmartGlass device.
 
-![profiles signed ](https://images.wondershare.com/filmora/article-images/profiles-signed.jpg)
+![profiles signed](https://images.wondershare.com/filmora/article-images/profiles-signed.jpg)
 
 **Step 2: Connect the Xbox one to the Windows 10 computer**
 
@@ -283,15 +283,15 @@ b. Now go to the panel on the left hand side and click on **‘connect’**.
 
 c. Your home network is going to be scanned by the Xbox software for any Xbox console present. Select the name of the console with which you would like to connect. Ensure that the console and the Windows pc are on one network.
 
-![Select the name ](https://images.wondershare.com/filmora/article-images/select-the-name.jpg)
+![Select the name](https://images.wondershare.com/filmora/article-images/select-the-name.jpg)
 
 d. Once the connection is established the icons would indicate that and you will find new power, streaming and media remote options. You will also be able to remotely control your console. Now the controller and the Click Stream needs to be connected so as to play your Xbox games on your Windows computer.
 
-![new options ](https://images.wondershare.com/filmora/article-images/new-options.jpg)
+![new options](https://images.wondershare.com/filmora/article-images/new-options.jpg)
 
 ### Method 2:Streaming Xbox to computer with a capture card
 
-You can find many [capture cards](https://www.elgato.com/en/gaming)in the market which would allow you to stream your Xbox onto your computer without altering its quality. HD60 Pro is one of those capture cards which offers perfect streaming and optimum control for an enhanced gaming experience.
+You can find many [capture cards](https://www.elgato.com/en/gaming) in the market which would allow you to stream your Xbox onto your computer without altering its quality. HD60 Pro is one of those capture cards which offers perfect streaming and optimum control for an enhanced gaming experience.
 
 ## Use Wirecast or OBS to stream your desktop to Facebook
 
@@ -303,7 +303,7 @@ Once all is set up you can live stream you desktop screen to facebook, we are no
 
 **Cons**\- It doesn’t offer any support and it would take you a long time to master the settings.
 
-![OBS ](https://images.wondershare.com/filmora/article-images/obs.jpg)
+![OBS](https://images.wondershare.com/filmora/article-images/obs.jpg)
 
 [Wirecast](http://www.telestream.net/wirecast/overview.htm) \- would allow you to capture, produce and stream content from a number of input devices including Xbox, iOS cameras, computer etc. The Wirecast Gameshow can be used for streaming high quality computer games in full HD.
 
@@ -311,7 +311,7 @@ Once all is set up you can live stream you desktop screen to facebook, we are no
 
 **Cons** It is way too expensive for normal gamers.
 
-![ Wirecast](https://images.wondershare.com/filmora/article-images/wirecast.jpg)
+![Wirecast](https://images.wondershare.com/filmora/article-images/wirecast.jpg)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 

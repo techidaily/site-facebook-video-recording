@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Dealing with Mistakes  Self-Representation During Online Chats\""
-date: 2024-05-20T19:05:19.561Z
-updated: 2024-05-21T19:05:19.561Z
+date: 2024-07-04T02:05:53.347Z
+updated: 2024-07-05T02:05:53.347Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] 2024 Approved: Dealing with Mistakes: Self-Representation During Online Chats\""
 excerpt: "\"This Article Describes [Updated] 2024 Approved: Dealing with Mistakes: Self-Representation During Online Chats\""
 keywords: "\"Online Chat Self-Represent,Error Handling in Chats,Virtual Mistake Management,Self-Guided Chat Mistakes,DIY Chat Error Control,Real-Time Chat Faux Pas,Self-Help Online Chat Fixes\""
-thumbnail: https://www.lifewire.com/thmb/35EJIYWnOjf-DPYyt8jATjphfKo=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/couple-reading-map-on-waterfront--young-woman-using-mobile-phone-200326285-001-5a948525119fa80036dc10c9.jpg
+thumbnail: https://thmb.techidaily.com/c62b5284641027dfddd7dff7e86c9bcc06523e51b87668f0c388f2d39f0ecdca.jpg
 ---
 
 ## Dealing with Mistakes: Self-Representation During Online Chats

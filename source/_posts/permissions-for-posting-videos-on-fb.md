@@ -1,7 +1,7 @@
 ---
 title: "Permissions for Posting Videos on FB"
-date: 2024-05-20T18:32:30.817Z
-updated: 2024-05-21T18:32:30.817Z
+date: 2024-07-04T02:05:46.902Z
+updated: 2024-07-05T02:05:46.902Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes Permissions for Posting Videos on FB"
 excerpt: "This Article Describes Permissions for Posting Videos on FB"
 keywords: "Video FB Sharing Perms,FB Video Post Rights,Share FB Video Access,FB Post Video Consent,Access FB for Video Upload,Facebook Video Posting Permission,FB Video Permissions Update"
-thumbnail: https://www.lifewire.com/thmb/_dH3c5dpBZLrHjdwg47aypgTCi8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/twittermute-5bc42bbd46e0fb002679ac08.jpg
+thumbnail: https://thmb.techidaily.com/a0528aada037fb1ed089f58b7830637011a25b39b40ee36dae7aad2706914652.jpg
 ---
 
 ## Permissions for Posting Videos on FB

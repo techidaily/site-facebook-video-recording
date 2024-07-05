@@ -1,7 +1,7 @@
 ---
 title: "[New] Broadcast in Ultra HD on the Social Network"
-date: 2024-05-20T18:28:56.912Z
-updated: 2024-05-21T18:28:56.912Z
+date: 2024-07-04T02:05:57.286Z
+updated: 2024-07-05T02:05:57.286Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] Broadcast in Ultra HD on the Social Network"
 excerpt: "This Article Describes [New] Broadcast in Ultra HD on the Social Network"
 keywords: "\"Ultra HD Broadcasting,Social Media HD,HD Video Sharing,Social UltraHD,High-Res Streaming,HD Network Feed,UHD Social View\""
-thumbnail: https://www.lifewire.com/thmb/DdypE3IFlSjfet1uIEYdsYO39G8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/usingbingai-66291c204fc442b3a2c3bf504dc7af68.jpg
+thumbnail: https://thmb.techidaily.com/9c54005e696cd2ed7b70760eb63ef402583a5567abcd354a24f074d4d0059be5.jpg
 ---
 
 ## Broadcast in Ultra HD on the Social Network

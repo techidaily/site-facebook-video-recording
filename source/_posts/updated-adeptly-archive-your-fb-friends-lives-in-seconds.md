@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Adeptly Archive Your Fb Friends' Lives in Seconds"
-date: 2024-05-20T19:44:52.195Z
-updated: 2024-05-21T19:44:52.195Z
+date: 2024-07-04T02:05:46.791Z
+updated: 2024-07-05T02:05:46.791Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] Adeptly Archive Your Fb Friends' Lives in Seconds"
 excerpt: "This Article Describes [Updated] Adeptly Archive Your Fb Friends' Lives in Seconds"
 keywords: "Quick FB Archive,Friendship History,Social Media Backup,Profile Snapshot,Instant Photo Save,Digital Friends List,Fb Contact Log"
-thumbnail: https://www.lifewire.com/thmb/2gHaaXQ_kdz4PXOihSc2PV3WzwI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Delete-Photos-iOS-1e8f0abbb73442a0b00d242ff0bbc79a.jpg
+thumbnail: https://thmb.techidaily.com/545eb30532b146292d910492a3de0882f942d02de7b5ef10d79d0e3f377f7561.jpg
 ---
 
 ## Adeptly Archive Your Fb Friends' Lives in Seconds

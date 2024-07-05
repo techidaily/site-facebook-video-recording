@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Unveiling the Path to Your Facebook Status Video Archive\""
-date: 2024-05-20T19:14:45.922Z
-updated: 2024-05-21T19:14:45.922Z
+date: 2024-07-04T02:05:49.967Z
+updated: 2024-07-05T02:05:49.967Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Unveiling the Path to Your Facebook Status Video Archive\""
 excerpt: "\"This Article Describes 2024 Approved: Unveiling the Path to Your Facebook Status Video Archive\""
 keywords: "Status Video Save,FB Status Backup,Archive FB Videos,Retrieve FB Status,History FB Upload,Collect Fb Video,Fetch Facebook Vids"
-thumbnail: https://www.lifewire.com/thmb/u_weu7VlzfaCNynbz926Bw2Eank=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-1235391240-4215b7c52f5441ab827bfdde8eb4b1c1.jpg
+thumbnail: https://thmb.techidaily.com/b89bc76dab2d2da8b94cbca20640b5005a7d287429d61f6d3112ce6c1768b0a9.jpg
 ---
 
 ## Unveiling the Path to Your Facebook Status Video Archive

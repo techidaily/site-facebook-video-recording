@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Wistia User Introduction  Size, Format, Duration for 2024\""
-date: 2024-05-20T19:47:16.197Z
-updated: 2024-05-21T19:47:16.197Z
+date: 2024-07-04T02:05:47.725Z
+updated: 2024-07-05T02:05:47.725Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Wistia User Introduction: Size, Format, Duration for 2024\""
 excerpt: "\"This Article Describes [New] Wistia User Introduction: Size, Format, Duration for 2024\""
 keywords: "Wistia Basics Overview,Understanding Wistia Sizes,Formats in Wistia Video Platform,Wistia Duration Management,Intro to Wistia Metrics,Wistia Media Types Guide,Learning Wistia Stream Lengths"
-thumbnail: https://www.lifewire.com/thmb/BPYPQrXsNWygpcoCT-Bo8NlAS2Y=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-1094009490-2694d308001d46049e0755f4dd7fdf4c.jpg
+thumbnail: https://thmb.techidaily.com/667b327336657b37d917ada8179b0c23c67339c9f07504ad9ddbf600b0c76aae.jpg
 ---
 
 ## Wistia User Introduction: Size, Format, Duration

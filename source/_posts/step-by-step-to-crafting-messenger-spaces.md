@@ -1,7 +1,7 @@
 ---
 title: "\"Step-by-Step to Crafting Messenger Spaces\""
-date: 2024-05-20T18:39:36.888Z
-updated: 2024-05-21T18:39:36.888Z
+date: 2024-07-04T02:05:55.876Z
+updated: 2024-07-05T02:05:55.876Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Step-by-Step to Crafting Messenger Spaces\""
 excerpt: "\"This Article Describes Step-by-Step to Crafting Messenger Spaces\""
 keywords: "Messaging Spaces Guide,Space Creation Tutorial,Build Messenger Room,Design Chat Rooms,Crafting Room in FB,Hubspot Messenger Space,Zapier for Message Spaces"
-thumbnail: https://www.lifewire.com/thmb/bMOUH6OkpRF5_MrN2lrqa_1fgSk=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-700130756-5bc55813c9e77c00516913eb.jpg
+thumbnail: https://thmb.techidaily.com/aa39b0c8b4b398091d4035d320c4791ea5b2efa57b569d8f39427b85787484d2.jpg
 ---
 
 ## Step-by-Step to Crafting Messenger Spaces

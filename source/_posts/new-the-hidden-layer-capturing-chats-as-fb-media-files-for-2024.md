@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Hidden Layer  Capturing Chats as FB Media Files for 2024\""
-date: 2024-05-20T19:00:57.095Z
-updated: 2024-05-21T19:00:57.095Z
+date: 2024-07-04T02:05:50.018Z
+updated: 2024-07-05T02:05:50.018Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] The Hidden Layer: Capturing Chats as FB Media Files for 2024\""
 excerpt: "\"This Article Describes [New] The Hidden Layer: Capturing Chats as FB Media Files for 2024\""
 keywords: "Facebook Media Chat Images,Converting Chat to Media,FB Chat File Saving,Secure FB Chat Backup,Capturing Fb Messenger Files,Save FB Chats as Media,Encoded FB Direct Messages"
-thumbnail: https://www.lifewire.com/thmb/iZiCpbRSCz8RojdrehWr4_jeUDI=/180x120/filters:no_upscale():max_bytes(150000):strip_icc()/TravelTech_GettyImages-1410662282_CROPPED_d3sign-03c2cdf5be314894b99757426813be51.jpg
+thumbnail: https://thmb.techidaily.com/b38051c9d12a2b8d1315fdc2f1d84dde69fd749e096f758fd9b3624bcd8211ec.jpg
 ---
 
 ## The Hidden Layer: Capturing Chats as FB Media Files

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Classic Collection  Finding Yesteryear's Social Media Gems for 2024\""
-date: 2024-05-20T18:47:25.430Z
-updated: 2024-05-21T18:47:25.430Z
+date: 2024-07-04T02:05:49.187Z
+updated: 2024-07-05T02:05:49.187Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Classic Collection: Finding Yesteryear's Social Media Gems for 2024\""
 excerpt: "\"This Article Describes [New] Classic Collection: Finding Yesteryear's Social Media Gems for 2024\""
 keywords: "Vintage Social Memories,Yesteryears Social Media,Retro Network Finds,Classic Social Collectibles,Timeless Social Ephemera,Historical Social Content,Nostalgic Social Gems"
-thumbnail: https://www.lifewire.com/thmb/KLxIwz4EB-ugDE06kCw6C7FZbyw=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-1443630224-4e7adb2ce8df439fb47035a652dee4d7.jpg
+thumbnail: https://thmb.techidaily.com/38a10dded96ded9495ccb2173f240c20a69acb6b4b947c6dc175d30ce0f723b9.jpg
 ---
 
 ## Classic Collection: Finding Yesteryear's Social Media Gems

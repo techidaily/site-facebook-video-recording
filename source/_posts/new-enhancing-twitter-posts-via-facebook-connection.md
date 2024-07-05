@@ -1,7 +1,7 @@
 ---
 title: "[New] Enhancing Twitter Posts via Facebook Connection"
-date: 2024-06-26T02:29:13.531Z
-updated: 2024-06-27T02:29:13.531Z
+date: 2024-07-04T02:05:44.744Z
+updated: 2024-07-05T02:05:44.744Z
 tags:
   - ai video
   - ai facebook
@@ -17,7 +17,8 @@ thumbnail: https://thmb.techidaily.com/235c9a836def3af64d14d9406f5da36fac525d1a6
 
 ## Enhancing Twitter Posts via Facebook Connection
 
-# How to Post Tweets on Facebook ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+# How to Post Tweets on Facebook
+![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
 

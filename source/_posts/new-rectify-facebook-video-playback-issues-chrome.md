@@ -1,7 +1,7 @@
 ---
 title: "[New] Rectify Facebook Video Playback Issues (Chrome)"
-date: 2024-05-20T19:25:23.656Z
-updated: 2024-05-21T19:25:23.656Z
+date: 2024-07-04T02:05:54.172Z
+updated: 2024-07-05T02:05:54.172Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] Rectify Facebook Video Playback Issues (Chrome)"
 excerpt: "This Article Describes [New] Rectify Facebook Video Playback Issues (Chrome)"
 keywords: "Fix FB Video Chrome,Solve FB Playback Errors,Chrome FB Video Troubleshoot,Rectify FB Video Chromium,Unblock FB Videos Chrome,Resolve Facebook Video Glitches,Correct FB Video on Chrome"
-thumbnail: https://www.lifewire.com/thmb/pk5IbOorkzmba9aa5kWvl03V_X4=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-753290569-5b97cc8646e0fb00501aa360.jpg
+thumbnail: https://thmb.techidaily.com/f8310fb64fe59131a1a603b74493ef91ec9be3bf91a44a7ee26654a9f6fff3c0.jpg
 ---
 
 ## Rectify Facebook Video Playback Issues (Chrome)

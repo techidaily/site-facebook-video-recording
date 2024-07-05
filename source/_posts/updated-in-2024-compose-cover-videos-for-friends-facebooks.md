@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Compose Cover Videos for Friends' Facebooks"
-date: 2024-05-20T19:30:19.366Z
-updated: 2024-05-21T19:30:19.366Z
+date: 2024-07-04T02:05:57.414Z
+updated: 2024-07-05T02:05:57.414Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] In 2024, Compose Cover Videos for Friends' Facebooks"
 excerpt: "This Article Describes [Updated] In 2024, Compose Cover Videos for Friends' Facebooks"
 keywords: "Video Cover for FB Friends,Friendship Video Cover Art,Create Facebook Video Cover,Make FB Friend Videos,Designing FB Cover Arts,Crafting FB Friendship Covers,YouTube Video for Friends' Faces"
-thumbnail: https://www.lifewire.com/thmb/684HYeKVF7NwmTyrhJBo9KopPFA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-538600261-56c643115f9b5879cc3d6bde.jpg
+thumbnail: https://thmb.techidaily.com/0bb0f990e78102071e50c31f7028b725d7f6b1084837b38e9693d564989750d9.jpg
 ---
 
 ## Compose Cover Videos for Friends' Facebooks

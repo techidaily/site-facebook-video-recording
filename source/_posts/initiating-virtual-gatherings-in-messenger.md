@@ -1,7 +1,7 @@
 ---
 title: "Initiating Virtual Gatherings in Messenger"
-date: 2024-05-20T19:05:57.255Z
-updated: 2024-05-21T19:05:57.255Z
+date: 2024-07-04T02:05:53.197Z
+updated: 2024-07-05T02:05:53.197Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes Initiating Virtual Gatherings in Messenger"
 excerpt: "This Article Describes Initiating Virtual Gatherings in Messenger"
 keywords: "\"Virtual Meetings via Messaging,Messenger Group Chat,Online Social Interaction,Video Conference on MSG,Digital Gathering Hub,SMS-Based Forum Creation,In-App Communication Event\""
-thumbnail: https://www.lifewire.com/thmb/HkQrnB6Inkx8Rh4KIo-rh5RAck0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/computerkeyboard-5c070d3ec9e77c0001b19701.jpg
+thumbnail: https://thmb.techidaily.com/8530b2fd89e3e28803e6b6f24f28af836c48a65e9da7986f6cee296d3fed5998.jpg
 ---
 
 ## Initiating Virtual Gatherings in Messenger

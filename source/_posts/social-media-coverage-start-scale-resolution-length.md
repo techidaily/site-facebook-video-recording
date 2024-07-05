@@ -1,7 +1,7 @@
 ---
 title: "\"Social Media Coverage Start  Scale, Resolution, Length\""
-date: 2024-05-20T19:27:26.875Z
-updated: 2024-05-21T19:27:26.875Z
+date: 2024-07-04T02:05:47.834Z
+updated: 2024-07-05T02:05:47.834Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Social Media Coverage Start: Scale, Resolution, Length\""
 excerpt: "\"This Article Describes Social Media Coverage Start: Scale, Resolution, Length\""
 keywords: "\"Social Media Growth,Content Scaling,High-Res Images,Video Length Trends,Quality Posts Impact,Resolution Importance,Coverage Expansion\""
-thumbnail: https://www.lifewire.com/thmb/8cntKMhShePwne7YMK1BVkFRlYs=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/snork-fa65ca350e2243e1a2deaf6bb7b209b1.jpg
+thumbnail: https://thmb.techidaily.com/4526e24333ba977c51600360964ccfdbc4ba0f9b4255ce54480ebe44b63f8c8e.jpg
 ---
 
 ## Social Media Coverage Start: Scale, Resolution, Length
