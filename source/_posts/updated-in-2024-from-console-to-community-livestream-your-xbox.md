@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, From Console to Community  Livestream Your Xbox\""
-date: 2024-05-20T18:41:45.096Z
-updated: 2024-05-21T18:41:45.096Z
+date: 2024-07-20T12:46:45.476Z
+updated: 2024-07-21T12:46:45.476Z
 tags:
   - ai video
   - ai facebook
@@ -12,13 +12,16 @@ categories:
 description: "\"This Article Describes [Updated] In 2024, From Console to Community: Livestream Your Xbox\""
 excerpt: "\"This Article Describes [Updated] In 2024, From Console to Community: Livestream Your Xbox\""
 keywords: "\"Xbox Live Streaming,Gaming Community View,Real-Time Gameplay Sharing,Xbox Live Broadcast,Virtual Console Connection,Xbox Online Participation,Shared Gaming Experience\""
-thumbnail: https://www.lifewire.com/thmb/JOn9ZaAtHY0vioyW7JgnoHOtnRY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-849772598-f1a9d4c9d1b742cdbc38acd6d12ede55.jpg
+thumbnail: https://thmb.techidaily.com/d9580a0fe0d295d2fe4ac5bc754f7348af6d4884ba16ea4dee8b131acea9d9aa.jpg
 ---
 
 ## From Console to Community: Livestream Your Xbox
 
 # How to live stream xbox to facebook live
 
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -36,6 +39,9 @@ After living streaming videos to Facebook, you may want to [analyze the data of 
 
 ## Stream your Xbox to your computer
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### Method 1: Streaming Xbox to Windows 10 computer
 
 The Windows 10 OS comes with special Xbox features which includes the capacity to stream live games from Xbox to your Windows 10 PC.
@@ -44,6 +50,9 @@ The Windows 10 OS comes with special Xbox features which includes the capacity t
 
 a. For this you need to go to the settings of your Xbox and then choose Preferences. Now click on the box where it says “Allow game streaming to other devices”.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![game streaming ](https://images.wondershare.com/filmora/article-images/game-streaming.jpg)
 
 b. Now you have to enable your smartglass connection. This can be done only from the profiles which are signed into your Xbox device or from a SmartGlass device.
@@ -58,6 +67,103 @@ b. Now go to the panel on the left hand side and click on **‘connect’**.
 
 c. Your home network is going to be scanned by the Xbox software for any Xbox console present. Select the name of the console with which you would like to connect. Ensure that the console and the Windows pc are on one network.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
+![Select the name ](https://images.wondershare.com/filmora/article-images/select-the-name.jpg)
+
+d. Once the connection is established the icons would indicate that and you will find new power, streaming and media remote options. You will also be able to remotely control your console. Now the controller and the Click Stream needs to be connected so as to play your Xbox games on your Windows computer.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
+ PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<!-- affiliate ads end -->
+![new options ](https://images.wondershare.com/filmora/article-images/new-options.jpg)
+
+### Method 2:Streaming Xbox to computer with a capture card
+
+You can find many [capture cards](https://www.elgato.com/en/gaming)in the market which would allow you to stream your Xbox onto your computer without altering its quality. HD60 Pro is one of those capture cards which offers perfect streaming and optimum control for an enhanced gaming experience.
+
+## Use Wirecast or OBS to stream your desktop to Facebook
+
+Once all is set up you can live stream you desktop screen to facebook, we are not going to give a full introdcution here, you can check _OBS setup here,_ and _Wirecast setup here._
+
+[OBS Studio](https://obsproject.com/) \- is one of the best free and open source applications for live streaming and video recording. It comes with loads of useful features like real time audio/video capture, special filters for colour corrections, audio mixers and much more.
+
+**Pros**\- Its is a powerful free software which includes the tutorials
+
+**Cons**\- It doesn’t offer any support and it would take you a long time to master the settings.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
+![OBS ](https://images.wondershare.com/filmora/article-images/obs.jpg)
+
+[Wirecast](http://www.telestream.net/wirecast/overview.htm) \- would allow you to capture, produce and stream content from a number of input devices including Xbox, iOS cameras, computer etc. The Wirecast Gameshow can be used for streaming high quality computer games in full HD.
+
+**Pros**\- One of the best live streaming software, Wirecast can be used even by novices. This powerful and professional software comes with loads of exciting features
+
+**Cons** It is way too expensive for normal gamers.
+
+![ Wirecast](https://images.wondershare.com/filmora/article-images/wirecast.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+Live streaming Xbox to Facebook isn’t as hard as it seems to be. The method for live streaming from Xbox to Facebook is fairly simple: all you need to do is stream the content of your Xbox to your computer by making use of a capture card. In case you don’t have a capture card you need to download one of those special software. Now you need to make use of a 3rd party app like Wirecast or Obs in order to live stream the screen of your desktop onto Facebook.
+
+After living streaming videos to Facebook, you may want to [analyze the data of video](https://tools.techidaily.com/wondershare/filmora/download/) to attract more likes.
+
+**You may also like**
+
+[**Facebook Insights: How to Use it for Beginners**](https://tools.techidaily.com/wondershare/filmora/download/)  
+[**8 Best Facebook Scheduler to Improve Efficiency**](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Stream your Xbox to your computer
+
+### Method 1: Streaming Xbox to Windows 10 computer
+
+The Windows 10 OS comes with special Xbox features which includes the capacity to stream live games from Xbox to your Windows 10 PC.
+
+**Step 1: The first thing you have to do is enable the setting on your Xbox.**
+
+a. For this you need to go to the settings of your Xbox and then choose Preferences. Now click on the box where it says “Allow game streaming to other devices”.
+
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![game streaming ](https://images.wondershare.com/filmora/article-images/game-streaming.jpg)
+
+b. Now you have to enable your smartglass connection. This can be done only from the profiles which are signed into your Xbox device or from a SmartGlass device.
+
+![profiles signed ](https://images.wondershare.com/filmora/article-images/profiles-signed.jpg)
+
+**Step 2: Connect the Xbox one to the Windows 10 computer**
+
+a. Go to your pc and launch the Xbox application. The Xbox app is going to trace your device in case you are using the same email id. However if you are using another email for your windows pc then you have to go to the Xbox app and fill in the Xbox live credentials.
+
+b. Now go to the panel on the left hand side and click on **‘connect’**.
+
+c. Your home network is going to be scanned by the Xbox software for any Xbox console present. Select the name of the console with which you would like to connect. Ensure that the console and the Windows pc are on one network.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<!-- affiliate ads end -->
 ![Select the name ](https://images.wondershare.com/filmora/article-images/select-the-name.jpg)
 
 d. Once the connection is established the icons would indicate that and you will find new power, streaming and media remote options. You will also be able to remotely control your console. Now the controller and the Click Stream needs to be connected so as to play your Xbox games on your Windows computer.
@@ -86,6 +192,102 @@ Once all is set up you can live stream you desktop screen to facebook, we are no
 
 **Cons** It is way too expensive for normal gamers.
 
+![ Wirecast](https://images.wondershare.com/filmora/article-images/wirecast.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+Live streaming Xbox to Facebook isn’t as hard as it seems to be. The method for live streaming from Xbox to Facebook is fairly simple: all you need to do is stream the content of your Xbox to your computer by making use of a capture card. In case you don’t have a capture card you need to download one of those special software. Now you need to make use of a 3rd party app like Wirecast or Obs in order to live stream the screen of your desktop onto Facebook.
+
+After living streaming videos to Facebook, you may want to [analyze the data of video](https://tools.techidaily.com/wondershare/filmora/download/) to attract more likes.
+
+**You may also like**
+
+[**Facebook Insights: How to Use it for Beginners**](https://tools.techidaily.com/wondershare/filmora/download/)  
+[**8 Best Facebook Scheduler to Improve Efficiency**](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## Stream your Xbox to your computer
+
+### Method 1: Streaming Xbox to Windows 10 computer
+
+The Windows 10 OS comes with special Xbox features which includes the capacity to stream live games from Xbox to your Windows 10 PC.
+
+**Step 1: The first thing you have to do is enable the setting on your Xbox.**
+
+a. For this you need to go to the settings of your Xbox and then choose Preferences. Now click on the box where it says “Allow game streaming to other devices”.
+
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
+![game streaming ](https://images.wondershare.com/filmora/article-images/game-streaming.jpg)
+
+b. Now you have to enable your smartglass connection. This can be done only from the profiles which are signed into your Xbox device or from a SmartGlass device.
+
+![profiles signed ](https://images.wondershare.com/filmora/article-images/profiles-signed.jpg)
+
+**Step 2: Connect the Xbox one to the Windows 10 computer**
+
+a. Go to your pc and launch the Xbox application. The Xbox app is going to trace your device in case you are using the same email id. However if you are using another email for your windows pc then you have to go to the Xbox app and fill in the Xbox live credentials.
+
+b. Now go to the panel on the left hand side and click on **‘connect’**.
+
+c. Your home network is going to be scanned by the Xbox software for any Xbox console present. Select the name of the console with which you would like to connect. Ensure that the console and the Windows pc are on one network.
+
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
+![Select the name ](https://images.wondershare.com/filmora/article-images/select-the-name.jpg)
+
+d. Once the connection is established the icons would indicate that and you will find new power, streaming and media remote options. You will also be able to remotely control your console. Now the controller and the Click Stream needs to be connected so as to play your Xbox games on your Windows computer.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
+![new options ](https://images.wondershare.com/filmora/article-images/new-options.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<!-- affiliate ads end -->
+### Method 2:Streaming Xbox to computer with a capture card
+
+You can find many [capture cards](https://www.elgato.com/en/gaming)in the market which would allow you to stream your Xbox onto your computer without altering its quality. HD60 Pro is one of those capture cards which offers perfect streaming and optimum control for an enhanced gaming experience.
+
+## Use Wirecast or OBS to stream your desktop to Facebook
+
+Once all is set up you can live stream you desktop screen to facebook, we are not going to give a full introdcution here, you can check _OBS setup here,_ and _Wirecast setup here._
+
+[OBS Studio](https://obsproject.com/) \- is one of the best free and open source applications for live streaming and video recording. It comes with loads of useful features like real time audio/video capture, special filters for colour corrections, audio mixers and much more.
+
+**Pros**\- Its is a powerful free software which includes the tutorials
+
+**Cons**\- It doesn’t offer any support and it would take you a long time to master the settings.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![OBS ](https://images.wondershare.com/filmora/article-images/obs.jpg)
+
+[Wirecast](http://www.telestream.net/wirecast/overview.htm) \- would allow you to capture, produce and stream content from a number of input devices including Xbox, iOS cameras, computer etc. The Wirecast Gameshow can be used for streaming high quality computer games in full HD.
+
+**Pros**\- One of the best live streaming software, Wirecast can be used even by novices. This powerful and professional software comes with loads of exciting features
+
+**Cons** It is way too expensive for normal gamers.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ Wirecast](https://images.wondershare.com/filmora/article-images/wirecast.jpg)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -123,6 +325,9 @@ a. For this you need to go to the settings of your Xbox and then choose Preferen
 
 b. Now you have to enable your smartglass connection. This can be done only from the profiles which are signed into your Xbox device or from a SmartGlass device.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![profiles signed ](https://images.wondershare.com/filmora/article-images/profiles-signed.jpg)
 
 **Step 2: Connect the Xbox one to the Windows 10 computer**
@@ -163,156 +368,9 @@ Once all is set up you can live stream you desktop screen to facebook, we are no
 
 ![ Wirecast](https://images.wondershare.com/filmora/article-images/wirecast.jpg)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Mar 27, 2024• Proven solutions
-
-Live streaming Xbox to Facebook isn’t as hard as it seems to be. The method for live streaming from Xbox to Facebook is fairly simple: all you need to do is stream the content of your Xbox to your computer by making use of a capture card. In case you don’t have a capture card you need to download one of those special software. Now you need to make use of a 3rd party app like Wirecast or Obs in order to live stream the screen of your desktop onto Facebook.
-
-After living streaming videos to Facebook, you may want to [analyze the data of video](https://tools.techidaily.com/wondershare/filmora/download/) to attract more likes.
-
-**You may also like**
-
-[**Facebook Insights: How to Use it for Beginners**](https://tools.techidaily.com/wondershare/filmora/download/)  
-[**8 Best Facebook Scheduler to Improve Efficiency**](https://tools.techidaily.com/wondershare/filmora/download/)
-
-## Stream your Xbox to your computer
-
-### Method 1: Streaming Xbox to Windows 10 computer
-
-The Windows 10 OS comes with special Xbox features which includes the capacity to stream live games from Xbox to your Windows 10 PC.
-
-**Step 1: The first thing you have to do is enable the setting on your Xbox.**
-
-a. For this you need to go to the settings of your Xbox and then choose Preferences. Now click on the box where it says “Allow game streaming to other devices”.
-
-![game streaming ](https://images.wondershare.com/filmora/article-images/game-streaming.jpg)
-
-b. Now you have to enable your smartglass connection. This can be done only from the profiles which are signed into your Xbox device or from a SmartGlass device.
-
-![profiles signed ](https://images.wondershare.com/filmora/article-images/profiles-signed.jpg)
-
-**Step 2: Connect the Xbox one to the Windows 10 computer**
-
-a. Go to your pc and launch the Xbox application. The Xbox app is going to trace your device in case you are using the same email id. However if you are using another email for your windows pc then you have to go to the Xbox app and fill in the Xbox live credentials.
-
-b. Now go to the panel on the left hand side and click on **‘connect’**.
-
-c. Your home network is going to be scanned by the Xbox software for any Xbox console present. Select the name of the console with which you would like to connect. Ensure that the console and the Windows pc are on one network.
-
-![Select the name ](https://images.wondershare.com/filmora/article-images/select-the-name.jpg)
-
-d. Once the connection is established the icons would indicate that and you will find new power, streaming and media remote options. You will also be able to remotely control your console. Now the controller and the Click Stream needs to be connected so as to play your Xbox games on your Windows computer.
-
-![new options ](https://images.wondershare.com/filmora/article-images/new-options.jpg)
-
-### Method 2:Streaming Xbox to computer with a capture card
-
-You can find many [capture cards](https://www.elgato.com/en/gaming)in the market which would allow you to stream your Xbox onto your computer without altering its quality. HD60 Pro is one of those capture cards which offers perfect streaming and optimum control for an enhanced gaming experience.
-
-## Use Wirecast or OBS to stream your desktop to Facebook
-
-Once all is set up you can live stream you desktop screen to facebook, we are not going to give a full introdcution here, you can check _OBS setup here,_ and _Wirecast setup here._
-
-[OBS Studio](https://obsproject.com/) \- is one of the best free and open source applications for live streaming and video recording. It comes with loads of useful features like real time audio/video capture, special filters for colour corrections, audio mixers and much more.
-
-**Pros**\- Its is a powerful free software which includes the tutorials
-
-**Cons**\- It doesn’t offer any support and it would take you a long time to master the settings.
-
-![OBS ](https://images.wondershare.com/filmora/article-images/obs.jpg)
-
-[Wirecast](http://www.telestream.net/wirecast/overview.htm) \- would allow you to capture, produce and stream content from a number of input devices including Xbox, iOS cameras, computer etc. The Wirecast Gameshow can be used for streaming high quality computer games in full HD.
-
-**Pros**\- One of the best live streaming software, Wirecast can be used even by novices. This powerful and professional software comes with loads of exciting features
-
-**Cons** It is way too expensive for normal gamers.
-
-![ Wirecast](https://images.wondershare.com/filmora/article-images/wirecast.jpg)
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Mar 27, 2024• Proven solutions
-
-Live streaming Xbox to Facebook isn’t as hard as it seems to be. The method for live streaming from Xbox to Facebook is fairly simple: all you need to do is stream the content of your Xbox to your computer by making use of a capture card. In case you don’t have a capture card you need to download one of those special software. Now you need to make use of a 3rd party app like Wirecast or Obs in order to live stream the screen of your desktop onto Facebook.
-
-After living streaming videos to Facebook, you may want to [analyze the data of video](https://tools.techidaily.com/wondershare/filmora/download/) to attract more likes.
-
-**You may also like**
-
-[**Facebook Insights: How to Use it for Beginners**](https://tools.techidaily.com/wondershare/filmora/download/)  
-[**8 Best Facebook Scheduler to Improve Efficiency**](https://tools.techidaily.com/wondershare/filmora/download/)
-
-## Stream your Xbox to your computer
-
-### Method 1: Streaming Xbox to Windows 10 computer
-
-The Windows 10 OS comes with special Xbox features which includes the capacity to stream live games from Xbox to your Windows 10 PC.
-
-**Step 1: The first thing you have to do is enable the setting on your Xbox.**
-
-a. For this you need to go to the settings of your Xbox and then choose Preferences. Now click on the box where it says “Allow game streaming to other devices”.
-
-![game streaming ](https://images.wondershare.com/filmora/article-images/game-streaming.jpg)
-
-b. Now you have to enable your smartglass connection. This can be done only from the profiles which are signed into your Xbox device or from a SmartGlass device.
-
-![profiles signed ](https://images.wondershare.com/filmora/article-images/profiles-signed.jpg)
-
-**Step 2: Connect the Xbox one to the Windows 10 computer**
-
-a. Go to your pc and launch the Xbox application. The Xbox app is going to trace your device in case you are using the same email id. However if you are using another email for your windows pc then you have to go to the Xbox app and fill in the Xbox live credentials.
-
-b. Now go to the panel on the left hand side and click on **‘connect’**.
-
-c. Your home network is going to be scanned by the Xbox software for any Xbox console present. Select the name of the console with which you would like to connect. Ensure that the console and the Windows pc are on one network.
-
-![Select the name ](https://images.wondershare.com/filmora/article-images/select-the-name.jpg)
-
-d. Once the connection is established the icons would indicate that and you will find new power, streaming and media remote options. You will also be able to remotely control your console. Now the controller and the Click Stream needs to be connected so as to play your Xbox games on your Windows computer.
-
-![new options ](https://images.wondershare.com/filmora/article-images/new-options.jpg)
-
-### Method 2:Streaming Xbox to computer with a capture card
-
-You can find many [capture cards](https://www.elgato.com/en/gaming)in the market which would allow you to stream your Xbox onto your computer without altering its quality. HD60 Pro is one of those capture cards which offers perfect streaming and optimum control for an enhanced gaming experience.
-
-## Use Wirecast or OBS to stream your desktop to Facebook
-
-Once all is set up you can live stream you desktop screen to facebook, we are not going to give a full introdcution here, you can check _OBS setup here,_ and _Wirecast setup here._
-
-[OBS Studio](https://obsproject.com/) \- is one of the best free and open source applications for live streaming and video recording. It comes with loads of useful features like real time audio/video capture, special filters for colour corrections, audio mixers and much more.
-
-**Pros**\- Its is a powerful free software which includes the tutorials
-
-**Cons**\- It doesn’t offer any support and it would take you a long time to master the settings.
-
-![OBS ](https://images.wondershare.com/filmora/article-images/obs.jpg)
-
-[Wirecast](http://www.telestream.net/wirecast/overview.htm) \- would allow you to capture, produce and stream content from a number of input devices including Xbox, iOS cameras, computer etc. The Wirecast Gameshow can be used for streaming high quality computer games in full HD.
-
-**Pros**\- One of the best live streaming software, Wirecast can be used even by novices. This powerful and professional software comes with loads of exciting features
-
-**Cons** It is way too expensive for normal gamers.
-
-![ Wirecast](https://images.wondershare.com/filmora/article-images/wirecast.jpg)
-
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -344,3 +402,48 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-2023-fb-live-recorder/"><u>[New] 2023 FB Live Recorder</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-cyber-sensation-the-rise-of-videoviral-tweets/"><u>[New] Cyber Sensation  The Rise of #VideoViral Tweets</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-fb-live-integration-with-cable-tv/"><u>[New] FB Live Integration with Cable TV</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-from-click-to-chatter-turning-titles-into-talk-on-fb/"><u>[New] From Click to Chatter  Turning Titles Into Talk on FB</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-initiating-virtual-gatherings-in-messenger/"><u>[New] Initiating Virtual Gatherings in Messenger</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-seamless-integration-making-your-youtube-videos-available-on-facebook/"><u>[New] Seamless Integration  Making Your YouTube Videos Available on Facebook</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-the-archive-alchemist-transforming-social-feeds-to-files/"><u>[New] The Archive Alchemist  Transforming Social Feeds to Files</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-facilitating-instant-sharing-tiktok-videos-on-facebook/"><u>[Updated] Facilitating Instant Sharing  TikTok Videos on Facebook</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-how-to-watch-facebook-live-on-your-apple-media-hub/"><u>[Updated] How to Watch Facebook Live on Your Apple Media Hub</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-online-oasis-media-mashup/"><u>[Updated] Online Oasis Media Mashup</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-swiftly-render-and-upload-videos-tips-for-speedy-youtube-submissions/"><u>[Updated] Swiftly Render & Upload Videos  Tips for Speedy YouTube Submissions</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-syncing-youtube-with-facebooks-sharing-mechanism/"><u>[Updated] Syncing YouTube With Facebook's Sharing Mechanism</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-leading-9-movie-extractors-for-fb/"><u>2024 Approved  Leading 9 Movie Extractors for FB</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-maximize-your-media-influence-with-10-effortless-steps/"><u>2024 Approved  Maximize Your Media Influence with 10 Effortless Steps</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-prepare-for-success-essential-trends-in-facebook-ads-24/"><u>2024 Approved  Prepare for Success  Essential Trends in Facebook Ads '24</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-redefining-social-sharing-alternatives-to-periscope-on-iphones-and-androids/"><u>2024 Approved  Redefining Social Sharing  Alternatives to Periscope on iPhones & Androids</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-stop-ff-videos-from-not-rendering-on-android/"><u>2024 Approved  Stop FF Videos From Not Rendering on Android</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/forgotten-the-voicemail-password-of-vivo-y02t-try-these-fixes-by-drfone-android/"><u>Forgotten The Voicemail Password Of Vivo Y02T? Try These Fixes</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-a-oneplus-12r-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a OnePlus 12R Phone That Is Locked | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-fixing-sound-discrepan-points-in-facebook-streams/"><u>In 2024, Fixing Sound Discrepan Points in Facebook Streams</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-fundamentals-of-copywriting-for-engaging-fb-campaigns/"><u>In 2024, Fundamentals of Copywriting for Engaging FB Campaigns</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-harnessing-the-power-of-gopro-a-guide-to-streaming-on-facebookperiscope/"><u>In 2024, Harnessing the Power of GoPro  A Guide to Streaming on Facebook/Periscope</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-refining-your-digital-footprint-editing-the-look-back-feature/"><u>In 2024, Refining Your Digital Footprint  Editing the Look Back Feature</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/in-2024-seeking-out-the-tone-of-a-fuming-dogs-cry/"><u>In 2024, Seeking Out The Tone of a Fuming Dogs Cry</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-step-by-step-craft-your-viral-story-in-online-videos/"><u>In 2024, Step by Step, Craft Your Viral Story in Online Videos</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-streamline-your-social-media-find-facebook-watched-videos-easily/"><u>In 2024, Streamline Your Social Media  Find Facebook Watched Videos Easily</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-syncing-sound-with-visuals-on-facebook-essential-guide/"><u>In 2024, Syncing Sound with Visuals on Facebook - Essential Guide</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-the-ultimate-guide-to-vivo-y78t-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Ultimate Guide to Vivo Y78t Pattern Lock Screen Everything You Need to Know</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/integrating-facebook-livestream-into-your-roku-setup-for-2024/"><u>Integrating Facebook Livestream Into Your Roku Setup for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/live-streaming-guide-facebook-via-androidios-devices-for-2024/"><u>Live Streaming Guide  Facebook via Android/iOS Devices for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/live-video-breakthrough-perfect-screen-share-tactics-for-fb-for-2024/"><u>Live Video Breakthrough  Perfect Screen-Share Tactics for Fb for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/mastering-file-and-folder-integration-in-windows-1011/"><u>Mastering File & Folder Integration in Windows 10/11</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/mobilepc-download-facebooks-new-video-tool-for-2024/"><u>Mobile/PC Download  Facebook's New Video Tool for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/navigate-to-constant-watch-enable-auto-play-feature-for-youtube-videos-on-fb-for-2024/"><u>Navigate to Constant Watch  Enable Auto-Play Feature for YouTube Videos on FB for 2024</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-download-the-best-video-editor-for-mac-splice-for-2024/"><u>New Download the Best Video Editor for Mac Splice for 2024</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-youtube-audio-grabber-how-to-download-and-convert-videos/"><u>New YouTube Audio Grabber How to Download and Convert Videos</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/pick-your-favorite-top-ios-apps-for-facebook-video-loading-for-2024/"><u>Pick Your Favorite  Top iOS Apps for Facebook Video Loading for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/smart-social-media-strategies-from-youtube-to-facebook-for-2024/"><u>Smart Social Media Strategies  From YouTube To Facebook for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/social-stream-snippets-yearly-update-for-2024/"><u>Social Stream Snippets, Yearly Update for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/teamwork-made-simple-the-ultimate-guide-to-8-schedulers-for-2024/"><u>Teamwork Made Simple  The Ultimate Guide to 8 Schedulers for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-vivo-g2-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Vivo G2? | Dr.fone</u></a></li>
+</ul></div>

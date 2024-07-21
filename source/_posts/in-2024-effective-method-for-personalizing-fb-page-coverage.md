@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Effective Method for Personalizing FB Page Coverage"
-date: 2024-05-20T19:39:13.433Z
-updated: 2024-05-21T19:39:13.433Z
+date: 2024-07-20T15:44:16.939Z
+updated: 2024-07-21T15:44:16.939Z
 tags:
   - ai video
   - ai facebook
@@ -12,13 +12,16 @@ categories:
 description: "This Article Describes In 2024, Effective Method for Personalizing FB Page Coverage"
 excerpt: "This Article Describes In 2024, Effective Method for Personalizing FB Page Coverage"
 keywords: "\"Facebook Coverage Tailoring,Fan Page Customization,Personalized FB Features,Page Covering Techniques,User-Focused FB Updates,Individualized Social Media,Bespoke FB Displaying\""
-thumbnail: https://www.lifewire.com/thmb/BEu1dTImTgj-gj19IMN4njOxWDE=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/set-top-dvr-1130767-f2aa7f11e3d2442b966d53b8aa2d25fd.png
+thumbnail: https://thmb.techidaily.com/70a221261e83ff3179ef93192d51afbff1f7257579ffa960f9e7a085032e4b04.png
 ---
 
 ## Effective Method for Personalizing FB Page Coverage
 
 # How to Change Facebook Cover Photo
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -42,6 +45,14 @@ Some of the most important attractions of a Facebook profile use to be profile p
 
 [Learn more about How to Make your Facebook Profile Video More Attractive](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Facebook Cover Photo Size You Need to Know
 
 You might be aware of the fact that Facebook Cover photos have definite sizes and users can upload changes according to that settings only. The general dimensions for a Facebook cover photo use to be 315 pixels for height and almost 851 pixels for width.
@@ -54,6 +65,9 @@ Are you going to upload a Facebook cover photo the first time? Don’t worry! We
 
 **Step 1:** Go to your profile and move to the already updated cover photo. Here you will find the Update Cover Photo option out of four different choices: Choose from Photos, Upload Photo, Reposition, and Remove.
 
+<!-- affiliate ads begin -->
+<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![facebook-update-cover-photo](https://images.wondershare.com/filmora/article-images/facebook-update-cover-photo.jpg)
 
 **Step 2:** Now click the “Choose from My Photos” option to select a cover photo for your profile. This method can help you to select photos from your already uploaded Facebook photos.
@@ -72,12 +86,18 @@ It is also possible to select photos from any folder inside your computer or sma
 
 As soon as you have changed your cover photo with any of these methods as discussed above, it will soon appear in your timeline posts. In case if you want to remove it from the news feed, you can also make settings to remove the cover page change notification from the timeline. On the right-hand corner of your cover, you will find a pencil-like icon, click this one to hide your cover notification from the page.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<!-- affiliate ads end -->
 ![facebook-cover-photo-hide](https://images.wondershare.com/filmora/article-images/facebook-cover-photo-hide.jpg)
 
 ## Edit Facebook Cover Photo/Video with Versatile Video Editor Filmora
 
 It cannot be denied that a Facebook cover video will gain more attention from visitors than a regular cover photo. Why not try an easy-to-use video editor Filmora to create one for your Facebook page?
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
@@ -103,6 +123,9 @@ The article below will help you to get detailed information about how Facebook C
 * [Part 3: How to Change Facebook Cover Photo?](#part3)
 * [Part 4: Edit Facebook Cover Photo/Video with Versatile Video Editor](#part4)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<!-- affiliate ads end -->
 ## What is Facebook Cover Photo?
 
 Some of the most important attractions of a Facebook profile use to be profile photo and cover photo. The cover photo use to be of larger size and it appears above your profile photo. In order to create a special impact on viewers, always prefer to update unique cover images for your Facebook profile and in case if you are running a business page then you have to stay more careful.
@@ -139,12 +162,18 @@ It is also possible to select photos from any folder inside your computer or sma
 
 As soon as you have changed your cover photo with any of these methods as discussed above, it will soon appear in your timeline posts. In case if you want to remove it from the news feed, you can also make settings to remove the cover page change notification from the timeline. On the right-hand corner of your cover, you will find a pencil-like icon, click this one to hide your cover notification from the page.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![facebook-cover-photo-hide](https://images.wondershare.com/filmora/article-images/facebook-cover-photo-hide.jpg)
 
 ## Edit Facebook Cover Photo/Video with Versatile Video Editor Filmora
 
 It cannot be denied that a Facebook cover video will gain more attention from visitors than a regular cover photo. Why not try an easy-to-use video editor Filmora to create one for your Facebook page?
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
@@ -170,12 +199,18 @@ The article below will help you to get detailed information about how Facebook C
 * [Part 3: How to Change Facebook Cover Photo?](#part3)
 * [Part 4: Edit Facebook Cover Photo/Video with Versatile Video Editor](#part4)
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## What is Facebook Cover Photo?
 
 Some of the most important attractions of a Facebook profile use to be profile photo and cover photo. The cover photo use to be of larger size and it appears above your profile photo. In order to create a special impact on viewers, always prefer to update unique cover images for your Facebook profile and in case if you are running a business page then you have to stay more careful.
 
 [Learn more about How to Make your Facebook Profile Video More Attractive](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Facebook Cover Photo Size You Need to Know
 
 You might be aware of the fact that Facebook Cover photos have definite sizes and users can upload changes according to that settings only. The general dimensions for a Facebook cover photo use to be 315 pixels for height and almost 851 pixels for width.
@@ -206,6 +241,9 @@ It is also possible to select photos from any folder inside your computer or sma
 
 As soon as you have changed your cover photo with any of these methods as discussed above, it will soon appear in your timeline posts. In case if you want to remove it from the news feed, you can also make settings to remove the cover page change notification from the timeline. On the right-hand corner of your cover, you will find a pencil-like icon, click this one to hide your cover notification from the page.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![facebook-cover-photo-hide](https://images.wondershare.com/filmora/article-images/facebook-cover-photo-hide.jpg)
 
 ## Edit Facebook Cover Photo/Video with Versatile Video Editor Filmora
@@ -214,6 +252,9 @@ It cannot be denied that a Facebook cover video will gain more attention from vi
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -237,6 +278,9 @@ The article below will help you to get detailed information about how Facebook C
 * [Part 3: How to Change Facebook Cover Photo?](#part3)
 * [Part 4: Edit Facebook Cover Photo/Video with Versatile Video Editor](#part4)
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What is Facebook Cover Photo?
 
 Some of the most important attractions of a Facebook profile use to be profile photo and cover photo. The cover photo use to be of larger size and it appears above your profile photo. In order to create a special impact on viewers, always prefer to update unique cover images for your Facebook profile and in case if you are running a business page then you have to stay more careful.
@@ -279,6 +323,9 @@ As soon as you have changed your cover photo with any of these methods as discus
 
 It cannot be denied that a Facebook cover video will gain more attention from visitors than a regular cover photo. Why not try an easy-to-use video editor Filmora to create one for your Facebook page?
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
@@ -312,3 +359,50 @@ Follow @Shanoon Cox
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-elevating-your-facebook-footprint-the-top-20-strategies-for-successful-videos/"><u>[New] Elevating Your Facebook Footprint  The Top 20 Strategies for Successful Videos</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-expert-strategies-for-engaging-live-audiences-on-facebook/"><u>[New] Expert Strategies for Engaging Live Audiences on Facebook</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-from-fanfare-to-fame-facebook-features-for-viral-voyages/"><u>[New] From Fanfare to Fame  Facebook Features for Viral Voyages</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-ultimate-tactics-to-record-lol-clashes/"><u>[New] Ultimate Tactics to Record LOL Clashes</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-igtv-shutdown-for-beginners/"><u>[Updated] 2024 Approved  IGTV Shutdown for Beginners</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-7-proven-techniques-to-skyrocket-your-instagram-profile/"><u>[Updated] 7 Proven Techniques to Skyrocket Your Instagram Profile</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-a-peek-into-the-m1-max-clips-capabilities-for-2024/"><u>[Updated] A Peek Into the M1 Max Clip's Capabilities for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-digital-replay-engine-how-to-download-and-preserve-lives/"><u>[Updated] Digital Replay Engine  How to Download and Preserve Lives</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-discovering-the-most-engaging-facebook-vids/"><u>[Updated] Discovering the Most Engaging Facebook Vids</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-essential-blueprint-a-simple-guide-to-facebook-ad-success/"><u>[Updated] Essential Blueprint  A Simple Guide to Facebook Ad Success</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-facebook-video-shape-dimensions/"><u>[Updated] Facebook Video Shape Dimensions</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-fb-stream-downloading-on-different-operating-systems/"><u>[Updated] FB Stream Downloading on Different Operating Systems</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-premium-free-template-pack-top-titles-for-ae-dreamers/"><u>[Updated] Premium FREE Template Pack  Top Titles for AE Dreamers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unlocking-the-secrets-of-youtubes-shorts-revenue-sharing/"><u>[Updated] Unlocking the Secrets of YouTube’s Shorts Revenue Sharing</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-upgrading-to-high-def-facebook-broadcasts/"><u>[Updated] Upgrading to High-Def Facebook Broadcasts</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-explaining-watermarks-securing-online-media/"><u>2024 Approved  Explaining Watermarks  Securing Online Media</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-from-free-posts-to-fiscal-success-fb-pages-profit-playbook/"><u>2024 Approved  From Free Posts to Fiscal Success  FB Pages Profit Playbook</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-gathered-group-glances/"><u>2024 Approved  Gathered Group Glances</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-harnessing-facebooks-potential-for-maximum-revenue/"><u>2024 Approved  Harnessing Facebook's Potential for Maximum Revenue</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-top-prospects-animation-enhanced-3d-tools/"><u>2024 Approved  Top Prospects  Animation Enhanced 3D Tools</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/2024-approved-the-inside-scoop-on-mp3-converter-windows-an-essential-read-for-anyone-who-loves-music/"><u>2024 Approved The Inside Scoop on Mp3 Converter Windows An Essential Read for Anyone Who Loves Music</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/50-years-of-europes-voices-celebrating-linguistic-babel/"><u>50 Years of Europe’s Voices - Celebrating Linguistic Babel</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/elevate-your-engagement-select-8-social-apps-for-facebook-fame-for-2024/"><u>Elevate Your Engagement  Select 8 Social Apps for Facebook Fame for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/engaging-viewers-with-unique-square-videography-techniques-for-2024/"><u>Engaging Viewers with Unique Square Videography Techniques for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/facebook-live-cutting-edge-strategies-audiences-for-2024/"><u>Facebook Live  Cutting-Edge Strategies Audiences for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/facebook-live-and-video-to-mp3-in-seconds-no-boundaries-for-2024/"><u>Facebook Live & Video to MP3 in Seconds, No Boundaries for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/fb-videobot-downloader-tool-for-2024/"><u>FB Videobot Downloader Tool for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/from-novice-to-notorious-top-20-vlogging-ideas/"><u>From Novice to Notorious  Top 20 Vlogging Ideas</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/gathered-group-glances-for-2024/"><u>Gathered Group Glances for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/group-gallery-gatherer-for-2024/"><u>Group Gallery Gatherer for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/how-to-go-live-with-recorded-material-on-the-worlds-largest-social-network-for-2024/"><u>How to Go Live with Recorded Material on the World's Largest Social Network for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-a-quick-guide-to-oppo-find-x7-ultra-frp-bypass-instantly-by-drfone-android/"><u>In 2024, A Quick Guide to Oppo Find X7 Ultra FRP Bypass Instantly</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/in-2024-cutting-edge-audio-equipment-to-enhance-virtual-broadcasts/"><u>In 2024, Cutting-Edge Audio Equipment to Enhance Virtual Broadcasts</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-facebooks-ultimate-guide-to-full-screen-video/"><u>In 2024, Facebook's Ultimate Guide to Full Screen Video</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-fb-video-retrieval-the-top-5-software-compared/"><u>In 2024, FB Video Retrieval  The Top 5 Software Compared</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-can-poco-x6-promirror-share-to-pc-drfone-by-drfone-android/"><u>In 2024, How Can Poco X6 ProMirror Share to PC? | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-low-cost-android-facetime-alternatives-list/"><u>In 2024, Low-Cost Android FaceTime Alternatives List</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-steps-to-build-a-hidden-snapstory-collection/"><u>In 2024, Steps to Build a Hidden Snapstory Collection</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-2024-approved-are-you-in-search-for-a-step-by-step-guide-to-how-to-add-effects-in-tiktok-here-it-is-to-add-some-flavor-to-your-tiktok-videos-use-these-h/"><u>New 2024 Approved Are You in Search for a Step-by-Step Guide to How to Add Effects in TikTok? Here It Is. To Add some Flavor to Your TikTok Videos. Use These How to Add Effect to TikTok Recommendations</u></a></li>
+<li><a href="https://fake-location.techidaily.com/spoofing-life360-how-to-do-it-on-motorola-moto-g14-drfone-by-drfone-virtual-android/"><u>Spoofing Life360 How to Do it on Motorola Moto G14? | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/spoofing-life360-how-to-do-it-on-nokia-130-music-drfone-by-drfone-virtual-android/"><u>Spoofing Life360 How to Do it on Nokia 130 Music? | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-metaverse-vs-multimeva-understanding-their-distinct-qualities-for-2024/"><u>The Metaverse Vs. Multimeva  Understanding Their Distinct Qualities for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-chromebook-video-editing-hacks-using-windows-and-mac-os-apps/"><u>Updated In 2024, Chromebook Video Editing Hacks Using Windows and Mac OS Apps</u></a></li>
+</ul></div>

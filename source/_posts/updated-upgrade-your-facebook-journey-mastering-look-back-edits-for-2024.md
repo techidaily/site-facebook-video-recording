@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Upgrade Your Facebook Journey  Mastering Look Back Edits for 2024\""
-date: 2024-05-20T18:37:16.784Z
-updated: 2024-05-21T18:37:16.784Z
+date: 2024-07-20T12:33:01.477Z
+updated: 2024-07-21T12:33:01.477Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] Upgrade Your Facebook Journey: Mastering Look Back Edits for 2024\""
 excerpt: "\"This Article Describes [Updated] Upgrade Your Facebook Journey: Mastering Look Back Edits for 2024\""
 keywords: "Facebook Edit Upgrade,Mastery in FB Lookback,Enhance FB History View,Lookback Edit Optimization,Journey Through FB Edits,Expertise in FB Revisions,Improve FB Retrospect"
-thumbnail: https://www.lifewire.com/thmb/IKQDGD4jr_8XMZiSV32ufCsH_pg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-607327027-314e9ff56efd4c958e6f2e1cf5c39447.jpg
+thumbnail: https://thmb.techidaily.com/a8b16314a41e8185a53e16911a8cd83652896b6771ffcd18a8d5ccdaa894f672.jpg
 ---
 
 ## Upgrade Your Facebook Journey: Mastering Look Back Edits
@@ -31,12 +31,18 @@ thumbnail: https://www.lifewire.com/thmb/IKQDGD4jr_8XMZiSV32ufCsH_pg=/400x300/fi
 
  The good new is that, Facebook has introduced a new editor now, which lets you choose your favorite images for the video. To edit the Look Back video, simply hit the "Edit" button on the top right corner of the Look Back page. Then un-check the photos and updates you don't want in your video, and check the ones that you want include. Once you're done, click the green "Share Your Movie" button at the top of the page.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/edit-look-back-video.png "edit look back video")
 
  Now you've selected the image you like. But what if the result is still disappointing? Don't worry! Here I'll introduce you a more powerful video editing tool to edit and enrich your Facebook Look Back video. Read on to get more information.
 
 ## Powerful Editor to Edit Facebook Look Back Video
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 #### Why Choose [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) to edit Facebook Look back video?
@@ -48,6 +54,9 @@ thumbnail: https://www.lifewire.com/thmb/IKQDGD4jr_8XMZiSV32ufCsH_pg=/400x300/fi
 * Enables you to upload the edit Look Back Video to Facebook instantly.
 * Burn Look Back video to a DVD as a special gift.
 
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
 ## How to Easily Edit Facebook Look Back Video with Filmora
 
 #### 1. Download and import your Look Back video
@@ -87,8 +96,114 @@ thumbnail: https://www.lifewire.com/thmb/IKQDGD4jr_8XMZiSV32ufCsH_pg=/400x300/fi
 * Premiere your video on iPhone, iPad, Galaxy, HTC and other mobile devices.
 * Burn to DVD to preserve or share.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![edit facebook look back video](https://images.wondershare.com/filmora/article-images/export-output.jpg "edit facebook look back video")
 
+![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+Liza Brown
+
+Liza Brown is a writer and a lover of all things video.
+
+Follow @Liza Brown
+
+##### Liza Brown
+
+ Mar 27, 2024• Proven solutions
+
+ To celebrate its 10th anniversary, Facebook recently launched a [Look Back Page](https://www.facebook.com/lookback). If you visit that page, Facebook's algorithm will auto-generate a video of your profile history. It will show the year you joined Facebook, your most-liked photos, statuses with the most engagement, accompanied with a standard piece of music.
+
+ It's pretty cool. But unfortunately, Facebook’s choice of pictures isn't. You may have to see some embarrassing old photos, or status updates that were funny at the time. In that case, you need to select the pictures of your choice, right?
+
+ The good new is that, Facebook has introduced a new editor now, which lets you choose your favorite images for the video. To edit the Look Back video, simply hit the "Edit" button on the top right corner of the Look Back page. Then un-check the photos and updates you don't want in your video, and check the ones that you want include. Once you're done, click the green "Share Your Movie" button at the top of the page.
+
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/edit-look-back-video.png "edit look back video")
+
+ Now you've selected the image you like. But what if the result is still disappointing? Don't worry! Here I'll introduce you a more powerful video editing tool to edit and enrich your Facebook Look Back video. Read on to get more information.
+
+## Powerful Editor to Edit Facebook Look Back Video
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+#### Why Choose [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) to edit Facebook Look back video?
+
+* User-friendly interface lets you easily master video editing.
+* Crop, trim, cut, split and combine - edit Look Back video in a few clicks.
+* Easily enrich Look Back video with 300+ styles and audio/visual effects.
+* Provides advanced video editing tools like Tilt Shift, Face off, Mosaic, Jump Cut, etc.
+* Enables you to upload the edit Look Back Video to Facebook instantly.
+* Burn Look Back video to a DVD as a special gift.
+
+## How to Easily Edit Facebook Look Back Video with Filmora
+
+#### 1. Download and import your Look Back video
+
+ To edit the Look Back video, you should first download it. Then click "Import" to add it to the video editor, or drag and drop files to the User's Album. It will be displayed in thumbnail in the album and you can preview it on the right viewing window. Then place the Look Back video on the timeline.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
+DEX 3 meets the demands of today’s versatile DJ, without compromise! 
+DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<!-- affiliate ads end -->
+![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/video-editor-interface.jpg "edit look back video")
+
+#### 2. Add texts to the Look Back video
+
+ To share the unforgettable moments in Look Back video, adding texts is a good idea. To do this, switch to Text tab and you'll see various texts templates on the left panel. Choose your favorite one and place it on the Timeline. Then the text thumbnail with a leading letter "T" will appear on the timeline. Double click it to type your texts in the box and select the font, color, animation, etc. Hit "Return" to confirm the settings and go back to the primary window.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<!-- affiliate ads end -->
+![edit look back video](https://images.wondershare.com/topic/video-editing/add-titles.jpg "edit look back video")
+
+#### 3. Edit the audio of Look Back video
+
+ To adjust the background music of Look Back video, double click the video on the Timeline. In the pop up editing panel, switch to Audio column and change the Speed, Volume, Pitch of the audio file or add the Fade in/out effect as you like.
+
+ If you don't like the original background music of your Look Back video, just replace it and add a new one. To do this, right click the video and select the "Audio Detach" option. Then the background music will immediately be separated and appear on the music timeline. You can easily delete it and add a new one.
+
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/audio-detach.jpg "edit look back video")
+
+#### 4. Add more effects to your Look Back video
+
+ Wondershare Filmora (originally Wondershare Video Editor) can help you make your video wonderful and special by applying various elements. To apply some advanced effects, right click the video and select the "Power Tool" option from the pops up menu, or hit the "Power Tool" button above the timeline to enter the Power Tool window. Here you are provided tilt shift, mosaic, face off and jump cut at beats.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
+![add ](https://images.wondershare.com/images/multimedia/video-editor/tilt-shift-1.jpg "add ")
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+#### 5. Save or share the edited Look Back video
+
+ When everything is ready, click "Create" to save or share your videos in different ways:
+
+* Directly upload your Look Back video to Facebook or YouTube for sharing with frineds.
+* Export as standard or high-quality video format like MP4, MOV, AVI and more.
+* Premiere your video on iPhone, iPad, Galaxy, HTC and other mobile devices.
+* Burn to DVD to preserve or share.
+
+![edit facebook look back video](https://images.wondershare.com/filmora/article-images/export-output.jpg "edit facebook look back video")
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -130,12 +245,18 @@ Follow @Liza Brown
 
  To edit the Look Back video, you should first download it. Then click "Import" to add it to the video editor, or drag and drop files to the User's Album. It will be displayed in thumbnail in the album and you can preview it on the right viewing window. Then place the Look Back video on the timeline.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/video-editor-interface.jpg "edit look back video")
 
 #### 2. Add texts to the Look Back video
 
  To share the unforgettable moments in Look Back video, adding texts is a good idea. To do this, switch to Text tab and you'll see various texts templates on the left panel. Choose your favorite one and place it on the Timeline. Then the text thumbnail with a leading letter "T" will appear on the timeline. Double click it to type your texts in the box and select the font, color, animation, etc. Hit "Return" to confirm the settings and go back to the primary window.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<!-- affiliate ads end -->
 ![edit look back video](https://images.wondershare.com/topic/video-editing/add-titles.jpg "edit look back video")
 
 #### 3. Edit the audio of Look Back video
@@ -163,6 +284,9 @@ Follow @Liza Brown
 * Premiere your video on iPhone, iPad, Galaxy, HTC and other mobile devices.
 * Burn to DVD to preserve or share.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
 ![edit facebook look back video](https://images.wondershare.com/filmora/article-images/export-output.jpg "edit facebook look back video")
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
@@ -187,6 +311,9 @@ Follow @Liza Brown
 
  Now you've selected the image you like. But what if the result is still disappointing? Don't worry! Here I'll introduce you a more powerful video editing tool to edit and enrich your Facebook Look Back video. Read on to get more information.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Powerful Editor to Edit Facebook Look Back Video
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -226,8 +353,14 @@ Follow @Liza Brown
 
  Wondershare Filmora (originally Wondershare Video Editor) can help you make your video wonderful and special by applying various elements. To apply some advanced effects, right click the video and select the "Power Tool" option from the pops up menu, or hit the "Power Tool" button above the timeline to enter the Power Tool window. Here you are provided tilt shift, mosaic, face off and jump cut at beats.
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![add ](https://images.wondershare.com/images/multimedia/video-editor/tilt-shift-1.jpg "add ")
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 #### 5. Save or share the edited Look Back video
@@ -241,82 +374,14 @@ Follow @Liza Brown
 
 ![edit facebook look back video](https://images.wondershare.com/filmora/article-images/export-output.jpg "edit facebook look back video")
 
-![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-Liza Brown
-
-Liza Brown is a writer and a lover of all things video.
-
-Follow @Liza Brown
-
-##### Liza Brown
-
- Mar 27, 2024• Proven solutions
-
- To celebrate its 10th anniversary, Facebook recently launched a [Look Back Page](https://www.facebook.com/lookback). If you visit that page, Facebook's algorithm will auto-generate a video of your profile history. It will show the year you joined Facebook, your most-liked photos, statuses with the most engagement, accompanied with a standard piece of music.
-
- It's pretty cool. But unfortunately, Facebook’s choice of pictures isn't. You may have to see some embarrassing old photos, or status updates that were funny at the time. In that case, you need to select the pictures of your choice, right?
-
- The good new is that, Facebook has introduced a new editor now, which lets you choose your favorite images for the video. To edit the Look Back video, simply hit the "Edit" button on the top right corner of the Look Back page. Then un-check the photos and updates you don't want in your video, and check the ones that you want include. Once you're done, click the green "Share Your Movie" button at the top of the page.
-
-![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/edit-look-back-video.png "edit look back video")
-
- Now you've selected the image you like. But what if the result is still disappointing? Don't worry! Here I'll introduce you a more powerful video editing tool to edit and enrich your Facebook Look Back video. Read on to get more information.
-
-## Powerful Editor to Edit Facebook Look Back Video
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-#### Why Choose [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) to edit Facebook Look back video?
-
-* User-friendly interface lets you easily master video editing.
-* Crop, trim, cut, split and combine - edit Look Back video in a few clicks.
-* Easily enrich Look Back video with 300+ styles and audio/visual effects.
-* Provides advanced video editing tools like Tilt Shift, Face off, Mosaic, Jump Cut, etc.
-* Enables you to upload the edit Look Back Video to Facebook instantly.
-* Burn Look Back video to a DVD as a special gift.
-
-## How to Easily Edit Facebook Look Back Video with Filmora
-
-#### 1. Download and import your Look Back video
-
- To edit the Look Back video, you should first download it. Then click "Import" to add it to the video editor, or drag and drop files to the User's Album. It will be displayed in thumbnail in the album and you can preview it on the right viewing window. Then place the Look Back video on the timeline.
-
-![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/video-editor-interface.jpg "edit look back video")
-
-#### 2. Add texts to the Look Back video
-
- To share the unforgettable moments in Look Back video, adding texts is a good idea. To do this, switch to Text tab and you'll see various texts templates on the left panel. Choose your favorite one and place it on the Timeline. Then the text thumbnail with a leading letter "T" will appear on the timeline. Double click it to type your texts in the box and select the font, color, animation, etc. Hit "Return" to confirm the settings and go back to the primary window.
-
-![edit look back video](https://images.wondershare.com/topic/video-editing/add-titles.jpg "edit look back video")
-
-#### 3. Edit the audio of Look Back video
-
- To adjust the background music of Look Back video, double click the video on the Timeline. In the pop up editing panel, switch to Audio column and change the Speed, Volume, Pitch of the audio file or add the Fade in/out effect as you like.
-
- If you don't like the original background music of your Look Back video, just replace it and add a new one. To do this, right click the video and select the "Audio Detach" option. Then the background music will immediately be separated and appear on the music timeline. You can easily delete it and add a new one.
-
-![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/audio-detach.jpg "edit look back video")
-
-#### 4. Add more effects to your Look Back video
-
- Wondershare Filmora (originally Wondershare Video Editor) can help you make your video wonderful and special by applying various elements. To apply some advanced effects, right click the video and select the "Power Tool" option from the pops up menu, or hit the "Power Tool" button above the timeline to enter the Power Tool window. Here you are provided tilt shift, mosaic, face off and jump cut at beats.
-
-![add ](https://images.wondershare.com/images/multimedia/video-editor/tilt-shift-1.jpg "add ")
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-#### 5. Save or share the edited Look Back video
-
- When everything is ready, click "Create" to save or share your videos in different ways:
-
-* Directly upload your Look Back video to Facebook or YouTube for sharing with frineds.
-* Export as standard or high-quality video format like MP4, MOV, AVI and more.
-* Premiere your video on iPhone, iPad, Galaxy, HTC and other mobile devices.
-* Burn to DVD to preserve or share.
-
-![edit facebook look back video](https://images.wondershare.com/filmora/article-images/export-output.jpg "edit facebook look back video")
-
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -348,3 +413,42 @@ Follow @Liza Brown
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-facebook-slideshow-maker-how-to-make-a-facebook-slideshow/"><u>[New] Facebook Slideshow Maker  How to Make a Facebook Slideshow</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-favorites-compiled-top-6-fb-lite-downloads/"><u>[New] Favorites Compiled  #Top 6 FB Lite Downloads</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-free-facebook-management-smart-post-scheduling-tips/"><u>[New] Free Facebook Management  Smart Post Scheduling Tips</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-how-to-create-captivating-videos-an-introduction-to-fb-reels/"><u>[New] How to Create Captivating Videos  An Introduction to FB Reels</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-how-to-mute-non-stop-fb-video-ad-content/"><u>[New] How to Mute Non-Stop FB Video Ad Content</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-how-to-search-people-on-facebook-quickly-2-ways-included/"><u>[New] How to Search People on Facebook Quickly (2 Ways Included)</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-mastering-media-locate-your-latest-favorites-on-facebook/"><u>[New] Mastering Media  Locate Your Latest Favorites on Facebook</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-prodigious-palette-top-10-free-sketch-apps-for-mac-users/"><u>[New] Prodigious Palette  Top 10 Free Sketch Apps for Mac Users</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-3-top-picks-of-voice-capture-apps-for-your-ipad/"><u>[Updated] 2024 Approved  3 Top Picks of Voice Capture Apps for Your iPad</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-extract-and-play-fb-soundtracks/"><u>[Updated] Extract and Play FB Soundtracks</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-image-improvement-masterclass-top-apps-decoded-for-2024/"><u>[Updated] Image Improvement Masterclass - Top Apps Decoded for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-ultimate-guide-to-premium-hd-screen-capture-gear/"><u>[Updated] In 2024, Ultimate Guide to Premium HD Screen Capture Gear</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-mastering-chat-room-creation-in-whatsapp/"><u>[Updated] Mastering Chat Room Creation in WhatsApp</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-mastering-counter-image-navigation-in-digital-age-a-facebook-guide/"><u>[Updated] Mastering Counter-Image Navigation in Digital Age  A Facebook Guide</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-tackling-facebook-message-video-not-sending-issue-androidiphone/"><u>[Updated] Tackling Facebook Message Video Not Sending Issue (Android/iPhone)</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-unraveling-video-opposites-a-comprehensible-guide-for-instavids/"><u>[Updated] Unraveling Video Opposites  A Comprehensible Guide for InstaVids</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-content-creation-showdown-twitch-versus-youtube-explored/"><u>2024 Approved  Content Creation Showdown  Twitch Versus YouTube Explored</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-facebook-spotlight-todays-1-10-music-vids/"><u>2024 Approved  Facebook Spotlight  Today’s #1-#10 Music Vids</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-harmonious-social-media-incorporating-soundtracks-into-fb-videos/"><u>2024 Approved  Harmonious Social Media  Incorporating Soundtracks Into FB Videos</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-how-to-master-real-time-video-sharing-on-facebook/"><u>2024 Approved  How to Master Real-Time Video Sharing on Facebook</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-incarceration-to-insightfulness-ranking-funniest-jailmates-on-social-media/"><u>2024 Approved  Incarceration to Insightfulness  Ranking Funniest Jailmates on Social Media</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-mastery-of-video-dimensions-achieving-balanced-facebook-posts/"><u>2024 Approved  Mastery of Video Dimensions  Achieving Balanced Facebook Posts</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-monetary-mastery-for-your-social-media-channel-fb-video-wisdom/"><u>2024 Approved  Monetary Mastery for Your Social Media Channel  FB Video Wisdom</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/how-to-add-music-to-facebook-story-in-2024/"><u>How to Add Music to Facebook Story, In 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-fleeting-films-on-the-friendly-social/"><u>In 2024, Fleeting Films on the Friendly Social</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-how-to-access-full-range-of-groups-shared-media/"><u>In 2024, How to Access Full Range of Group's Shared Media</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-turn-off-find-my-iphone-15-when-phone-is-broken-by-drfone-ios/"><u>In 2024, How to Turn Off Find My iPhone 15 when Phone is Broken?</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-live-from-the-cloud-effective-dji-drone-broadcasting-tips/"><u>In 2024, Live From the Cloud  Effective DJI Drone Broadcasting Tips</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-mastery-manual-downloading-hd-videos-on-todays-digital-landscapes/"><u>In 2024, Mastery Manual  Downloading HD Videos on Today's Digital Landscapes</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-maximizing-engagement-essential-strategies-for-facebook-video-promotion/"><u>In 2024, Maximizing Engagement  Essential Strategies for Facebook Video Promotion</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-top-5-poco-x6-pro-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>In 2024, Top 5 Poco X6 Pro Bypass FRP Tools for PC That Actually Work</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/learn-the-procedure-for-automatic-video-broadcasting-on-facebook-for-2024/"><u>Learn the Procedure for Automatic Video Broadcasting on Facebook for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/live-link-lifters-annual-archive-access-for-2024/"><u>Live Link Lifters - Annual Archive Access for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-steady-as-a-rock-3-proven-methods-for-stabilizing-video-in-ae/"><u>New In 2024, Steady as a Rock 3 Proven Methods for Stabilizing Video in AE</u></a></li>
+<li><a href="https://win11.techidaily.com/win32keygen-understanding-identifying-and-neutralizing-its-threat-to-windows/"><u>Win32/Keygen: Understanding, Identifying & Neutralizing Its Threat to Windows</u></a></li>
+</ul></div>

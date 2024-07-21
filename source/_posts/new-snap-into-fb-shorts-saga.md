@@ -1,7 +1,7 @@
 ---
 title: "[New] Snap Into FB Shorts Saga"
-date: 2024-05-20T19:13:19.877Z
-updated: 2024-05-21T19:13:19.877Z
+date: 2024-07-20T14:24:12.645Z
+updated: 2024-07-21T14:24:12.645Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] Snap Into FB Shorts Saga"
 excerpt: "This Article Describes [New] Snap Into FB Shorts Saga"
 keywords: "Facebook Shorts Journey,FB Shorts Adventure,Quick FB Story Creation,Short Films on FB,Engaging FB Stories,Shareable FB Shorts,Creative FB Snap Chronicles"
-thumbnail: https://www.lifewire.com/thmb/pbRceAcoghvRMMccR6CoxE6HcdQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-535152209-5c6792b6c9e77c00013b3a85.jpg
+thumbnail: https://thmb.techidaily.com/545f7379c0befa5a44cab74ccb395e1f4653a53c66c0461613d4a49d7a7f9a57.jpg
 ---
 
 ## Snap Into FB Shorts Saga
@@ -25,6 +25,9 @@ Facebook short videos use a similar format as reels, where content creators can 
 
 This article explains how to view these short videos on Facebook and create them. In order to find out more, keep reading!!!
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<!-- affiliate ads end -->
 ## How to Watch Facebook Short Videos?
 
 Watching Facebook short videos is a relatively easier process, but we will guide you through a step-by-step process to achieve this since this is a new feature.
@@ -35,6 +38,9 @@ The first step is very basic. All you got to do is open your Facebook App.
 
 ![Launch Facebook](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Step 2: Scroll Down
 
 Once your app is up and running, scroll down. After about 3 to 4 posts, you will see a template that saysAltAlt short videos with several videos present.
@@ -51,6 +57,9 @@ Once you see the video, tap on it. This should play a short video. Scroll down t
 
 The Facebook short videos are a new feature, so we will tell you how to enable them if you want them. If it annoys you, we will add steps on how you can disable it.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<!-- affiliate ads end -->
 ### Enabling Facebook Short Stories
 
 If you have tried the steps described above and still cannot see the short videos on your Facebook feed, we will help you see them.
@@ -75,12 +84,18 @@ The next step is to go to your settings and search for Facebook in the apps.
 
 Tap on Facebook and view its space; tapAltAlt on clear data.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Select Clear Data](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-6.jpg)
 
 **Step 5: Give Facebook all the Permissions**
 
 After deleting the data, give Facebook access to all the permissions.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![Giving Permission access](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-7.jpg)
 
 **Step 5: Restart your Device**
@@ -109,22 +124,35 @@ The first step is simple. YouAltAlt open your Facebook app.
 
 Once your app has launched, scroll down to the short videos section.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
+ PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<!-- affiliate ads end -->
 ![Scroll to Short Videos](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-9.jpg)
 
 **Step 3: Tap on three dots**
 
 Right next to the create option, you will see three dots. Tap on them.
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Tap on three dots](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-10.jpg)
 
 **Step 4: Tap on Hide**
 
 Once you tap on the three dots, a pop-up will appear. This pops up will ask if you want to hide the current posts. Tap on it to hide the short stories.
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Tap on Hide](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-11.jpg)
 
 The short video on Facebook is an integrated feature into the application’s user interface, making it impossible to disable it. You can, however, hide it from your newsfeed for the time that you are scrolling through your feed.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Create Short Videos?
 
 Seeing several different videos may make you want to make your own as well. Perhaps a content creator might give you the motivation to become one yourself. To take the first steps towards this, we will help you create your own short videos in 2 ways.
@@ -147,18 +175,27 @@ After the app launches, scroll down to short videos.
 
 On the top right-hand corner, you will see a small camera icon with create written beside it. Tap on it.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Tap on create](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-13.jpg)
 
 **Step 4: Record a Video**
 
 You can record a 45-second video and add music by tapping the music icon on the top right-hand side.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Figure 6 Tap on the record button](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-14.jpg)
 
 **Step 5: Edit the Video**
 
 Once you have recorded the video, you can add music later onAltAlt. You can add any text you want to the video as well.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Edit the video](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-15.jpg)
 
 **Step 6: Tap Next**
@@ -187,12 +224,18 @@ The first step is to launch it on your laptop or PC and get to work.
 
 Import the media files you want to add to the short video on Facebook. It can be pictures that you want to add music in the background or add transitions to the video you have recorded.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<!-- affiliate ads end -->
 ![Import Files](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-18.jpg)
 
 **Step 3: Drag and Drop the Footage**\>
 
 After selecting the files, you drag and drop them down on the timeline in the sequence you want them to play in.
 
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
 ![Drag and Drop footage](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-19.jpg)
 
 **Step 4: Edit the Footage**\>
@@ -276,3 +319,56 @@ Although the young generation has shifted to Instagram and Snapchat, the previou
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-8-ultimate-online-photo-mosaic-compiler/"><u>[New] 2024 Approved  8 Ultimate Online Photo Mosaic Compiler</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-flickr-profile-picture-breakdown-area-codec-timeframe/"><u>[New] 2024 Approved  Flickr Profile Picture Breakdown  Area, Codec, Timeframe</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-from-observer-to-participant-enrich-your-online-experience-with-fb/"><u>[New] 2024 Approved  From Observer to Participant  Enrich Your Online Experience with FB</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-how-to-capture-and-stream-in-stunning-hd-fb/"><u>[New] 2024 Approved  How to Capture and Stream in Stunning HD (FB)</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-overcoming-social-media-roadblocks-fix-your-story-upload/"><u>[New] 2024 Approved  Overcoming Social Media Roadblocks  Fix Your Story Upload</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-seek-all-sharing-in-a-group-chat-via-messenger/"><u>[New] 2024 Approved  Seek All Sharing in a Group Chat via Messenger</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-step-by-step-guide-to-incorporating-yt-clips-into-presentations/"><u>[New] 2024 Approved  Step-by-Step Guide to Incorporating YT Clips Into Presentations</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-from-basics-to-brilliance-the-fb-cover-video-journey-for-2024/"><u>[New] From Basics to Brilliance  The FB Cover Video Journey for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-gathered-group-glances/"><u>[New] In 2024, Gathered Group Glances</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-key-commodities-for-your-company-8-indispensable-tools-that-cant-be-ignored/"><u>[New] In 2024, Key Commodities for Your Company  8 Indispensable Tools That Can’t Be Ignored</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-leveraging-social-media-power-optimal-use-of-hash-tags-on-fb/"><u>[New] In 2024, Leveraging Social Media Power  Optimal Use of Hash Tags on FB</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-maximizing-moolah-how-to-monetize-videos-on-the-social-network-giant/"><u>[New] In 2024, Maximizing Moolah  How to Monetize Videos on the Social Network Giant</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-melodic-freedom-fbs-music-library/"><u>[New] In 2024, Melodic Freedom  FB's Music Library</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-premier-mp4-broadcast-suite/"><u>[New] In 2024, Premier MP4 Broadcast Suite</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-mastering-fb-live-4-key-recording-techniques-for-2024/"><u>[New] Mastering FB Live  4 Key Recording Techniques for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-next-gen-methods-for-breathtaking-android-time-lapses/"><u>[New] Next-Gen Methods for Breathtaking Android Time-Lapses</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-pro-level-stabilization-systems-for-streaming-content/"><u>[New] Pro-Level Stabilization Systems for Streaming Content</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-revolutionize-your-social-media-top-downloader-plugins-and-addons-for-fb-on-firefox-for-2024/"><u>[New] Revolutionize Your Social Media  Top Downloader Plugins and Addons for FB on Firefox for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-seize-your-social-media-videos-top-extensions-and-downloaders-for-firefox-for-2024/"><u>[New] Seize Your Social Media Videos! Top Extensions and Downloaders for Firefox for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-dual-task-perfection-iphones-single-action-capture/"><u>[Updated] 2024 Approved  Dual-Task Perfection  IPhone's Single Action Capture</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-harnessing-hashtags-for-hitting-video-hotspots-on-fb/"><u>[Updated] 2024 Approved  Harnessing Hashtags for Hitting Video Hotspots on FB</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-navigating-the-art-of-facebook-video-distribution/"><u>[Updated] 2024 Approved  Navigating the Art of Facebook Video Distribution</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-optimizing-video-sharing-whatsapp-and-facebook-integration/"><u>[Updated] 2024 Approved  Optimizing Video Sharing  WhatsApp & Facebook Integration</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-seamless-iphone-recording-creating-fb-shareable-reels/"><u>[Updated] 2024 Approved  Seamless iPhone Recording  Creating FB Shareable Reels</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-seamless-strategies-downloading-graphics-images-from-facebook-and-beyond/"><u>[Updated] 2024 Approved  Seamless Strategies  Downloading Graphics Images From Facebook & Beyond</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-seamless-transition-of-video-files-to-facebook-for-pcandroid/"><u>[Updated] 2024 Approved  Seamless Transition of Video Files to Facebook for PC/Android</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-secure-and-enhance-slack-communications-with-top-10-free-audio-apps/"><u>[Updated] 2024 Approved  Secure & Enhance Slack Communications with Top 10 Free Audio Apps</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-skyrocket-sales-traffic-with-the-15-cutting-edge-facebook-gadgets/"><u>[Updated] 2024 Approved  Skyrocket Sales Traffic with the 15 Cutting-Edge Facebook Gadgets</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-best-free-screen-cast-options-on-windows-ranked-1-to-5/"><u>[Updated] Best Free Screen Cast Options on Windows, Ranked #1 to #5</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-from-concept-to-shares-how-to-create-hit-videos-for-fbinstagram/"><u>[Updated] From Concept to Shares  How to Create Hit Videos for FB/Instagram</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-get-the-most-out-of-your-content-facebooks-full-screen-tutorial-2023-for-2024/"><u>[Updated] Get the Most Out of Your Content  Facebook's Full-Screen Tutorial 2023 for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-how-to-play-facebook-videos-on-tv-in-2024/"><u>[Updated] How To Play Facebook Videos on TV, In 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-free-and-easy-fb-link-collection-services/"><u>[Updated] In 2024, Free and Easy FB Link Collection Services</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-harmony-in-minutes-no-credit-due/"><u>[Updated] In 2024, Harmony in Minutes, No Credit Due</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-secrets-to-exposing-videos-in-the-news-feed/"><u>[Updated] In 2024, Secrets to Exposing Videos in the News Feed</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-pioneering-posts-a-facebook-guide-to-going-viral-for-2024/"><u>[Updated] Pioneering Posts  A Facebook Guide to Going Viral for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-revealing-the-12-paths-fixing-non-appearing-fb-video-posts-now-for-2024/"><u>[Updated] Revealing The 12 Paths  Fixing Non-Appearing FB Video Posts, Now for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-enhancing-roku-experience-for-facebook-live-broadcasts/"><u>2024 Approved  Enhancing Roku Experience for Facebook Live Broadcasts</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-ways-to-transfer-music-from-htc-u23-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Transfer Music from HTC U23 to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/brush-up-your-skills-the-definitive-list-of-top-10-drawing-apps-for-android-for-2024/"><u>Brush Up Your Skills  The Definitive List of Top 10 Drawing Apps for Android for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-life360-notify-when-you-log-out-on-itel-p40-drfone-by-drfone-virtual-android/"><u>Does Life360 Notify When You Log Out On Itel P40? | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/earn-with-each-screen-capture/"><u>Earn With Each Screen Capture</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/full-guide-on-mirroring-your-tecno-spark-20c-to-your-pcmac-drfone-by-drfone-android/"><u>Full Guide on Mirroring Your Tecno Spark 20C to Your PC/Mac | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-enhancing-your-game-time-with-youtube-live-broadcasts/"><u>In 2024, Enhancing Your Game Time with YouTube Live Broadcasts</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-how-to-make-youtube-animated-subscribe-button-easily-in-filmora/"><u>In 2024, How to Make YouTube Animated Subscribe Button Easily in Filmora</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-unveiling-the-perfect-thumbnail-formula-for-youtube-success/"><u>In 2024, Unveiling The Perfect Thumbnail Formula for YouTube Success</u></a></li>
+<li><a href="https://extra-support.techidaily.com/leading-live-streaming-services-a-detailed-comparison-for-2024/"><u>Leading Live Streaming Services  A Detailed Comparison for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/privacy-prowess-how-to-disconnect-on-insta/"><u>Privacy Prowess  How to Disconnect on Insta</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/screen-snip-prospects-top-5-capture-tools-reviewed-on-windows/"><u>Screen Snip Prospects  Top 5 Capture Tools Reviewed on Windows</u></a></li>
+</ul></div>

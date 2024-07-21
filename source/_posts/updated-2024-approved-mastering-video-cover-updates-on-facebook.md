@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Mastering Video Cover Updates on Facebook\""
-date: 2024-05-20T19:55:59.732Z
-updated: 2024-05-21T19:55:59.732Z
+date: 2024-07-20T16:36:12.171Z
+updated: 2024-07-21T16:36:12.171Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] 2024 Approved: Mastering Video Cover Updates on Facebook\""
 excerpt: "\"This Article Describes [Updated] 2024 Approved: Mastering Video Cover Updates on Facebook\""
 keywords: "Facebook Video Covers,Update Facebook Videos,Mastery Video Covers,FB Video Cover Techniques,Effective FB Video Hide,Tips for FB Video Hiding,Video Updates on Facebook"
-thumbnail: https://www.lifewire.com/thmb/-bcmaokZfvwTgJE1q3LjnihDbBY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-678913139-58a4ece73df78c345bcd781b.jpg
+thumbnail: https://thmb.techidaily.com/7f8f4d19272d4759318cbc88d919ca0c7c48f620077177c71b194a7d51d8ecab.jpg
 ---
 
 ## Mastering Video Cover Updates on Facebook
@@ -31,6 +31,9 @@ A stunning Facebook video cover would help you attract the attention of your aud
 * [How to Change Video Cover in Facebook Timeline](#part2)
 * [How to Create and Change Video Cover on Facebook Page](#part3)
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## How to Create Video Cover in Facebook Profile
 
 Facebook lets its users [create a profile video](https://tools.techidaily.com/wondershare/filmora/download/) up to 7 seconds in length. The animated profile video would only be visible to people who are looking at your profile page so you can rest assured that it isn’t going to appear on the News Feed of your friends or followers. In the steps given below, we would discuss how to create a cover for your Facebook profile video.
@@ -46,6 +49,139 @@ Facebook lets its users [create a profile video](https://tools.techidaily.com/wo
    1. On the bottom right corner of your profile picture, you will be seeing a video camera icon. Tap it.
    2. A menu would open which would allow you to record a new profile video or upload an existing one. Choose either of the options and allow the application to access your camera and photos.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
+
+ Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
+
+ DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
+ PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
+![facebook profile video change](https://images.wondershare.com/filmora/article-images/facebook-profile-video-change.jpg)
+
+   1. The ‘Trim’ button would allow you to adjust the length of your video. Tap the ‘Trim’ button and drag it on either side to shorten the video length. There is also an option of turning the sound on or off.
+
+![facebook profile video menu](https://images.wondershare.com/filmora/article-images/facebook-profile-video-menu.jpg)
+
+   1. You can also tap the Crop button at the bottom of the page to make the video square if necessary.
+   2. Now tap the Cover button to select a frame for your video which would act as the video thumbnail in Facebook for use as a profile picture in the News Feed of your friends and followers. After selecting the cover just tap Use and your video is all set to be displayed on your profile page.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
+![facebook profile video cover](https://images.wondershare.com/filmora/article-images/facebook-profile-video-cover.jpg)
+
+[Learn more about how to make Facebook Profile Cover Video](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## How to Change Video Cover in Facebook Timeline
+
+**Step 1:** After uploading the video you will get a message telling you that the video is now available for view. Now go to your timeline, click the ‘More’ option and then click ‘Videos’
+
+![facebook timeline video cover change](https://images.wondershare.com/filmora/article-images/facebook-timeline-video-cover-change.jpg)
+
+**Step 2:** Find out your new video. Now in the top right corner, you will see a pencil icon. Click it and then select ‘Edit this video’.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<!-- affiliate ads end -->
+![edit facebook video button](https://images.wondershare.com/filmora/article-images/edit-facebook-video-button.jpg)
+
+**Step 3:** You will find options for adding tags, thumbnails, and descriptions along with options for changing the video title. Pick the one you like and click the ‘Save’ button.
+
+![facebook video thumbnail](https://images.wondershare.com/filmora/article-images/facebook-video-thumbnail.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<!-- affiliate ads end -->
+## How to Create and Change Video Cover on Facebook Page
+
+**Step 1:**  Click the‘ share a photo or video’ button on the top of your Page’s timeline
+
+**Step 2:**  Click ‘Upload photo/video’ and choose a video from your PC
+
+**Step 3:**  You can type an update (optional) and then enter the video tags and video title
+
+**Step 4:**  Choose a thumbnail by clicking the arrows on the video preview or click ‘Add Custom Thumbnail’ and choose a special cover
+
+![facebook page video cover](https://images.wondershare.com/filmora/article-images/facebook-page-video-cover.jpg)
+
+**Step 5:**  Click the **Publish** button.
+
+The uploaded videos would appear in your video library. In case you want to change the cover later you need to do the following:
+
+* Click the ‘Publishing Tools’ on the top of your FB Page
+* Click the ‘Video Library’ on the left
+* Check the box beside the video you want to edit
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<!-- affiliate ads end -->
+![video library edit video](https://images.wondershare.com/filmora/article-images/video-library-edit-video.jpg)
+
+* In the Basic tab, choose Custom for selecting a new video cover
+
+![change cover custom](https://images.wondershare.com/filmora/article-images/change-cover-custom.jpg)
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+You May also like:
+
+[**12 Facebook Marketing Tips for Business**](https://tools.techidaily.com/wondershare/filmora/download/) \>>  
+[**8 Best Facebook Scheduler**](https://tools.techidaily.com/wondershare/filmora/download/) \>>
+[**Facebook Insights: How to Use it for Beginners**](https://tools.techidaily.com/wondershare/filmora/download/) \>>  
+
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+A stunning Facebook video cover would help you attract the attention of your audience and lure them to find out more about you and your company and view more of your Facebook videos. In today’s post, we are going to tell you everything about how to change the cover of your videos on your Facebook profile, page, and timeline.
+
+* [How to Create Video Cover In Facebook Profile](#part1)
+* [How to Change Video Cover in Facebook Timeline](#part2)
+* [How to Create and Change Video Cover on Facebook Page](#part3)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
+## How to Create Video Cover in Facebook Profile
+
+Facebook lets its users [create a profile video](https://tools.techidaily.com/wondershare/filmora/download/) up to 7 seconds in length. The animated profile video would only be visible to people who are looking at your profile page so you can rest assured that it isn’t going to appear on the News Feed of your friends or followers. In the steps given below, we would discuss how to create a cover for your Facebook profile video.
+
+   1. Once you have updated to the latest version of Facebook on your iOS device, you need to open the FB app and tap the ‘More’ button in the bottom right.
+
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![facebook profile 1 ](https://images.wondershare.com/filmora/article-images/facebook-profile-1.jpg)
+
+   1. Tap the ‘View your profile’ button on top.
+
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![facebook view profile](https://images.wondershare.com/filmora/article-images/facebook-view-profile.jpg)
+
+   1. On the bottom right corner of your profile picture, you will be seeing a video camera icon. Tap it.
+   2. A menu would open which would allow you to record a new profile video or upload an existing one. Choose either of the options and allow the application to access your camera and photos.
+
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ![facebook profile video change](https://images.wondershare.com/filmora/article-images/facebook-profile-video-change.jpg)
 
    1. The ‘Trim’ button would allow you to adjust the length of your video. Tap the ‘Trim’ button and drag it on either side to shorten the video length. There is also an option of turning the sound on or off.
@@ -59,6 +195,120 @@ Facebook lets its users [create a profile video](https://tools.techidaily.com/wo
 
 [Learn more about how to make Facebook Profile Cover Video](https://tools.techidaily.com/wondershare/filmora/download/)
 
+## How to Change Video Cover in Facebook Timeline
+
+**Step 1:** After uploading the video you will get a message telling you that the video is now available for view. Now go to your timeline, click the ‘More’ option and then click ‘Videos’
+
+![facebook timeline video cover change](https://images.wondershare.com/filmora/article-images/facebook-timeline-video-cover-change.jpg)
+
+**Step 2:** Find out your new video. Now in the top right corner, you will see a pencil icon. Click it and then select ‘Edit this video’.
+
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
+![edit facebook video button](https://images.wondershare.com/filmora/article-images/edit-facebook-video-button.jpg)
+
+**Step 3:** You will find options for adding tags, thumbnails, and descriptions along with options for changing the video title. Pick the one you like and click the ‘Save’ button.
+
+![facebook video thumbnail](https://images.wondershare.com/filmora/article-images/facebook-video-thumbnail.jpg)
+
+## How to Create and Change Video Cover on Facebook Page
+
+**Step 1:**  Click the‘ share a photo or video’ button on the top of your Page’s timeline
+
+**Step 2:**  Click ‘Upload photo/video’ and choose a video from your PC
+
+**Step 3:**  You can type an update (optional) and then enter the video tags and video title
+
+**Step 4:**  Choose a thumbnail by clicking the arrows on the video preview or click ‘Add Custom Thumbnail’ and choose a special cover
+
+![facebook page video cover](https://images.wondershare.com/filmora/article-images/facebook-page-video-cover.jpg)
+
+**Step 5:**  Click the **Publish** button.
+
+The uploaded videos would appear in your video library. In case you want to change the cover later you need to do the following:
+
+* Click the ‘Publishing Tools’ on the top of your FB Page
+* Click the ‘Video Library’ on the left
+* Check the box beside the video you want to edit
+
+![video library edit video](https://images.wondershare.com/filmora/article-images/video-library-edit-video.jpg)
+
+* In the Basic tab, choose Custom for selecting a new video cover
+
+![change cover custom](https://images.wondershare.com/filmora/article-images/change-cover-custom.jpg)
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+You May also like:
+
+[**12 Facebook Marketing Tips for Business**](https://tools.techidaily.com/wondershare/filmora/download/) \>>  
+[**8 Best Facebook Scheduler**](https://tools.techidaily.com/wondershare/filmora/download/) \>>
+[**Facebook Insights: How to Use it for Beginners**](https://tools.techidaily.com/wondershare/filmora/download/) \>>  
+
+<!-- affiliate ads begin -->
+<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
+	Home Use license is dedicated for personal, non-commercial use only. 
+	If Action! is used for commercial gain or to further any commercial purpose, 
+	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
+ 
+	company, user or members of the same household. Action! - screen and game recorder</a>
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+A stunning Facebook video cover would help you attract the attention of your audience and lure them to find out more about you and your company and view more of your Facebook videos. In today’s post, we are going to tell you everything about how to change the cover of your videos on your Facebook profile, page, and timeline.
+
+* [How to Create Video Cover In Facebook Profile](#part1)
+* [How to Change Video Cover in Facebook Timeline](#part2)
+* [How to Create and Change Video Cover on Facebook Page](#part3)
+
+## How to Create Video Cover in Facebook Profile
+
+Facebook lets its users [create a profile video](https://tools.techidaily.com/wondershare/filmora/download/) up to 7 seconds in length. The animated profile video would only be visible to people who are looking at your profile page so you can rest assured that it isn’t going to appear on the News Feed of your friends or followers. In the steps given below, we would discuss how to create a cover for your Facebook profile video.
+
+   1. Once you have updated to the latest version of Facebook on your iOS device, you need to open the FB app and tap the ‘More’ button in the bottom right.
+
+![facebook profile 1 ](https://images.wondershare.com/filmora/article-images/facebook-profile-1.jpg)
+
+   1. Tap the ‘View your profile’ button on top.
+
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
+![facebook view profile](https://images.wondershare.com/filmora/article-images/facebook-view-profile.jpg)
+
+   1. On the bottom right corner of your profile picture, you will be seeing a video camera icon. Tap it.
+   2. A menu would open which would allow you to record a new profile video or upload an existing one. Choose either of the options and allow the application to access your camera and photos.
+
+![facebook profile video change](https://images.wondershare.com/filmora/article-images/facebook-profile-video-change.jpg)
+
+   1. The ‘Trim’ button would allow you to adjust the length of your video. Tap the ‘Trim’ button and drag it on either side to shorten the video length. There is also an option of turning the sound on or off.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
+![facebook profile video menu](https://images.wondershare.com/filmora/article-images/facebook-profile-video-menu.jpg)
+
+   1. You can also tap the Crop button at the bottom of the page to make the video square if necessary.
+   2. Now tap the Cover button to select a frame for your video which would act as the video thumbnail in Facebook for use as a profile picture in the News Feed of your friends and followers. After selecting the cover just tap Use and your video is all set to be displayed on your profile page.
+
+![facebook profile video cover](https://images.wondershare.com/filmora/article-images/facebook-profile-video-cover.jpg)
+
+[Learn more about how to make Facebook Profile Cover Video](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Change Video Cover in Facebook Timeline
 
 **Step 1:** After uploading the video you will get a message telling you that the video is now available for view. Now go to your timeline, click the ‘More’ option and then click ‘Videos’
@@ -83,6 +333,9 @@ Facebook lets its users [create a profile video](https://tools.techidaily.com/wo
 
 **Step 4:**  Choose a thumbnail by clicking the arrows on the video preview or click ‘Add Custom Thumbnail’ and choose a special cover
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ![facebook page video cover](https://images.wondershare.com/filmora/article-images/facebook-page-video-cover.jpg)
 
 **Step 5:**  Click the **Publish** button.
@@ -125,6 +378,9 @@ A stunning Facebook video cover would help you attract the attention of your aud
 * [How to Change Video Cover in Facebook Timeline](#part2)
 * [How to Create and Change Video Cover on Facebook Page](#part3)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<!-- affiliate ads end -->
 ## How to Create Video Cover in Facebook Profile
 
 Facebook lets its users [create a profile video](https://tools.techidaily.com/wondershare/filmora/download/) up to 7 seconds in length. The animated profile video would only be visible to people who are looking at your profile page so you can rest assured that it isn’t going to appear on the News Feed of your friends or followers. In the steps given below, we would discuss how to create a cover for your Facebook profile video.
@@ -135,6 +391,9 @@ Facebook lets its users [create a profile video](https://tools.techidaily.com/wo
 
    1. Tap the ‘View your profile’ button on top.
 
+<!-- affiliate ads begin -->
+<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![facebook view profile](https://images.wondershare.com/filmora/article-images/facebook-view-profile.jpg)
 
    1. On the bottom right corner of your profile picture, you will be seeing a video camera icon. Tap it.
@@ -157,14 +416,23 @@ Facebook lets its users [create a profile video](https://tools.techidaily.com/wo
 
 **Step 1:** After uploading the video you will get a message telling you that the video is now available for view. Now go to your timeline, click the ‘More’ option and then click ‘Videos’
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![facebook timeline video cover change](https://images.wondershare.com/filmora/article-images/facebook-timeline-video-cover-change.jpg)
 
 **Step 2:** Find out your new video. Now in the top right corner, you will see a pencil icon. Click it and then select ‘Edit this video’.
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![edit facebook video button](https://images.wondershare.com/filmora/article-images/edit-facebook-video-button.jpg)
 
 **Step 3:** You will find options for adding tags, thumbnails, and descriptions along with options for changing the video title. Pick the one you like and click the ‘Save’ button.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<!-- affiliate ads end -->
 ![facebook video thumbnail](https://images.wondershare.com/filmora/article-images/facebook-video-thumbnail.jpg)
 
 ## How to Create and Change Video Cover on Facebook Page
@@ -177,6 +445,9 @@ Facebook lets its users [create a profile video](https://tools.techidaily.com/wo
 
 **Step 4:**  Choose a thumbnail by clicking the arrows on the video preview or click ‘Add Custom Thumbnail’ and choose a special cover
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![facebook page video cover](https://images.wondershare.com/filmora/article-images/facebook-page-video-cover.jpg)
 
 **Step 5:**  Click the **Publish** button.
@@ -191,8 +462,14 @@ The uploaded videos would appear in your video library. In case you want to chan
 
 * In the Basic tab, choose Custom for selecting a new video cover
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![change cover custom](https://images.wondershare.com/filmora/article-images/change-cover-custom.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 You May also like:
@@ -201,194 +478,9 @@ You May also like:
 [**8 Best Facebook Scheduler**](https://tools.techidaily.com/wondershare/filmora/download/) \>>
 [**Facebook Insights: How to Use it for Beginners**](https://tools.techidaily.com/wondershare/filmora/download/) \>>  
 
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
-A stunning Facebook video cover would help you attract the attention of your audience and lure them to find out more about you and your company and view more of your Facebook videos. In today’s post, we are going to tell you everything about how to change the cover of your videos on your Facebook profile, page, and timeline.
-
-* [How to Create Video Cover In Facebook Profile](#part1)
-* [How to Change Video Cover in Facebook Timeline](#part2)
-* [How to Create and Change Video Cover on Facebook Page](#part3)
-
-## How to Create Video Cover in Facebook Profile
-
-Facebook lets its users [create a profile video](https://tools.techidaily.com/wondershare/filmora/download/) up to 7 seconds in length. The animated profile video would only be visible to people who are looking at your profile page so you can rest assured that it isn’t going to appear on the News Feed of your friends or followers. In the steps given below, we would discuss how to create a cover for your Facebook profile video.
-
-   1. Once you have updated to the latest version of Facebook on your iOS device, you need to open the FB app and tap the ‘More’ button in the bottom right.
-
-![facebook profile 1 ](https://images.wondershare.com/filmora/article-images/facebook-profile-1.jpg)
-
-   1. Tap the ‘View your profile’ button on top.
-
-![facebook view profile](https://images.wondershare.com/filmora/article-images/facebook-view-profile.jpg)
-
-   1. On the bottom right corner of your profile picture, you will be seeing a video camera icon. Tap it.
-   2. A menu would open which would allow you to record a new profile video or upload an existing one. Choose either of the options and allow the application to access your camera and photos.
-
-![facebook profile video change](https://images.wondershare.com/filmora/article-images/facebook-profile-video-change.jpg)
-
-   1. The ‘Trim’ button would allow you to adjust the length of your video. Tap the ‘Trim’ button and drag it on either side to shorten the video length. There is also an option of turning the sound on or off.
-
-![facebook profile video menu](https://images.wondershare.com/filmora/article-images/facebook-profile-video-menu.jpg)
-
-   1. You can also tap the Crop button at the bottom of the page to make the video square if necessary.
-   2. Now tap the Cover button to select a frame for your video which would act as the video thumbnail in Facebook for use as a profile picture in the News Feed of your friends and followers. After selecting the cover just tap Use and your video is all set to be displayed on your profile page.
-
-![facebook profile video cover](https://images.wondershare.com/filmora/article-images/facebook-profile-video-cover.jpg)
-
-[Learn more about how to make Facebook Profile Cover Video](https://tools.techidaily.com/wondershare/filmora/download/)
-
-## How to Change Video Cover in Facebook Timeline
-
-**Step 1:** After uploading the video you will get a message telling you that the video is now available for view. Now go to your timeline, click the ‘More’ option and then click ‘Videos’
-
-![facebook timeline video cover change](https://images.wondershare.com/filmora/article-images/facebook-timeline-video-cover-change.jpg)
-
-**Step 2:** Find out your new video. Now in the top right corner, you will see a pencil icon. Click it and then select ‘Edit this video’.
-
-![edit facebook video button](https://images.wondershare.com/filmora/article-images/edit-facebook-video-button.jpg)
-
-**Step 3:** You will find options for adding tags, thumbnails, and descriptions along with options for changing the video title. Pick the one you like and click the ‘Save’ button.
-
-![facebook video thumbnail](https://images.wondershare.com/filmora/article-images/facebook-video-thumbnail.jpg)
-
-## How to Create and Change Video Cover on Facebook Page
-
-**Step 1:**  Click the‘ share a photo or video’ button on the top of your Page’s timeline
-
-**Step 2:**  Click ‘Upload photo/video’ and choose a video from your PC
-
-**Step 3:**  You can type an update (optional) and then enter the video tags and video title
-
-**Step 4:**  Choose a thumbnail by clicking the arrows on the video preview or click ‘Add Custom Thumbnail’ and choose a special cover
-
-![facebook page video cover](https://images.wondershare.com/filmora/article-images/facebook-page-video-cover.jpg)
-
-**Step 5:**  Click the **Publish** button.
-
-The uploaded videos would appear in your video library. In case you want to change the cover later you need to do the following:
-
-* Click the ‘Publishing Tools’ on the top of your FB Page
-* Click the ‘Video Library’ on the left
-* Check the box beside the video you want to edit
-
-![video library edit video](https://images.wondershare.com/filmora/article-images/video-library-edit-video.jpg)
-
-* In the Basic tab, choose Custom for selecting a new video cover
-
-![change cover custom](https://images.wondershare.com/filmora/article-images/change-cover-custom.jpg)
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-You May also like:
-
-[**12 Facebook Marketing Tips for Business**](https://tools.techidaily.com/wondershare/filmora/download/) \>>  
-[**8 Best Facebook Scheduler**](https://tools.techidaily.com/wondershare/filmora/download/) \>>
-[**Facebook Insights: How to Use it for Beginners**](https://tools.techidaily.com/wondershare/filmora/download/) \>>  
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
-A stunning Facebook video cover would help you attract the attention of your audience and lure them to find out more about you and your company and view more of your Facebook videos. In today’s post, we are going to tell you everything about how to change the cover of your videos on your Facebook profile, page, and timeline.
-
-* [How to Create Video Cover In Facebook Profile](#part1)
-* [How to Change Video Cover in Facebook Timeline](#part2)
-* [How to Create and Change Video Cover on Facebook Page](#part3)
-
-## How to Create Video Cover in Facebook Profile
-
-Facebook lets its users [create a profile video](https://tools.techidaily.com/wondershare/filmora/download/) up to 7 seconds in length. The animated profile video would only be visible to people who are looking at your profile page so you can rest assured that it isn’t going to appear on the News Feed of your friends or followers. In the steps given below, we would discuss how to create a cover for your Facebook profile video.
-
-   1. Once you have updated to the latest version of Facebook on your iOS device, you need to open the FB app and tap the ‘More’ button in the bottom right.
-
-![facebook profile 1 ](https://images.wondershare.com/filmora/article-images/facebook-profile-1.jpg)
-
-   1. Tap the ‘View your profile’ button on top.
-
-![facebook view profile](https://images.wondershare.com/filmora/article-images/facebook-view-profile.jpg)
-
-   1. On the bottom right corner of your profile picture, you will be seeing a video camera icon. Tap it.
-   2. A menu would open which would allow you to record a new profile video or upload an existing one. Choose either of the options and allow the application to access your camera and photos.
-
-![facebook profile video change](https://images.wondershare.com/filmora/article-images/facebook-profile-video-change.jpg)
-
-   1. The ‘Trim’ button would allow you to adjust the length of your video. Tap the ‘Trim’ button and drag it on either side to shorten the video length. There is also an option of turning the sound on or off.
-
-![facebook profile video menu](https://images.wondershare.com/filmora/article-images/facebook-profile-video-menu.jpg)
-
-   1. You can also tap the Crop button at the bottom of the page to make the video square if necessary.
-   2. Now tap the Cover button to select a frame for your video which would act as the video thumbnail in Facebook for use as a profile picture in the News Feed of your friends and followers. After selecting the cover just tap Use and your video is all set to be displayed on your profile page.
-
-![facebook profile video cover](https://images.wondershare.com/filmora/article-images/facebook-profile-video-cover.jpg)
-
-[Learn more about how to make Facebook Profile Cover Video](https://tools.techidaily.com/wondershare/filmora/download/)
-
-## How to Change Video Cover in Facebook Timeline
-
-**Step 1:** After uploading the video you will get a message telling you that the video is now available for view. Now go to your timeline, click the ‘More’ option and then click ‘Videos’
-
-![facebook timeline video cover change](https://images.wondershare.com/filmora/article-images/facebook-timeline-video-cover-change.jpg)
-
-**Step 2:** Find out your new video. Now in the top right corner, you will see a pencil icon. Click it and then select ‘Edit this video’.
-
-![edit facebook video button](https://images.wondershare.com/filmora/article-images/edit-facebook-video-button.jpg)
-
-**Step 3:** You will find options for adding tags, thumbnails, and descriptions along with options for changing the video title. Pick the one you like and click the ‘Save’ button.
-
-![facebook video thumbnail](https://images.wondershare.com/filmora/article-images/facebook-video-thumbnail.jpg)
-
-## How to Create and Change Video Cover on Facebook Page
-
-**Step 1:**  Click the‘ share a photo or video’ button on the top of your Page’s timeline
-
-**Step 2:**  Click ‘Upload photo/video’ and choose a video from your PC
-
-**Step 3:**  You can type an update (optional) and then enter the video tags and video title
-
-**Step 4:**  Choose a thumbnail by clicking the arrows on the video preview or click ‘Add Custom Thumbnail’ and choose a special cover
-
-![facebook page video cover](https://images.wondershare.com/filmora/article-images/facebook-page-video-cover.jpg)
-
-**Step 5:**  Click the **Publish** button.
-
-The uploaded videos would appear in your video library. In case you want to change the cover later you need to do the following:
-
-* Click the ‘Publishing Tools’ on the top of your FB Page
-* Click the ‘Video Library’ on the left
-* Check the box beside the video you want to edit
-
-![video library edit video](https://images.wondershare.com/filmora/article-images/video-library-edit-video.jpg)
-
-* In the Basic tab, choose Custom for selecting a new video cover
-
-![change cover custom](https://images.wondershare.com/filmora/article-images/change-cover-custom.jpg)
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-You May also like:
-
-[**12 Facebook Marketing Tips for Business**](https://tools.techidaily.com/wondershare/filmora/download/) \>>  
-[**8 Best Facebook Scheduler**](https://tools.techidaily.com/wondershare/filmora/download/) \>>
-[**Facebook Insights: How to Use it for Beginners**](https://tools.techidaily.com/wondershare/filmora/download/) \>>  
-
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -420,3 +512,46 @@ Follow @Shanoon Cox
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-essential-steps-in-making-impactful-fb-cover-videos/"><u>[New] Essential Steps in Making Impactful FB Cover Videos</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-fb-live-streaming-to-perfect-mp3-format-2023-converter/"><u>[New] FB Live Streaming to Perfect MP3 Format - 2023 Converter</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-free-your-feed-beating-fbs-vids/"><u>[New] Free Your Feed  Beating FB's Vids</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-from-facebook-to-hd-how-to-convert-videos-to-premium-mp4-format-free/"><u>[New] From Facebook to HD  How To Convert Videos to Premium MP4 Format (Free)</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-how-to-view-facebook-stories-anonymously2/"><u>[New] How to View Facebook Stories Anonymously2</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-innovative-approaches-to-elevate-roi-in-your-fb-ads-with-animation/"><u>[New] Innovative Approaches to Elevate ROI in Your FB Ads with Animation</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-locate-hidden-watch-video-preview/"><u>[New] Locate Hidden Watch Video Preview</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-mastering-facebook-live-broadcasting-recorded-videos/"><u>[New] Mastering Facebook Live  Broadcasting Recorded Videos</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-blending-brands-joining-instagram-and-facebook-effortlessly/"><u>[Updated] 2024 Approved  Blending Brands  Joining Instagram and Facebook Effortlessly</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-internal-screen-recording-huawei-mate-1020-and-p-series-devices-p20-p10/"><u>[Updated] 2024 Approved  Internal Screen Recording  Huawei Mate 10/20 & P Series Devices (P20, P10)</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-how-to-optimize-your-viewing-a-guide-to-high-definition-cricket-live-streaming/"><u>[Updated] How to Optimize Your Viewing  A Guide to High-Definition Cricket Live Streaming</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-rethinking-tiktok-a-2023-guide-to-alternative-networks/"><u>[Updated] In 2024, Rethinking TikTok  A 2023 Guide to Alternative Networks</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-learn-to-prevent-persistent-commercials-in-digital-platforms/"><u>[Updated] Learn to Prevent Persistent Commercials in Digital Platforms</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-mp3-from-twitter-media-simple-extraction-techniques/"><u>[Updated] MP3 From Twitter Media  Simple Extraction Techniques</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-the-ultimate-guide-to-peak-post-times-on-instagram/"><u>[Updated] The Ultimate Guide to Peak Post Times on Instagram</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-decoding-the-purpose-why-does-fb-use-a-blue-icon/"><u>2024 Approved  Decoding the Purpose  Why Does FB Use a Blue Icon?</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-elevate-your-engagement-select-8-social-apps-for-facebook-fame/"><u>2024 Approved  Elevate Your Engagement  Select 8 Social Apps for Facebook Fame</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-enhancing-watchlist-restoring-suggested-videos/"><u>2024 Approved  Enhancing Watchlist  Restoring Suggested Videos</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-establish-visual-identity-on-facebook/"><u>2024 Approved  Establish Visual Identity on Facebook</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-insider-tips-for-facebook-cover-video-mastery/"><u>2024 Approved  Insider Tips for Facebook Cover Video Mastery</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-leading-tools-top-6-fb-lite-video-extractors/"><u>2024 Approved  Leading Tools  TOP 6 FB Lite Video Extractors</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-mastering-facebook-broadcasts-android-and-ios-tips/"><u>2024 Approved  Mastering Facebook Broadcasts  Android & iOS Tips</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/2024-approved-top-digital-scrapbooking-tools-for-photos-and-videos/"><u>2024 Approved Top Digital Scrapbooking Tools for Photos and Videos</u></a></li>
+<li><a href="https://howto.techidaily.com/8-workable-fixes-to-the-sim-not-provisioned-mm2-error-on-realme-12plus-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Workable Fixes to the SIM not provisioned MM#2 Error on Realme 12+ 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/can-i-peruse-friends-shared-videos-and-pics-via-messenger-in-2024/"><u>Can I Peruse Friends' Shared Videos & Pics via Messenger, In 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/easily-alter-video-velocity-youtubes-playback-speed-mastery/"><u>Easily Alter Video Velocity  YouTube's Playback Speed Mastery</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/facebook-video-production-made-easy-with-these-20-free-apps-for-2024/"><u>Facebook Video Production Made Easy with These 20 Free Apps for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/how-to-edit-facebook-look-back-video-for-2024/"><u>How to Edit Facebook Look Back Video for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-how-to-captivate-viewers-using-multiple-perspectives-on-fb-live/"><u>In 2024, How to Captivate Viewers Using Multiple Perspectives on FB Live</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Apple iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-making-your-mark-with-instagram-videos/"><u>In 2024, Making Your Mark with Instagram Videos</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-master-facebooks-live-broadcast/"><u>In 2024, Master Facebook's Live Broadcast</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-mastering-effective-social-media-video-promos/"><u>In 2024, Mastering Effective Social Media Video Promos</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-google-pixel-7a-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock Google Pixel 7a Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/launch-into-action-quick-tips-to-start-going-live-on-facebook-immediately-for-2024/"><u>Launch Into Action  Quick Tips to Start Going Live on Facebook Immediately for 2024</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/loop-your-videos-with-ease-10-free-online-video-looping-tools/"><u>Loop Your Videos with Ease 10 Free Online Video Looping Tools</u></a></li>
+<li><a href="https://review-topics.techidaily.com/remove-google-frp-lock-on-motorola-moto-g84-5g-by-drfone-android-unlock-remove-google-frp/"><u>Remove Google FRP Lock on Motorola Moto G84 5G</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-unlock-software-for-nokia-105-classic-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>The Best Android Unlock Software For Nokia 105 Classic Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-2024-approved-premium-pop-harmony-selections-the-best-sounds-for-video-scenes/"><u>Updated 2024 Approved Premium Pop Harmony Selections The Best Sounds for Video Scenes</u></a></li>
+</ul></div>

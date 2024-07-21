@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Liberating Laughter From Lockdown  20 Humorous FB Incarceration Moments\""
-date: 2024-05-20T19:49:02.625Z
-updated: 2024-05-21T19:49:02.625Z
+date: 2024-07-20T16:14:51.374Z
+updated: 2024-07-21T16:14:51.374Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes In 2024, Liberating Laughter From Lockdown: 20 Humorous FB Incarceration Moments\""
 excerpt: "\"This Article Describes In 2024, Liberating Laughter From Lockdown: 20 Humorous FB Incarceration Moments\""
 keywords: "Laughter Release,Lockdown Comedy,Funny FB Stories,Humor During Quarantine,Viral Jokes Online,Lockdown Laughter,Funny FB Memories"
-thumbnail: https://www.lifewire.com/thmb/u_weu7VlzfaCNynbz926Bw2Eank=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-1235391240-4215b7c52f5441ab827bfdde8eb4b1c1.jpg
+thumbnail: https://thmb.techidaily.com/b89bc76dab2d2da8b94cbca20640b5005a7d287429d61f6d3112ce6c1768b0a9.jpg
 ---
 
 ## Liberating Laughter From Lockdown: 20 Humorous FB Incarceration Moments
@@ -42,6 +42,184 @@ If you are a Facebook user, you might have observed that we get to see so many f
 
 Also, this penalty could be for few hours to 21 days of restrictive actions.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![facebook jail](https://images.wondershare.com/filmii/article-images/facebook-jail.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
+## Part 2: 10 Best Out of Facebook Jail Memes
+
+#### 1\. Out of Facebook Jail Meme
+
+![out of facebook jail meme](https://images.wondershare.com/filmora/article-images/2021/out-of-facebook-jail-meme.jpg)
+
+Fresh out of Facebook jail … So excited!!! Can’t wait!!!
+
+#### 2\. Released from Facebook Jail
+
+![released from facebook jail](https://images.wondershare.com/filmora/article-images/2021/released-from-facebook-jail.jpg)
+
+When you’re released from Facebook jail knowing you haven’t been rehabilitated, you may wanna say, “Sup, bitches?”
+
+#### 3\. Fresh Outa Facebook Jail
+
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![fresh outa facebook jail](https://images.wondershare.com/filmora/article-images/2021/fresh-outa-facebook-jail.png)
+
+This was me - Fresh out of Facebook jail in this morning!
+
+#### 4\. Finally Out of FB Jail
+
+![finally out of fb jail](https://images.wondershare.com/filmora/article-images/2021/finally-out-of-fb-jail.jpg)
+
+When you are finally out of FB jail, you may feel the same as me.
+
+#### 5\. After Doing a Hard Time in FB Jail
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![hard time fb jail](https://images.wondershare.com/filmora/article-images/2021/hard-time-fb-jail.jpg)
+
+After having been through a hard time in Facebook jail, what your comment section will look like…
+
+#### 6\. Funny Gary Outta Facebook Jail
+
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![funny gary outta fb jail](https://images.wondershare.com/filmora/article-images/2021/funny-gary-outta-fb-jail.jpg)
+
+This is how Funny Gary Out of Facebook Jail.
+
+#### 7\. Come Back from FB Jail
+
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![come back from fb jail](https://images.wondershare.com/filmora/article-images/2021/come-back-from-fb-jail.jpg)
+
+How did I come back from Facebook jail and look for the MF that reported me.
+
+#### 8\. Back from Facebook Jail
+
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![back from fb jail](https://images.wondershare.com/filmora/article-images/2021/back-from-fb-jail.jpg)
+
+I am bacccck from Facebook jail. Fantastic!!!
+
+#### 9\. Out of FB Jail 15th Time
+
+![outa fb jail 15th time](https://images.wondershare.com/filmora/article-images/2021/outa-fb-jail-15th-time.jpg)
+
+Now that I am outa Facebook jail for the 15th time. What type of mischief shall I do to get banned again?
+
+#### 10\. Outa FB Jail and Play
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<!-- affiliate ads end -->
+![outa facebook jail play](https://images.wondershare.com/filmora/article-images/2021/outa-facebook-jail-play.jpg)
+
+Out of Facebook Jail!!! Let’s play bitches!
+
+## Part 3: Top 3 Facebook Meme Generators
+
+We all come across many memes across social media and sometimes do feel that how meme-making could be happening. We often think this and are still clueless about that. Do you have an idea that there are tons of Facebook meme generators available online to make your task easy? Here following are the best resources for you to create a Facebook meme for you. Find a list of Facebook meme generators
+
+#### 1\. [Filmora meme maker](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![edit memes filmroa meme maker](https://images.wondershare.com/filmora/article-images/edit-memes-filmroa-meme-maker.JPG)
+
+If you are tired of searching for the best Facebook meme generator then Filmora meme maker is undoubtedly the best choice for you. It is a fast yet free meme maker and you need to add any image or GIF then add text, colors, resize as you need, and lastly export it in PNG, JPG, GIF, etc. formats easily. Also even if you are new to this Facebook jail meme-making thing then trust me Filmora is the right choice for you because of its easy interface.
+
+Also one of the best features of the Filmora meme generator is that it has a very processing time and in comparison to other tools exporting time is way less.
+
+#### 2.Imgflip
+
+![meme generator imgflip](https://images.wondershare.com/filmii/article-images/meme-generator-imgflip.jpg)
+
+This Facebook meme generator offers benefits such as adding customizable images and text, resizing/moving text boxes as desired, customized font options, outline colors, rotation, flipping, and many more. It also has so many colorful stickers to make your meme look creative. It gets operated in HTML canvas.
+
+#### 3\. Canva
+
+![canva meme generator](https://images.wondershare.com/filmii/article-images/canva-meme-generator.jpg)
+
+Canva's name is not at all unknown to anybody related to the designing field. It is an amazing online free tool helping as a Facebook meme generator too. It has so many templates available you just need to pick the right one for you and proceed. It is surely the best choice for funny Facebook memes and especially Facebook jail memes. You will get color/font options, resize, crop, flip, etc. options to create the best memes. Canva is a very user-friendly online tool and it has a very easy-to-use design which makes an overall creating experience very smooth.
+
+## Part 4: How to Make Your Facebook Jail Meme?
+
+Well if you are having to confused about how to make funny Facebook jail memes then you need to pick an effective Facebook meme generator tool for you. There are many such tools but Filmora meme maker is the ideal option to solve your need.
+
+Filmora meme maker is a fun tool and completely free to create memes. It is very easy to use the tool and with a simple process, one can create memes quickly. It offers text, color, style, etc. options for users to showcase their creativity in front of users. So I would surely recommend the Filmora meme generator for funny Facebook memes or Facebook jail meme generator purposes.
+
+So here below is the step by step guide you can follow to create a meme:
+
+**Step 1: Import image, GIF, or video**
+
+![drag memes filmora meme maker](https://images.wondershare.com/filmora/article-images/drag-memes-filmora-meme-maker.JPG)
+
+Once you open the Filmora meme generator on your browser you would get an option of import. You need to click on that or drag to import your files. Also, you can even import YouTube and Vimeo links for creating video memes.
+
+**Step 2: Edit your memes**
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![edit memes filmroa meme maker](https://images.wondershare.com/filmora/article-images/edit-memes-filmroa-meme-maker.JPG)
+
+Once you import your file you would get some editing options such as text, color, size, style, etc. You can choose the right text and color as per your need. Also, you can get options inputting the text inside or outside and also to choose the file format too.
+
+**Step 3: Export and share**
+
+At last, if you are done with the editing part click on Create option and then click on Download and save it on your device. Now your job is done.
+
+**Conclusion**
+
+So once you go through this article you would realize that the funny Facebook memes which we used to get to see are not so difficult to make with the right Facebook meme generators. Also trending out of Facebook jail memes is the task of only a few minutes. Here above-mentioned tools are surely the best ones and Filmora meme maker would help you in getting more popularity too.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
+![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+Liza Brown
+
+Liza Brown is a writer and a lover of all things video.
+
+Follow @Liza Brown
+
+##### Liza Brown
+
+ Mar 27, 2024• Proven solutions
+
+There was a time when we all were not so familiar with the trend of memes. Nowadays memes are becoming an integral part of our lives. People are becoming creative with meme-making to attract more followers and engage with them. Sometimes, because people are allowed to freely like and comment on any of the posts available on Facebook, they perform spam behavior or acts that do not comply with the platform’s guidelines. Therefore, to resolve that issue, Facebook jail has come into the picture. Due to the protection or privacy purpose of all the existing, Facebook community has started blocking unnecessary user actions with the Facebook jail concept.
+
+It happens that the Facebook jail makes users get banned, blocked from accessing their accounts, or from posting on Facebook. It is not an actual jail but due to the funny name nowadays people are creating **Facebook jail memes** so much and that is on-trend too.
+
+* [Part 1: What does Facebook Jail Mean?](#part1)
+* [Part 2: 10 Best Out of Facebook Jail Memes](#part2)
+* [Part 3: Top 3 Facebook Meme Generators](#part3)
+* [Part 4: How to Make Your Facebook Jail Meme?](#part4)
+
+## Part 1: What does Facebook Jail Mean?
+
+If you are a Facebook user, you might have observed that we get to see so many funny Facebook memes on the feed and the most recent ones are Facebook jail memes. Facebook jail is a new term and many of us are not aware of this.
+
+[Facebook Jail](https://tools.techidaily.com/wondershare/filmora/download/) is the term used when an individual breaks the standard Facebook rules due to any violations, suspicious logins, or spammy behavior. So to prevent you from doing that Facebook suspends your account and make you in jail.
+
+Also, this penalty could be for few hours to 21 days of restrictive actions.
+
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![facebook jail](https://images.wondershare.com/filmii/article-images/facebook-jail.jpg)
 
 ## Part 2: 10 Best Out of Facebook Jail Memes
@@ -84,28 +262,48 @@ This is how Funny Gary Out of Facebook Jail.
 
 #### 7\. Come Back from FB Jail
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<!-- affiliate ads end -->
 ![come back from fb jail](https://images.wondershare.com/filmora/article-images/2021/come-back-from-fb-jail.jpg)
 
 How did I come back from Facebook jail and look for the MF that reported me.
 
 #### 8\. Back from Facebook Jail
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![back from fb jail](https://images.wondershare.com/filmora/article-images/2021/back-from-fb-jail.jpg)
 
 I am bacccck from Facebook jail. Fantastic!!!
 
 #### 9\. Out of FB Jail 15th Time
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![outa fb jail 15th time](https://images.wondershare.com/filmora/article-images/2021/outa-fb-jail-15th-time.jpg)
 
 Now that I am outa Facebook jail for the 15th time. What type of mischief shall I do to get banned again?
 
 #### 10\. Outa FB Jail and Play
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
+	Home Use license is dedicated for personal, non-commercial use only. 
+	If Action! is used for commercial gain or to further any commercial purpose, 
+	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
+ 
+	company, user or members of the same household. Action! - screen and game recorder</a>
+<!-- affiliate ads end -->
 ![outa facebook jail play](https://images.wondershare.com/filmora/article-images/2021/outa-facebook-jail-play.jpg)
 
 Out of Facebook Jail!!! Let’s play bitches!
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3: Top 3 Facebook Meme Generators
 
 We all come across many memes across social media and sometimes do feel that how meme-making could be happening. We often think this and are still clueless about that. Do you have an idea that there are tons of Facebook meme generators available online to make your task easy? Here following are the best resources for you to create a Facebook meme for you. Find a list of Facebook meme generators
@@ -130,6 +328,182 @@ This Facebook meme generator offers benefits such as adding customizable images 
 
 Canva's name is not at all unknown to anybody related to the designing field. It is an amazing online free tool helping as a Facebook meme generator too. It has so many templates available you just need to pick the right one for you and proceed. It is surely the best choice for funny Facebook memes and especially Facebook jail memes. You will get color/font options, resize, crop, flip, etc. options to create the best memes. Canva is a very user-friendly online tool and it has a very easy-to-use design which makes an overall creating experience very smooth.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<!-- affiliate ads end -->
+## Part 4: How to Make Your Facebook Jail Meme?
+
+Well if you are having to confused about how to make funny Facebook jail memes then you need to pick an effective Facebook meme generator tool for you. There are many such tools but Filmora meme maker is the ideal option to solve your need.
+
+Filmora meme maker is a fun tool and completely free to create memes. It is very easy to use the tool and with a simple process, one can create memes quickly. It offers text, color, style, etc. options for users to showcase their creativity in front of users. So I would surely recommend the Filmora meme generator for funny Facebook memes or Facebook jail meme generator purposes.
+
+So here below is the step by step guide you can follow to create a meme:
+
+**Step 1: Import image, GIF, or video**
+
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
+![drag memes filmora meme maker](https://images.wondershare.com/filmora/article-images/drag-memes-filmora-meme-maker.JPG)
+
+Once you open the Filmora meme generator on your browser you would get an option of import. You need to click on that or drag to import your files. Also, you can even import YouTube and Vimeo links for creating video memes.
+
+**Step 2: Edit your memes**
+
+![edit memes filmroa meme maker](https://images.wondershare.com/filmora/article-images/edit-memes-filmroa-meme-maker.JPG)
+
+Once you import your file you would get some editing options such as text, color, size, style, etc. You can choose the right text and color as per your need. Also, you can get options inputting the text inside or outside and also to choose the file format too.
+
+**Step 3: Export and share**
+
+At last, if you are done with the editing part click on Create option and then click on Download and save it on your device. Now your job is done.
+
+**Conclusion**
+
+So once you go through this article you would realize that the funny Facebook memes which we used to get to see are not so difficult to make with the right Facebook meme generators. Also trending out of Facebook jail memes is the task of only a few minutes. Here above-mentioned tools are surely the best ones and Filmora meme maker would help you in getting more popularity too.
+
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+Liza Brown
+
+Liza Brown is a writer and a lover of all things video.
+
+Follow @Liza Brown
+
+##### Liza Brown
+
+ Mar 27, 2024• Proven solutions
+
+There was a time when we all were not so familiar with the trend of memes. Nowadays memes are becoming an integral part of our lives. People are becoming creative with meme-making to attract more followers and engage with them. Sometimes, because people are allowed to freely like and comment on any of the posts available on Facebook, they perform spam behavior or acts that do not comply with the platform’s guidelines. Therefore, to resolve that issue, Facebook jail has come into the picture. Due to the protection or privacy purpose of all the existing, Facebook community has started blocking unnecessary user actions with the Facebook jail concept.
+
+It happens that the Facebook jail makes users get banned, blocked from accessing their accounts, or from posting on Facebook. It is not an actual jail but due to the funny name nowadays people are creating **Facebook jail memes** so much and that is on-trend too.
+
+* [Part 1: What does Facebook Jail Mean?](#part1)
+* [Part 2: 10 Best Out of Facebook Jail Memes](#part2)
+* [Part 3: Top 3 Facebook Meme Generators](#part3)
+* [Part 4: How to Make Your Facebook Jail Meme?](#part4)
+
+## Part 1: What does Facebook Jail Mean?
+
+If you are a Facebook user, you might have observed that we get to see so many funny Facebook memes on the feed and the most recent ones are Facebook jail memes. Facebook jail is a new term and many of us are not aware of this.
+
+[Facebook Jail](https://tools.techidaily.com/wondershare/filmora/download/) is the term used when an individual breaks the standard Facebook rules due to any violations, suspicious logins, or spammy behavior. So to prevent you from doing that Facebook suspends your account and make you in jail.
+
+Also, this penalty could be for few hours to 21 days of restrictive actions.
+
+![facebook jail](https://images.wondershare.com/filmii/article-images/facebook-jail.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
+## Part 2: 10 Best Out of Facebook Jail Memes
+
+#### 1\. Out of Facebook Jail Meme
+
+![out of facebook jail meme](https://images.wondershare.com/filmora/article-images/2021/out-of-facebook-jail-meme.jpg)
+
+Fresh out of Facebook jail … So excited!!! Can’t wait!!!
+
+#### 2\. Released from Facebook Jail
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<!-- affiliate ads end -->
+![released from facebook jail](https://images.wondershare.com/filmora/article-images/2021/released-from-facebook-jail.jpg)
+
+When you’re released from Facebook jail knowing you haven’t been rehabilitated, you may wanna say, “Sup, bitches?”
+
+#### 3\. Fresh Outa Facebook Jail
+
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![fresh outa facebook jail](https://images.wondershare.com/filmora/article-images/2021/fresh-outa-facebook-jail.png)
+
+This was me - Fresh out of Facebook jail in this morning!
+
+#### 4\. Finally Out of FB Jail
+
+![finally out of fb jail](https://images.wondershare.com/filmora/article-images/2021/finally-out-of-fb-jail.jpg)
+
+When you are finally out of FB jail, you may feel the same as me.
+
+#### 5\. After Doing a Hard Time in FB Jail
+
+![hard time fb jail](https://images.wondershare.com/filmora/article-images/2021/hard-time-fb-jail.jpg)
+
+After having been through a hard time in Facebook jail, what your comment section will look like…
+
+#### 6\. Funny Gary Outta Facebook Jail
+
+![funny gary outta fb jail](https://images.wondershare.com/filmora/article-images/2021/funny-gary-outta-fb-jail.jpg)
+
+This is how Funny Gary Out of Facebook Jail.
+
+#### 7\. Come Back from FB Jail
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<!-- affiliate ads end -->
+![come back from fb jail](https://images.wondershare.com/filmora/article-images/2021/come-back-from-fb-jail.jpg)
+
+How did I come back from Facebook jail and look for the MF that reported me.
+
+#### 8\. Back from Facebook Jail
+
+![back from fb jail](https://images.wondershare.com/filmora/article-images/2021/back-from-fb-jail.jpg)
+
+I am bacccck from Facebook jail. Fantastic!!!
+
+#### 9\. Out of FB Jail 15th Time
+
+![outa fb jail 15th time](https://images.wondershare.com/filmora/article-images/2021/outa-fb-jail-15th-time.jpg)
+
+Now that I am outa Facebook jail for the 15th time. What type of mischief shall I do to get banned again?
+
+#### 10\. Outa FB Jail and Play
+
+![outa facebook jail play](https://images.wondershare.com/filmora/article-images/2021/outa-facebook-jail-play.jpg)
+
+Out of Facebook Jail!!! Let’s play bitches!
+
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 3: Top 3 Facebook Meme Generators
+
+We all come across many memes across social media and sometimes do feel that how meme-making could be happening. We often think this and are still clueless about that. Do you have an idea that there are tons of Facebook meme generators available online to make your task easy? Here following are the best resources for you to create a Facebook meme for you. Find a list of Facebook meme generators
+
+#### 1\. [Filmora meme maker](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![edit memes filmroa meme maker](https://images.wondershare.com/filmora/article-images/edit-memes-filmroa-meme-maker.JPG)
+
+If you are tired of searching for the best Facebook meme generator then Filmora meme maker is undoubtedly the best choice for you. It is a fast yet free meme maker and you need to add any image or GIF then add text, colors, resize as you need, and lastly export it in PNG, JPG, GIF, etc. formats easily. Also even if you are new to this Facebook jail meme-making thing then trust me Filmora is the right choice for you because of its easy interface.
+
+Also one of the best features of the Filmora meme generator is that it has a very processing time and in comparison to other tools exporting time is way less.
+
+#### 2.Imgflip
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
+![meme generator imgflip](https://images.wondershare.com/filmii/article-images/meme-generator-imgflip.jpg)
+
+This Facebook meme generator offers benefits such as adding customizable images and text, resizing/moving text boxes as desired, customized font options, outline colors, rotation, flipping, and many more. It also has so many colorful stickers to make your meme look creative. It gets operated in HTML canvas.
+
+#### 3\. Canva
+
+![canva meme generator](https://images.wondershare.com/filmii/article-images/canva-meme-generator.jpg)
+
+Canva's name is not at all unknown to anybody related to the designing field. It is an amazing online free tool helping as a Facebook meme generator too. It has so many templates available you just need to pick the right one for you and proceed. It is surely the best choice for funny Facebook memes and especially Facebook jail memes. You will get color/font options, resize, crop, flip, etc. options to create the best memes. Canva is a very user-friendly online tool and it has a very easy-to-use design which makes an overall creating experience very smooth.
+
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ## Part 4: How to Make Your Facebook Jail Meme?
 
 Well if you are having to confused about how to make funny Facebook jail memes then you need to pick an effective Facebook meme generator tool for you. There are many such tools but Filmora meme maker is the ideal option to solve your need.
@@ -179,6 +553,9 @@ It happens that the Facebook jail makes users get banned, blocked from accessing
 * [Part 3: Top 3 Facebook Meme Generators](#part3)
 * [Part 4: How to Make Your Facebook Jail Meme?](#part4)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<!-- affiliate ads end -->
 ## Part 1: What does Facebook Jail Mean?
 
 If you are a Facebook user, you might have observed that we get to see so many funny Facebook memes on the feed and the most recent ones are Facebook jail memes. Facebook jail is a new term and many of us are not aware of this.
@@ -193,12 +570,18 @@ Also, this penalty could be for few hours to 21 days of restrictive actions.
 
 #### 1\. Out of Facebook Jail Meme
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![out of facebook jail meme](https://images.wondershare.com/filmora/article-images/2021/out-of-facebook-jail-meme.jpg)
 
 Fresh out of Facebook jail … So excited!!! Can’t wait!!!
 
 #### 2\. Released from Facebook Jail
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![released from facebook jail](https://images.wondershare.com/filmora/article-images/2021/released-from-facebook-jail.jpg)
 
 When you’re released from Facebook jail knowing you haven’t been rehabilitated, you may wanna say, “Sup, bitches?”
@@ -223,12 +606,19 @@ After having been through a hard time in Facebook jail, what your comment sectio
 
 #### 6\. Funny Gary Outta Facebook Jail
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
+LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ![funny gary outta fb jail](https://images.wondershare.com/filmora/article-images/2021/funny-gary-outta-fb-jail.jpg)
 
 This is how Funny Gary Out of Facebook Jail.
 
 #### 7\. Come Back from FB Jail
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![come back from fb jail](https://images.wondershare.com/filmora/article-images/2021/come-back-from-fb-jail.jpg)
 
 How did I come back from Facebook jail and look for the MF that reported me.
@@ -241,12 +631,19 @@ I am bacccck from Facebook jail. Fantastic!!!
 
 #### 9\. Out of FB Jail 15th Time
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
+</a>
+<!-- affiliate ads end -->
 ![outa fb jail 15th time](https://images.wondershare.com/filmora/article-images/2021/outa-fb-jail-15th-time.jpg)
 
 Now that I am outa Facebook jail for the 15th time. What type of mischief shall I do to get banned again?
 
 #### 10\. Outa FB Jail and Play
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![outa facebook jail play](https://images.wondershare.com/filmora/article-images/2021/outa-facebook-jail-play.jpg)
 
 Out of Facebook Jail!!! Let’s play bitches!
@@ -291,6 +688,9 @@ Once you open the Filmora meme generator on your browser you would get an option
 
 **Step 2: Edit your memes**
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![edit memes filmroa meme maker](https://images.wondershare.com/filmora/article-images/edit-memes-filmroa-meme-maker.JPG)
 
 Once you import your file you would get some editing options such as text, color, size, style, etc. You can choose the right text and color as per your need. Also, you can get options inputting the text inside or outside and also to choose the file format too.
@@ -303,296 +703,9 @@ At last, if you are done with the editing part click on Create option and then c
 
 So once you go through this article you would realize that the funny Facebook memes which we used to get to see are not so difficult to make with the right Facebook meme generators. Also trending out of Facebook jail memes is the task of only a few minutes. Here above-mentioned tools are surely the best ones and Filmora meme maker would help you in getting more popularity too.
 
-![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-Liza Brown
-
-Liza Brown is a writer and a lover of all things video.
-
-Follow @Liza Brown
-
-##### Liza Brown
-
- Mar 27, 2024• Proven solutions
-
-There was a time when we all were not so familiar with the trend of memes. Nowadays memes are becoming an integral part of our lives. People are becoming creative with meme-making to attract more followers and engage with them. Sometimes, because people are allowed to freely like and comment on any of the posts available on Facebook, they perform spam behavior or acts that do not comply with the platform’s guidelines. Therefore, to resolve that issue, Facebook jail has come into the picture. Due to the protection or privacy purpose of all the existing, Facebook community has started blocking unnecessary user actions with the Facebook jail concept.
-
-It happens that the Facebook jail makes users get banned, blocked from accessing their accounts, or from posting on Facebook. It is not an actual jail but due to the funny name nowadays people are creating **Facebook jail memes** so much and that is on-trend too.
-
-* [Part 1: What does Facebook Jail Mean?](#part1)
-* [Part 2: 10 Best Out of Facebook Jail Memes](#part2)
-* [Part 3: Top 3 Facebook Meme Generators](#part3)
-* [Part 4: How to Make Your Facebook Jail Meme?](#part4)
-
-## Part 1: What does Facebook Jail Mean?
-
-If you are a Facebook user, you might have observed that we get to see so many funny Facebook memes on the feed and the most recent ones are Facebook jail memes. Facebook jail is a new term and many of us are not aware of this.
-
-[Facebook Jail](https://tools.techidaily.com/wondershare/filmora/download/) is the term used when an individual breaks the standard Facebook rules due to any violations, suspicious logins, or spammy behavior. So to prevent you from doing that Facebook suspends your account and make you in jail.
-
-Also, this penalty could be for few hours to 21 days of restrictive actions.
-
-![facebook jail](https://images.wondershare.com/filmii/article-images/facebook-jail.jpg)
-
-## Part 2: 10 Best Out of Facebook Jail Memes
-
-#### 1\. Out of Facebook Jail Meme
-
-![out of facebook jail meme](https://images.wondershare.com/filmora/article-images/2021/out-of-facebook-jail-meme.jpg)
-
-Fresh out of Facebook jail … So excited!!! Can’t wait!!!
-
-#### 2\. Released from Facebook Jail
-
-![released from facebook jail](https://images.wondershare.com/filmora/article-images/2021/released-from-facebook-jail.jpg)
-
-When you’re released from Facebook jail knowing you haven’t been rehabilitated, you may wanna say, “Sup, bitches?”
-
-#### 3\. Fresh Outa Facebook Jail
-
-![fresh outa facebook jail](https://images.wondershare.com/filmora/article-images/2021/fresh-outa-facebook-jail.png)
-
-This was me - Fresh out of Facebook jail in this morning!
-
-#### 4\. Finally Out of FB Jail
-
-![finally out of fb jail](https://images.wondershare.com/filmora/article-images/2021/finally-out-of-fb-jail.jpg)
-
-When you are finally out of FB jail, you may feel the same as me.
-
-#### 5\. After Doing a Hard Time in FB Jail
-
-![hard time fb jail](https://images.wondershare.com/filmora/article-images/2021/hard-time-fb-jail.jpg)
-
-After having been through a hard time in Facebook jail, what your comment section will look like…
-
-#### 6\. Funny Gary Outta Facebook Jail
-
-![funny gary outta fb jail](https://images.wondershare.com/filmora/article-images/2021/funny-gary-outta-fb-jail.jpg)
-
-This is how Funny Gary Out of Facebook Jail.
-
-#### 7\. Come Back from FB Jail
-
-![come back from fb jail](https://images.wondershare.com/filmora/article-images/2021/come-back-from-fb-jail.jpg)
-
-How did I come back from Facebook jail and look for the MF that reported me.
-
-#### 8\. Back from Facebook Jail
-
-![back from fb jail](https://images.wondershare.com/filmora/article-images/2021/back-from-fb-jail.jpg)
-
-I am bacccck from Facebook jail. Fantastic!!!
-
-#### 9\. Out of FB Jail 15th Time
-
-![outa fb jail 15th time](https://images.wondershare.com/filmora/article-images/2021/outa-fb-jail-15th-time.jpg)
-
-Now that I am outa Facebook jail for the 15th time. What type of mischief shall I do to get banned again?
-
-#### 10\. Outa FB Jail and Play
-
-![outa facebook jail play](https://images.wondershare.com/filmora/article-images/2021/outa-facebook-jail-play.jpg)
-
-Out of Facebook Jail!!! Let’s play bitches!
-
-## Part 3: Top 3 Facebook Meme Generators
-
-We all come across many memes across social media and sometimes do feel that how meme-making could be happening. We often think this and are still clueless about that. Do you have an idea that there are tons of Facebook meme generators available online to make your task easy? Here following are the best resources for you to create a Facebook meme for you. Find a list of Facebook meme generators
-
-#### 1\. [Filmora meme maker](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![edit memes filmroa meme maker](https://images.wondershare.com/filmora/article-images/edit-memes-filmroa-meme-maker.JPG)
-
-If you are tired of searching for the best Facebook meme generator then Filmora meme maker is undoubtedly the best choice for you. It is a fast yet free meme maker and you need to add any image or GIF then add text, colors, resize as you need, and lastly export it in PNG, JPG, GIF, etc. formats easily. Also even if you are new to this Facebook jail meme-making thing then trust me Filmora is the right choice for you because of its easy interface.
-
-Also one of the best features of the Filmora meme generator is that it has a very processing time and in comparison to other tools exporting time is way less.
-
-#### 2.Imgflip
-
-![meme generator imgflip](https://images.wondershare.com/filmii/article-images/meme-generator-imgflip.jpg)
-
-This Facebook meme generator offers benefits such as adding customizable images and text, resizing/moving text boxes as desired, customized font options, outline colors, rotation, flipping, and many more. It also has so many colorful stickers to make your meme look creative. It gets operated in HTML canvas.
-
-#### 3\. Canva
-
-![canva meme generator](https://images.wondershare.com/filmii/article-images/canva-meme-generator.jpg)
-
-Canva's name is not at all unknown to anybody related to the designing field. It is an amazing online free tool helping as a Facebook meme generator too. It has so many templates available you just need to pick the right one for you and proceed. It is surely the best choice for funny Facebook memes and especially Facebook jail memes. You will get color/font options, resize, crop, flip, etc. options to create the best memes. Canva is a very user-friendly online tool and it has a very easy-to-use design which makes an overall creating experience very smooth.
-
-## Part 4: How to Make Your Facebook Jail Meme?
-
-Well if you are having to confused about how to make funny Facebook jail memes then you need to pick an effective Facebook meme generator tool for you. There are many such tools but Filmora meme maker is the ideal option to solve your need.
-
-Filmora meme maker is a fun tool and completely free to create memes. It is very easy to use the tool and with a simple process, one can create memes quickly. It offers text, color, style, etc. options for users to showcase their creativity in front of users. So I would surely recommend the Filmora meme generator for funny Facebook memes or Facebook jail meme generator purposes.
-
-So here below is the step by step guide you can follow to create a meme:
-
-**Step 1: Import image, GIF, or video**
-
-![drag memes filmora meme maker](https://images.wondershare.com/filmora/article-images/drag-memes-filmora-meme-maker.JPG)
-
-Once you open the Filmora meme generator on your browser you would get an option of import. You need to click on that or drag to import your files. Also, you can even import YouTube and Vimeo links for creating video memes.
-
-**Step 2: Edit your memes**
-
-![edit memes filmroa meme maker](https://images.wondershare.com/filmora/article-images/edit-memes-filmroa-meme-maker.JPG)
-
-Once you import your file you would get some editing options such as text, color, size, style, etc. You can choose the right text and color as per your need. Also, you can get options inputting the text inside or outside and also to choose the file format too.
-
-**Step 3: Export and share**
-
-At last, if you are done with the editing part click on Create option and then click on Download and save it on your device. Now your job is done.
-
-**Conclusion**
-
-So once you go through this article you would realize that the funny Facebook memes which we used to get to see are not so difficult to make with the right Facebook meme generators. Also trending out of Facebook jail memes is the task of only a few minutes. Here above-mentioned tools are surely the best ones and Filmora meme maker would help you in getting more popularity too.
-
-![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-Liza Brown
-
-Liza Brown is a writer and a lover of all things video.
-
-Follow @Liza Brown
-
-##### Liza Brown
-
- Mar 27, 2024• Proven solutions
-
-There was a time when we all were not so familiar with the trend of memes. Nowadays memes are becoming an integral part of our lives. People are becoming creative with meme-making to attract more followers and engage with them. Sometimes, because people are allowed to freely like and comment on any of the posts available on Facebook, they perform spam behavior or acts that do not comply with the platform’s guidelines. Therefore, to resolve that issue, Facebook jail has come into the picture. Due to the protection or privacy purpose of all the existing, Facebook community has started blocking unnecessary user actions with the Facebook jail concept.
-
-It happens that the Facebook jail makes users get banned, blocked from accessing their accounts, or from posting on Facebook. It is not an actual jail but due to the funny name nowadays people are creating **Facebook jail memes** so much and that is on-trend too.
-
-* [Part 1: What does Facebook Jail Mean?](#part1)
-* [Part 2: 10 Best Out of Facebook Jail Memes](#part2)
-* [Part 3: Top 3 Facebook Meme Generators](#part3)
-* [Part 4: How to Make Your Facebook Jail Meme?](#part4)
-
-## Part 1: What does Facebook Jail Mean?
-
-If you are a Facebook user, you might have observed that we get to see so many funny Facebook memes on the feed and the most recent ones are Facebook jail memes. Facebook jail is a new term and many of us are not aware of this.
-
-[Facebook Jail](https://tools.techidaily.com/wondershare/filmora/download/) is the term used when an individual breaks the standard Facebook rules due to any violations, suspicious logins, or spammy behavior. So to prevent you from doing that Facebook suspends your account and make you in jail.
-
-Also, this penalty could be for few hours to 21 days of restrictive actions.
-
-![facebook jail](https://images.wondershare.com/filmii/article-images/facebook-jail.jpg)
-
-## Part 2: 10 Best Out of Facebook Jail Memes
-
-#### 1\. Out of Facebook Jail Meme
-
-![out of facebook jail meme](https://images.wondershare.com/filmora/article-images/2021/out-of-facebook-jail-meme.jpg)
-
-Fresh out of Facebook jail … So excited!!! Can’t wait!!!
-
-#### 2\. Released from Facebook Jail
-
-![released from facebook jail](https://images.wondershare.com/filmora/article-images/2021/released-from-facebook-jail.jpg)
-
-When you’re released from Facebook jail knowing you haven’t been rehabilitated, you may wanna say, “Sup, bitches?”
-
-#### 3\. Fresh Outa Facebook Jail
-
-![fresh outa facebook jail](https://images.wondershare.com/filmora/article-images/2021/fresh-outa-facebook-jail.png)
-
-This was me - Fresh out of Facebook jail in this morning!
-
-#### 4\. Finally Out of FB Jail
-
-![finally out of fb jail](https://images.wondershare.com/filmora/article-images/2021/finally-out-of-fb-jail.jpg)
-
-When you are finally out of FB jail, you may feel the same as me.
-
-#### 5\. After Doing a Hard Time in FB Jail
-
-![hard time fb jail](https://images.wondershare.com/filmora/article-images/2021/hard-time-fb-jail.jpg)
-
-After having been through a hard time in Facebook jail, what your comment section will look like…
-
-#### 6\. Funny Gary Outta Facebook Jail
-
-![funny gary outta fb jail](https://images.wondershare.com/filmora/article-images/2021/funny-gary-outta-fb-jail.jpg)
-
-This is how Funny Gary Out of Facebook Jail.
-
-#### 7\. Come Back from FB Jail
-
-![come back from fb jail](https://images.wondershare.com/filmora/article-images/2021/come-back-from-fb-jail.jpg)
-
-How did I come back from Facebook jail and look for the MF that reported me.
-
-#### 8\. Back from Facebook Jail
-
-![back from fb jail](https://images.wondershare.com/filmora/article-images/2021/back-from-fb-jail.jpg)
-
-I am bacccck from Facebook jail. Fantastic!!!
-
-#### 9\. Out of FB Jail 15th Time
-
-![outa fb jail 15th time](https://images.wondershare.com/filmora/article-images/2021/outa-fb-jail-15th-time.jpg)
-
-Now that I am outa Facebook jail for the 15th time. What type of mischief shall I do to get banned again?
-
-#### 10\. Outa FB Jail and Play
-
-![outa facebook jail play](https://images.wondershare.com/filmora/article-images/2021/outa-facebook-jail-play.jpg)
-
-Out of Facebook Jail!!! Let’s play bitches!
-
-## Part 3: Top 3 Facebook Meme Generators
-
-We all come across many memes across social media and sometimes do feel that how meme-making could be happening. We often think this and are still clueless about that. Do you have an idea that there are tons of Facebook meme generators available online to make your task easy? Here following are the best resources for you to create a Facebook meme for you. Find a list of Facebook meme generators
-
-#### 1\. [Filmora meme maker](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![edit memes filmroa meme maker](https://images.wondershare.com/filmora/article-images/edit-memes-filmroa-meme-maker.JPG)
-
-If you are tired of searching for the best Facebook meme generator then Filmora meme maker is undoubtedly the best choice for you. It is a fast yet free meme maker and you need to add any image or GIF then add text, colors, resize as you need, and lastly export it in PNG, JPG, GIF, etc. formats easily. Also even if you are new to this Facebook jail meme-making thing then trust me Filmora is the right choice for you because of its easy interface.
-
-Also one of the best features of the Filmora meme generator is that it has a very processing time and in comparison to other tools exporting time is way less.
-
-#### 2.Imgflip
-
-![meme generator imgflip](https://images.wondershare.com/filmii/article-images/meme-generator-imgflip.jpg)
-
-This Facebook meme generator offers benefits such as adding customizable images and text, resizing/moving text boxes as desired, customized font options, outline colors, rotation, flipping, and many more. It also has so many colorful stickers to make your meme look creative. It gets operated in HTML canvas.
-
-#### 3\. Canva
-
-![canva meme generator](https://images.wondershare.com/filmii/article-images/canva-meme-generator.jpg)
-
-Canva's name is not at all unknown to anybody related to the designing field. It is an amazing online free tool helping as a Facebook meme generator too. It has so many templates available you just need to pick the right one for you and proceed. It is surely the best choice for funny Facebook memes and especially Facebook jail memes. You will get color/font options, resize, crop, flip, etc. options to create the best memes. Canva is a very user-friendly online tool and it has a very easy-to-use design which makes an overall creating experience very smooth.
-
-## Part 4: How to Make Your Facebook Jail Meme?
-
-Well if you are having to confused about how to make funny Facebook jail memes then you need to pick an effective Facebook meme generator tool for you. There are many such tools but Filmora meme maker is the ideal option to solve your need.
-
-Filmora meme maker is a fun tool and completely free to create memes. It is very easy to use the tool and with a simple process, one can create memes quickly. It offers text, color, style, etc. options for users to showcase their creativity in front of users. So I would surely recommend the Filmora meme generator for funny Facebook memes or Facebook jail meme generator purposes.
-
-So here below is the step by step guide you can follow to create a meme:
-
-**Step 1: Import image, GIF, or video**
-
-![drag memes filmora meme maker](https://images.wondershare.com/filmora/article-images/drag-memes-filmora-meme-maker.JPG)
-
-Once you open the Filmora meme generator on your browser you would get an option of import. You need to click on that or drag to import your files. Also, you can even import YouTube and Vimeo links for creating video memes.
-
-**Step 2: Edit your memes**
-
-![edit memes filmroa meme maker](https://images.wondershare.com/filmora/article-images/edit-memes-filmroa-meme-maker.JPG)
-
-Once you import your file you would get some editing options such as text, color, size, style, etc. You can choose the right text and color as per your need. Also, you can get options inputting the text inside or outside and also to choose the file format too.
-
-**Step 3: Export and share**
-
-At last, if you are done with the editing part click on Create option and then click on Download and save it on your device. Now your job is done.
-
-**Conclusion**
-
-So once you go through this article you would realize that the funny Facebook memes which we used to get to see are not so difficult to make with the right Facebook meme generators. Also trending out of Facebook jail memes is the task of only a few minutes. Here above-mentioned tools are surely the best ones and Filmora meme maker would help you in getting more popularity too.
-
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -624,3 +737,46 @@ Follow @Liza Brown
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-downloading-and-saving-fb-video-files-os-agnostic-guide/"><u>[New] 2024 Approved  Downloading and Saving FB Video Files  OS-Agnostic Guide</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-effective-strategies-for-real-time-video-sharing-on-facebook/"><u>[New] 2024 Approved  Effective Strategies for Real-Time Video Sharing on Facebook</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-exclusive-access-top-8-platforms-for-free-green-screen-scenery-files/"><u>[New] 2024 Approved  Exclusive Access  Top 8 Platforms for Free Green Screen Scenery Files</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-expert-techniques-for-streaming-facebook-live-2023-for-2024/"><u>[New] Expert Techniques for Streaming Facebook Live, 2023 for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-cutting-edge-marketing-anticipating-fbs-trends-of-the-new-decade/"><u>[New] In 2024, Cutting-Edge Marketing  Anticipating FB's Trends of the New Decade</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-elevating-social-influence-top-techniques-for-facebook-seo-excellence/"><u>[New] In 2024, Elevating Social Influence  Top Techniques for Facebook SEO Excellence</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-essential-steps-for-embedding-facebook-streams-online/"><u>[New] In 2024, Essential Steps for Embedding Facebook Streams Online</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-expert-endorsed-facebook-videos-now-easily-converted-to-mp4-hd/"><u>[New] In 2024, Expert-Endorsed  Facebook Videos Now Easily Converted to MP4 HD</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-facebook-fanfare-unveiled-android-and-iphones-most-liked-apps/"><u>[New] In 2024, Facebook Fanfare Unveiled  Android & iPhone's Most Liked Apps</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-facebook-faults-recovering-login-credentials-quickly/"><u>[New] In 2024, Facebook Faults? Recovering Login Credentials Quickly</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-fast-track-mastering-the-download-of-hd-fb-content/"><u>[New] In 2024, Fast Track  Mastering the Download of HD FB Content</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-fb-video-download-top-5-tools-list/"><u>[New] In 2024, FB Video Download  Top 5 Tools List</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-purchasing-options-choosing-premium-vs-standard-fixtures-and-whether-they-are-integrated-or-retrofit-options-can-alter-costs/"><u>[Updated] __Purchasing Options__  Choosing Premium Vs. Standard Fixtures and Whether They Are Integrated or Retrofit Options Can Alter Costs</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-demystifying-telegram-web-usage-practical-tips/"><u>[Updated] 2024 Approved  Demystifying Telegram Web Usage  Practical Tips</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-downloading-fb-audio-nuggets/"><u>[Updated] 2024 Approved  Downloading FB Audio Nuggets</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-easyvidrecorder-web-based-video-grab/"><u>[Updated] 2024 Approved  EasyVidRecorder  Web-Based Video Grab</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-elevate-your-facebook-ads-game-no-price-tag-for-video-kit/"><u>[Updated] 2024 Approved  Elevate Your Facebook Ads Game - No Price Tag for Video Kit</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-facebooks-2023-vision-mastering-the-art-of-short-videos/"><u>[Updated] 2024 Approved  Facebook's 2023 Vision  Mastering the Art of Short Videos</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-banner-bliss-savor-your-complimentary-set-of-designs/"><u>[Updated] Banner Bliss  Savor Your Complimentary Set of Designs</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-discover-how-to-design-dynamic-youtube-music-playlists/"><u>[Updated] Discover How to Design Dynamic YouTube Music Playlists</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-facebooks-most-noteworthy-tweaks-for-todays-users-for-2024/"><u>[Updated] Facebook's Most Noteworthy Tweaks for Today’s Users for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-fb-chronicles-merging-music-and-memories-for-2024/"><u>[Updated] FB Chronicles  Merging Music and Memories for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-fix-disrupted-video-streams-in-instagram-reels-for-2024/"><u>[Updated] Fix Disrupted Video Streams in Instagram Reels for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-delight-in-facebooks-forgotten-meme-kingdoms/"><u>[Updated] In 2024, Delight in Facebook's Forgotten Meme Kingdoms</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-direct-engagement-tweeting-successfully-to-fb/"><u>[Updated] In 2024, Direct Engagement  Tweeting Successfully to FB</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-elevate-your-success-must-have-essentials-for-the-modern-business-owner/"><u>[Updated] In 2024, Elevate Your Success  Must-Have Essentials for the Modern Business Owner</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-integration-hacks-adding-vimeo-content-to-powerpoint-decks/"><u>[Updated] In 2024, Integration Hacks  Adding Vimeo Content to PowerPoint Decks</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-streamline-slides-to-cinematic-content/"><u>[Updated] In 2024, Streamline Slides to Cinematic Content</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-frugal-filmmaking-top-camera-deals/"><u>2024 Approved  Frugal Filmmaking  Top Camera Deals</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/4-solutions-for-iphone-hdr-video-washed-out-in-premiere-pro/"><u>4 Solutions for iPhone HDR Video Washed-Out in Premiere Pro</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-3-effective-ways-to-unlock-icloud-account-without-password-on-iphone-6-by-drfone-ios/"><u>In 2024, 3 Effective Ways to Unlock iCloud Account Without Password On iPhone 6</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-vivo-y78-5g-phone-password-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Vivo Y78 5G Phone Password Without Factory Reset?</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-ultimate-guide-to-selecting-text-enhancement-websites/"><u>In 2024, The Ultimate Guide to Selecting Text Enhancement Websites</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/launchpad-for-newcomers-creating-a-successful-product-evaluation-vlog-for-2024/"><u>Launchpad for Newcomers  Creating a Successful Product Evaluation Vlog for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/the-editors-almanac-key-takeaways-from-filmora-editioning-for-2024/"><u>The Editor’s Almanac  Key Takeaways From Filmora Editioning for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-quest-for-codec-perfection-is-av1-surpassing-vp9-for-2024/"><u>The Quest for Codec Perfection  Is AV1 Surpassing VP9 for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/unlocking-viewership-steps-for-your-video-to-be-a-top-pick-on-vimeo-for-2024/"><u>Unlocking Viewership  Steps for Your Video to Be a Top Pick on Vimeo for 2024</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-in-2024-audiovisual-symphony-top-tunes-to-accompany-every-style-of-video-content/"><u>Updated In 2024, Audiovisual Symphony Top Tunes to Accompany Every Style of Video Content</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-nokia-g310-drfone-by-drfone-virtual-android/"><u>What are Location Permissions Life360 On Nokia G310? | Dr.fone</u></a></li>
+</ul></div>

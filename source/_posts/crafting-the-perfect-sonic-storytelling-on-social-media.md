@@ -1,7 +1,7 @@
 ---
 title: "Crafting the Perfect Sonic Storytelling on Social Media"
-date: 2024-06-09T12:26:45.355Z
-updated: 2024-06-10T12:26:45.355Z
+date: 2024-07-20T17:18:02.048Z
+updated: 2024-07-21T17:18:02.048Z
 tags:
   - ai video
   - ai facebook
@@ -34,6 +34,9 @@ Everyone wants to make their social media accounts fun and interactive to attrac
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ## Part 1: How to Create a Music-only Facebook Story?
 
 Music-only stories are becoming a Facebook trend and a way to let people know the songs you are currently hooked to. Do you know how to add music-only stories? If not, here is how to do it:
@@ -46,6 +49,9 @@ When you open the Facebook Desktop or mobile app, you will see   **Create Story*
 
 When creating a story, you will see a music option on the top along with text and boomerang; click on the music icon. You have the option to browse through the music to select one that you like or simply write the song's name in the search bar. With the song's name, you will see lyrics written on the side, which tells you to post particular music with its lyrics.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Add music to FB Story on Mobile](https://images.wondershare.com/filmora/article-images/add-music-to-facebook-story.jpg)
 
  **Step 3 : Edit music sticker and post**
@@ -76,6 +82,13 @@ After clicking a picture or making a video, tap on the sticker icon. Select the 
 
 After tapping on the music sticker, click on the song you want to play with your story. When you are done editing the sticker and your story, click   **Done** on the top right corner to post it.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Yearly Membership</a>
+<!-- affiliate ads end -->
 ![add music sticker  ](https://images.wondershare.com/filmora/article-images/add-music-with-facebook-music-sticker.jpg)
 
 ## Part 3: How to Add My Own Music to Facebook Story?
@@ -98,6 +111,9 @@ Drag video to timeline, hover the cursor over the audio and video file until a +
 
 Double click on the audio file within the panel given on the top of the Filmora screen. You will find a few options to edit audio, such as fade-in, fade-out, equalizer, volume, etc.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ![edit FB music story  ](https://images.wondershare.com/filmora/article-images/edit-facebook-story-music-filmora.jpg)
 
  **Step 4: Export edited file**
@@ -110,6 +126,9 @@ You can upload the edited file on your Facebook stories by clicking on create st
 
 _For more details about editing videos on Filmora, you can check [How to Edit Videos](https://tools.techidaily.com/wondershare/filmora/download/)._
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ## Part 4: How to Customize the Appearance of Your Facebook Story Song?
@@ -120,6 +139,9 @@ If you don't know already, you can also edit the music sticker on your story to 
 
 You can click on the play button after selecting the song, and it will appear in your stories. You will see a few options above the music sticker, which you can use to edit the music story. Click on the Aa option to enable the lyrics, and they will appear when a viewer views your story. You can enable lyrics only if they are available with the songs.
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 ![enable FB music story lyric  ](https://images.wondershare.com/filmora/article-images/enable-facebook-music-sticker-lyric-mode.jpg)
 
  **Step**  2: Change the color **and**   **add elements**
@@ -144,6 +166,9 @@ There are a few ways to fix the music sticker issue if it is not popping up in y
 
 Facebook story feature is one of the best options that one can use to gain visibility and increase interaction. Everyone should know how to add music to Facebook story as it makes the viewer focus more on your story content. We are sure you must have learned how to add music to enhance your stories.
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -160,3 +185,53 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-are-you-prepared-for-the-changed-facebook-algorithm/"><u>[New] 2024 Approved  Are You Prepared for the Changed Facebook Algorithm?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-co-create-content-to-maximize-youtube-follower-count/"><u>[New] 2024 Approved  Co-Create Content to Maximize YouTube Follower Count</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-aim-for-picture-perfect-facebooks-hd-streaming-for-2024/"><u>[New] Aim for Picture-Perfect  Facebook's HD Streaming for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-20-gratuitous-fb-video-makers-for-professional-ad-content/"><u>[New] In 2024, 20 Gratuitous FB Video Makers for Professional Ad Content</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-a-guide-to-tailoring-your-hashtag-strategy-for-maximum-engagement-and-conversion-rates-on-facebook/"><u>[New] In 2024, A Guide to Tailoring Your Hashtag Strategy for Maximum Engagement and Conversion Rates on Facebook</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-vdx-quickcapture-evaluation-complete-reviews/"><u>[New] In 2024, VDX QuickCapture Evaluation  Complete Reviews</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-radiate-on-screen-quicker-ways-to-brighten-iphone-media/"><u>[New] Radiate on Screen  Quicker Ways to Brighten iPhone Media</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-the-ultimate-list-for-fbs-most-popular-song-videos/"><u>[New] The Ultimate List for FB's Most Popular Song Videos</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-unlocking-social-media-sharing-videos-on-fb/"><u>[New] Unlocking Social Media  Sharing Videos on FB</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/t-loop-technique-for-the-digital-content-wanderer/"><u>[New] YT Loop Technique for the Digital Content Wanderer</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-podcasting-tech-updates-unveiled/"><u>[Updated] 2024 Approved  Podcasting Tech Updates Unveiled</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-the-essential-filmmakers-toolkit-a-guide-to-audio-recording/"><u>[Updated] 2024 Approved  The Essential Filmmaker's Toolkit  A Guide to Audio Recording</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-achieve-synchronicity-with-your-browser-and-fbs-autoplay-feature-for-2024/"><u>[Updated] Achieve Synchronicity with Your Browser and FB's Autoplay Feature for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-accelerate-profits-using-the-top-15-facebook-data-analyzers/"><u>[Updated] In 2024, Accelerate Profits Using the Top 15 Facebook Data Analyzers</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-in-depth-analysis-top-15-youtube-channels-for-epic-product-reviews/"><u>[Updated] In-Depth Analysis  Top 15 YouTube Channels for Epic Product Reviews</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-social-media-success-strategies-for-effective-facebook-reel-creation/"><u>[Updated] Social Media Success  Strategies for Effective Facebook Reel Creation</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-subrip-file-creation-from-compressed-archives/"><u>[Updated] SubRip File Creation From Compressed Archives</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-television-transformation-via-social-media-platforms-like-fb-live/"><u>[Updated] Television Transformation via Social Media Platforms Like FB Live</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-the-secrets-behind-successful-hd-videos-on-social-networks/"><u>[Updated] The Secrets Behind Successful HD Videos on Social Networks</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-the-ultimate-guide-shifting-your-profile-picture-on-global-platforms/"><u>[Updated] The Ultimate Guide  Shifting Your Profile Picture on Global Platforms</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-time-management-wizards-the-ultimate-guide-to-facebook-timetables/"><u>[Updated] Time Management Wizards  The Ultimate Guide to Facebook Timetables</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-transform-your-brand-with-powerful-fb-video-messaging/"><u>[Updated] Transform Your Brand with Powerful FB Video Messaging</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-ultimate-mp4-to-social-media-focus-on-facebook/"><u>[Updated] Ultimate MP4 to Social Media  Focus on Facebook</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-virtual-broadcast-archivers/"><u>[Updated] Virtual Broadcast Archivers</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-emotional-journey-awaits-best-memes-for-chuckles-and-sighs-on-ig/"><u>2024 Approved  Emotional Journey Awaits  Best Memes for Chuckles and Sighs on IG</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-screen-recorder-freedom-top-10-no-cost-choices-for-cameras/"><u>2024 Approved  Screen Recorder Freedom  Top 10 No-Cost Choices for Cameras</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-social-simulacrum-sketches-designing-distorted-digital-selves/"><u>2024 Approved  Social Simulacrum Sketches  Designing Distorted Digital Selves</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-top-10-facebook-video-players/"><u>2024 Approved  Top 10 Facebook Video Players</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-uniting-networks-sharing-fb-vids-on-whatsapp-chat/"><u>2024 Approved  Uniting Networks  Sharing FB Vids on WhatsApp Chat</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/best-ios-applications-for-gameplaying-iconic-psp-titles-for-2024/"><u>Best iOS Applications for Gameplaying Iconic PSP Titles for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-oppo-a38-by-fonelab-android-recover-photos/"><u>How to recover deleted photos from Oppo A38.</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/immersive-narratives-vr-storytelling-breakthroughs-for-2024/"><u>Immersive Narratives  VR Storytelling Breakthroughs for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-remove-device-supervision-from-your-apple-iphone-xr-drfone-by-drfone-ios/"><u>In 2024, Remove Device Supervision From your Apple iPhone XR | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-setting-up-your-footprint-a-complete-guide-to-fb-instream-ad-configuration/"><u>In 2024, Setting Up Your Footprint  A Complete Guide to FB Instream Ad Configuration</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-share-tiktok-videos-to-facebook-in-quick-easy-steps/"><u>In 2024, Share TikTok Videos to Facebook in Quick Easy Steps</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-superior-mp4-streamer-to-fb/"><u>In 2024, Superior MP4 Streamer to FB</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-the-basics-of-designing-your-own-facebook-reel-experience/"><u>In 2024, The Basics of Designing Your Own Facebook Reel Experience</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-unlocking-instagrams-video-upload-feature/"><u>In 2024, Unlocking Instagram's Video Upload Feature</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-unveiling-social-media-puzzles-how-to-use-facebook-insights/"><u>In 2024, Unveiling Social Media Puzzles  How to Use Facebook Insights</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unveiling-the-update-to-sonys-premium-blu-ray-player/"><u>In 2024, Unveiling the Update to Sony’s Premium Blu-Ray Player</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-best-zero-cost-video-cutting-and-joining-solutions-for-new-users-for-2024/"><u>New Best Zero-Cost Video Cutting and Joining Solutions for New Users for 2024</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/new-your-guide-to-affordable-comedy-audio-tracks-5-sites-every-content-maker-should-know-for-2024/"><u>New Your Guide to Affordable Comedy Audio Tracks 5 Sites Every Content Maker Should Know for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/revive-faded-iphone-hdri-select-4-effective-methods-in-premiere-pro/"><u>Revive Faded iPhone HDRI  Select 4 Effective Methods in Premiere Pro</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/the-hidden-trove-unseen-artifacts-and-auction-secrets-for-2024/"><u>The Hidden Trove - Unseen Artifacts and Auction Secrets for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/transforming-facebook-watchlists-implementing-autoplay-for-youtube-content-for-2024/"><u>Transforming Facebook Watchlists  Implementing Autoplay for YouTube Content for 2024</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/updated-ways-to-make-sure-your-recording-slideshow-in-powerpoint-is-not-wrong/"><u>Updated Ways to Make Sure Your Recording Slideshow in Powerpoint Is Not Wrong</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/voice-overhaul-strategies-with-morphvox-elevating-your-gameplay-performance/"><u>Voice Overhaul Strategies with Morphvox – Elevating Your Gameplay Performance</u></a></li>
+</ul></div>

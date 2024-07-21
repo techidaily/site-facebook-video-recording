@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Wipe Out Facebook Story  Desktop/Mobile Tips for 2024\""
-date: 2024-05-20T18:36:07.813Z
-updated: 2024-05-21T18:36:07.813Z
+date: 2024-07-20T12:29:30.168Z
+updated: 2024-07-21T12:29:30.168Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] Wipe Out Facebook Story: Desktop/Mobile Tips for 2024\""
 excerpt: "\"This Article Describes [Updated] Wipe Out Facebook Story: Desktop/Mobile Tips for 2024\""
 keywords: "FB Story Mobile Guide,FB Story Design Tips,Desktop FB Story Optimization,Mobile FB Story Strategies,Enhance FB Stories Visibility,Facebook Story SEO Basics,Social Media Stories Advice"
-thumbnail: https://www.lifewire.com/thmb/L_IEEJ6cThyoOeCq0NMsj_YSx8k=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/1280px-New_Logo_Gmail-2f7310ac1f314fb9be95b48097db6596.jpg
+thumbnail: https://thmb.techidaily.com/0a4429b41076dffc8b778c6281e805f6a7937a0d2383fe5591ff482b234f870f.jpg
 ---
 
 ## Wipe Out Facebook Story: Desktop/Mobile Tips
@@ -46,6 +46,9 @@ Let's begin with the mobile Facebook application:
 
 **Step 2:** Now, click on Your Story and click on the three dots that you see on the top. You will see a list of options; please click on the delete photo option to remove the story.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<!-- affiliate ads end -->
 ![delete Facebook Story from mobile](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-mobile.jpg)
 
 **Delete Facebook Story from Desktop**
@@ -58,10 +61,17 @@ Let's begin with the mobile Facebook application:
 
 **Step 3: There will be a Delete Photo option. You need to select that.**
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ![delete Facebook Story from desktop](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-desktop.jpg)
 
 **Step 4:** Finally, click on the Delete option again, and you are done. This Facebook story is removed.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 2: How to Delete A Story from Facebook Story Archive?
 
 After your story vanishes from the Story section after 24 hours, they remain stored in the Story Achieve. But this feature has to stay enabled to store your stories in the Story Achieve. This way, you can control which stories you will like to save and which ones you will want to delete completely. To enable Story Archive, go to your Facebook profile and click on the three dots. You need to click on the settings option; after that, you need to select the gear icon. Once done, just toggle the save to archive option, and it will be enabled.
@@ -88,6 +98,9 @@ Facebook stories don't only appear on your Facebook home page; they also appear 
 
 **Step 3:** Now, you need to click on the three dots. Hit the Delete option, and another pop-up window will appear. You need to click on the delete option again.
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![delete Facebook Story from messager](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-messager.jpg)
 
 ## Part 4: How to Control Who Can View Your Facebook Stories?
@@ -112,12 +125,150 @@ Facebook has made sharing stories easy because of the multiple features it offer
 
 **Step 2:** You will be shown the complete list of people you are connected with on Facebook. Select the people you don't want to share your stories with, and then click on done.
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 ## Part 6: How to Delete Someone Else's Story on Your Facebook?
 
 If you don't want to see someone else’s story, then you can mute their stories. Once you do that, their stories will no longer appear on your News Feed. Here are the steps to follow:
 
 Visit the Stories section, and then tap on a story of a person that you don't want to see. There will be three dots on the top right, select it and then click on the Mute option, and the specific person's stories will be muted.
 
+![ delete other's Facebook Story  ](https://images.wondershare.com/filmora/article-images/delete-people-facebook-story.jpg)
+
+**Conclusion**
+
+Facebook stories are a great way to let people know what you are up to. It's short and does the job perfectly. But there will be moments when you will want to remove the story early, and to do that, we have shared all the essential tips that will help you. Now that you have learned **how to remove** a **story from Facebook, go on and delete your stories early**.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+A Facebook story will last for 24 hours. Once the 24 hours timeline is over, your Facebook story is removed automatically. However, you may want to delete your Facebook story before it reaches the end of its timeline for a reason. What is essential to understand is that your Facebook stories are not like your Facebook posts. Facebook posts remain for as long as you want. But the stories will vanish after 24 hours. If you want to remove a story on your page before the 24-hour time limit elapses, you have come to the right place. This blog will help you understand **how to delete Facebook stories** both from your desktop and mobile app.
+
+* [Part 1: How to Delete A Photo or Video from Facebook Story?](#part1)
+* [Part 2: How to Delete A Story from Facebook Story Archive?](#part2)
+* [Part 3: How to Delete My Story on Facebook Messenger?](#part3)
+* [Part 4: How to Control Who Can View Your Facebook Stories?](#part4)
+* [Part 5: How to Hide Facebook Story from Specific People?](#part5)
+* [Part 6: How to Delete Someone Else's Story on Your Facebook?](#part6)
+
+---
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<!-- affiliate ads end -->
+## Part 1: How to Delete A Photo or Video from Facebook Story?
+
+So, you can remove your Facebook story either by opening your Facebook account on your desktop browser or through your mobile app.
+
+Let's begin with the mobile Facebook application:
+
+**Step 1:** Launch your Facebook application on your mobile phone. Go to the home page, where you can see your story and others' stories right on the top. This section will be shown to you before the posts.
+
+**Step 2:** Now, click on Your Story and click on the three dots that you see on the top. You will see a list of options; please click on the delete photo option to remove the story.
+
+![delete Facebook Story from mobile](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-mobile.jpg)
+
+**Delete Facebook Story from Desktop**
+
+**Step 1:** Visit Facebook via a browser. As the mobile app, it will show "your story" on the home page. Please click on that.
+
+**Step 2:** You will see three dots in your story. Please click on that.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![Facebook Story 3 dots](https://images.wondershare.com/filmora/article-images/facebook-story-three-dots.jpg)
+
+**Step 3: There will be a Delete Photo option. You need to select that.**
+
+![delete Facebook Story from desktop](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-desktop.jpg)
+
+**Step 4:** Finally, click on the Delete option again, and you are done. This Facebook story is removed.
+
+## Part 2: How to Delete A Story from Facebook Story Archive?
+
+After your story vanishes from the Story section after 24 hours, they remain stored in the Story Achieve. But this feature has to stay enabled to store your stories in the Story Achieve. This way, you can control which stories you will like to save and which ones you will want to delete completely. To enable Story Archive, go to your Facebook profile and click on the three dots. You need to click on the settings option; after that, you need to select the gear icon. Once done, just toggle the save to archive option, and it will be enabled.
+
+If it is already enabled, follow these steps to delete the archived Facebook story.
+
+**Step 1:** Visit your Facebook account and click on your profile. On your profile, you will see three dots. Please click on the three dots. Once done, you will see a list of options; please click on the archive option.
+
+![delete Facebook Story from desktop](https://images.wondershare.com/filmora/article-images/facebook-story-archive.jpg)
+
+**Step 2**: Now, select the Story Archive option that you see on the top. This will show all the archived stories. Next, choose a story that you want to remove permanently. The story will appear. Click on the three dots, and then click on the delete option.
+
+<!-- affiliate ads begin -->
+<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
+![delete Facebook Story from archive](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-archive.jpg)
+
+This is how you will remove the stories from Facebook archived.
+
+## Part 3: How to Delete My Story on Facebook Messenger on iPhone, iPad, And Android?
+
+Facebook stories don't only appear on your Facebook home page; they also appear on your Facebook Messenger. And you can delete your stories by visiting Facebook Messenger. Let's find out how.
+
+**Step 1:** Launch your Facebook Messenger app on your Android, iPhone, or iPad. Ensure you are logged in to your account.
+
+**Step 2:** You will see Your Story and other stories on the top. The first story will be your story. So, please, click on that.
+
+**Step 3:** Now, you need to click on the three dots. Hit the Delete option, and another pop-up window will appear. You need to click on the delete option again.
+
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![delete Facebook Story from messager](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-messager.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
+## Part 4: How to Control Who Can View Your Facebook Stories?
+
+You can make your stories visible to your friends, customize the viewers, or keep them public. Facebook allows you to control how and with whom you want to share your stories with.
+
+**Step 1:** Go to your Facebook home page and click on Your Story. Upload a story, but please click on the privacy option before clicking on the share option.
+
+![  Facebook Story privacy option](https://images.wondershare.com/filmora/article-images/facebook-story-privacy-option.jpg)
+
+**Step 2:** Now, the privacy setting page will let you choose from- public, friends, and custom. You can hide your story from a few people as well. Choose the one that meets your requirement. Then, go back and share the story.
+
+![  Facebook Story privacy  ](https://images.wondershare.com/filmora/article-images/facebook-story-privacy.jpg)
+
+## Part 5: How to Hide Facebook Story from Specific People?
+
+Facebook has made sharing stories easy because of the multiple features it offers. Apart from controlling the story, you can even choose to hide the story from specific people. To do that, here's what you need to do.
+
+**Step 1:** Launch your Facebook account, and then upload something on your story and set the privacy to Friends. After that, you need to click on the Hide Story From option.
+
+![  Facebook Story hide from specific person  ](https://images.wondershare.com/filmora/article-images/hide-facebook-story-from-specific-people.jpg)
+
+**Step 2:** You will be shown the complete list of people you are connected with on Facebook. Select the people you don't want to share your stories with, and then click on done.
+
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 6: How to Delete Someone Else's Story on Your Facebook?
+
+If you don't want to see someone else’s story, then you can mute their stories. Once you do that, their stories will no longer appear on your News Feed. Here are the steps to follow:
+
+Visit the Stories section, and then tap on a story of a person that you don't want to see. There will be three dots on the top right, select it and then click on the Mute option, and the specific person's stories will be muted.
+
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ delete other's Facebook Story  ](https://images.wondershare.com/filmora/article-images/delete-people-facebook-story.jpg)
 
 **Conclusion**
@@ -169,6 +320,9 @@ Let's begin with the mobile Facebook application:
 
 **Step 3: There will be a Delete Photo option. You need to select that.**
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ![delete Facebook Story from desktop](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-desktop.jpg)
 
 **Step 4:** Finally, click on the Delete option again, and you are done. This Facebook story is removed.
@@ -185,10 +339,16 @@ If it is already enabled, follow these steps to delete the archived Facebook sto
 
 **Step 2**: Now, select the Story Archive option that you see on the top. This will show all the archived stories. Next, choose a story that you want to remove permanently. The story will appear. Click on the three dots, and then click on the delete option.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![delete Facebook Story from archive](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-archive.jpg)
 
 This is how you will remove the stories from Facebook archived.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ## Part 3: How to Delete My Story on Facebook Messenger on iPhone, iPad, And Android?
 
 Facebook stories don't only appear on your Facebook home page; they also appear on your Facebook Messenger. And you can delete your stories by visiting Facebook Messenger. Let's find out how.
@@ -211,24 +371,40 @@ You can make your stories visible to your friends, customize the viewers, or kee
 
 **Step 2:** Now, the privacy setting page will let you choose from- public, friends, and custom. You can hide your story from a few people as well. Choose the one that meets your requirement. Then, go back and share the story.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
+</a>
+<!-- affiliate ads end -->
 ![  Facebook Story privacy  ](https://images.wondershare.com/filmora/article-images/facebook-story-privacy.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 5: How to Hide Facebook Story from Specific People?
 
 Facebook has made sharing stories easy because of the multiple features it offers. Apart from controlling the story, you can even choose to hide the story from specific people. To do that, here's what you need to do.
 
 **Step 1:** Launch your Facebook account, and then upload something on your story and set the privacy to Friends. After that, you need to click on the Hide Story From option.
 
+<!-- affiliate ads begin -->
+<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![  Facebook Story hide from specific person  ](https://images.wondershare.com/filmora/article-images/hide-facebook-story-from-specific-people.jpg)
 
 **Step 2:** You will be shown the complete list of people you are connected with on Facebook. Select the people you don't want to share your stories with, and then click on done.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 6: How to Delete Someone Else's Story on Your Facebook?
 
 If you don't want to see someone else’s story, then you can mute their stories. Once you do that, their stories will no longer appear on your News Feed. Here are the steps to follow:
 
 Visit the Stories section, and then tap on a story of a person that you don't want to see. There will be three dots on the top right, select it and then click on the Mute option, and the specific person's stories will be muted.
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ delete other's Facebook Story  ](https://images.wondershare.com/filmora/article-images/delete-people-facebook-story.jpg)
 
 **Conclusion**
@@ -258,6 +434,9 @@ A Facebook story will last for 24 hours. Once the 24 hours timeline is over, you
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1: How to Delete A Photo or Video from Facebook Story?
 
 So, you can remove your Facebook story either by opening your Facebook account on your desktop browser or through your mobile app.
@@ -296,6 +475,9 @@ If it is already enabled, follow these steps to delete the archived Facebook sto
 
 **Step 2**: Now, select the Story Archive option that you see on the top. This will show all the archived stories. Next, choose a story that you want to remove permanently. The story will appear. Click on the three dots, and then click on the delete option.
 
+<!-- affiliate ads begin -->
+<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![delete Facebook Story from archive](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-archive.jpg)
 
 This is how you will remove the stories from Facebook archived.
@@ -310,6 +492,9 @@ Facebook stories don't only appear on your Facebook home page; they also appear 
 
 **Step 3:** Now, you need to click on the three dots. Hit the Delete option, and another pop-up window will appear. You need to click on the delete option again.
 
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![delete Facebook Story from messager](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-messager.jpg)
 
 ## Part 4: How to Control Who Can View Your Facebook Stories?
@@ -322,14 +507,23 @@ You can make your stories visible to your friends, customize the viewers, or kee
 
 **Step 2:** Now, the privacy setting page will let you choose from- public, friends, and custom. You can hide your story from a few people as well. Choose the one that meets your requirement. Then, go back and share the story.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<!-- affiliate ads end -->
 ![  Facebook Story privacy  ](https://images.wondershare.com/filmora/article-images/facebook-story-privacy.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<!-- affiliate ads end -->
 ## Part 5: How to Hide Facebook Story from Specific People?
 
 Facebook has made sharing stories easy because of the multiple features it offers. Apart from controlling the story, you can even choose to hide the story from specific people. To do that, here's what you need to do.
 
 **Step 1:** Launch your Facebook account, and then upload something on your story and set the privacy to Friends. After that, you need to click on the Hide Story From option.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<!-- affiliate ads end -->
 ![  Facebook Story hide from specific person  ](https://images.wondershare.com/filmora/article-images/hide-facebook-story-from-specific-people.jpg)
 
 **Step 2:** You will be shown the complete list of people you are connected with on Facebook. Select the people you don't want to share your stories with, and then click on done.
@@ -340,117 +534,9 @@ If you don't want to see someone else’s story, then you can mute their stories
 
 Visit the Stories section, and then tap on a story of a person that you don't want to see. There will be three dots on the top right, select it and then click on the Mute option, and the specific person's stories will be muted.
 
-![ delete other's Facebook Story  ](https://images.wondershare.com/filmora/article-images/delete-people-facebook-story.jpg)
-
-**Conclusion**
-
-Facebook stories are a great way to let people know what you are up to. It's short and does the job perfectly. But there will be moments when you will want to remove the story early, and to do that, we have shared all the essential tips that will help you. Now that you have learned **how to remove** a **story from Facebook, go on and delete your stories early**.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Mar 27, 2024• Proven solutions
-
-A Facebook story will last for 24 hours. Once the 24 hours timeline is over, your Facebook story is removed automatically. However, you may want to delete your Facebook story before it reaches the end of its timeline for a reason. What is essential to understand is that your Facebook stories are not like your Facebook posts. Facebook posts remain for as long as you want. But the stories will vanish after 24 hours. If you want to remove a story on your page before the 24-hour time limit elapses, you have come to the right place. This blog will help you understand **how to delete Facebook stories** both from your desktop and mobile app.
-
-* [Part 1: How to Delete A Photo or Video from Facebook Story?](#part1)
-* [Part 2: How to Delete A Story from Facebook Story Archive?](#part2)
-* [Part 3: How to Delete My Story on Facebook Messenger?](#part3)
-* [Part 4: How to Control Who Can View Your Facebook Stories?](#part4)
-* [Part 5: How to Hide Facebook Story from Specific People?](#part5)
-* [Part 6: How to Delete Someone Else's Story on Your Facebook?](#part6)
-
----
-
-## Part 1: How to Delete A Photo or Video from Facebook Story?
-
-So, you can remove your Facebook story either by opening your Facebook account on your desktop browser or through your mobile app.
-
-Let's begin with the mobile Facebook application:
-
-**Step 1:** Launch your Facebook application on your mobile phone. Go to the home page, where you can see your story and others' stories right on the top. This section will be shown to you before the posts.
-
-**Step 2:** Now, click on Your Story and click on the three dots that you see on the top. You will see a list of options; please click on the delete photo option to remove the story.
-
-![delete Facebook Story from mobile](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-mobile.jpg)
-
-**Delete Facebook Story from Desktop**
-
-**Step 1:** Visit Facebook via a browser. As the mobile app, it will show "your story" on the home page. Please click on that.
-
-**Step 2:** You will see three dots in your story. Please click on that.
-
-![Facebook Story 3 dots](https://images.wondershare.com/filmora/article-images/facebook-story-three-dots.jpg)
-
-**Step 3: There will be a Delete Photo option. You need to select that.**
-
-![delete Facebook Story from desktop](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-desktop.jpg)
-
-**Step 4:** Finally, click on the Delete option again, and you are done. This Facebook story is removed.
-
-## Part 2: How to Delete A Story from Facebook Story Archive?
-
-After your story vanishes from the Story section after 24 hours, they remain stored in the Story Achieve. But this feature has to stay enabled to store your stories in the Story Achieve. This way, you can control which stories you will like to save and which ones you will want to delete completely. To enable Story Archive, go to your Facebook profile and click on the three dots. You need to click on the settings option; after that, you need to select the gear icon. Once done, just toggle the save to archive option, and it will be enabled.
-
-If it is already enabled, follow these steps to delete the archived Facebook story.
-
-**Step 1:** Visit your Facebook account and click on your profile. On your profile, you will see three dots. Please click on the three dots. Once done, you will see a list of options; please click on the archive option.
-
-![delete Facebook Story from desktop](https://images.wondershare.com/filmora/article-images/facebook-story-archive.jpg)
-
-**Step 2**: Now, select the Story Archive option that you see on the top. This will show all the archived stories. Next, choose a story that you want to remove permanently. The story will appear. Click on the three dots, and then click on the delete option.
-
-![delete Facebook Story from archive](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-archive.jpg)
-
-This is how you will remove the stories from Facebook archived.
-
-## Part 3: How to Delete My Story on Facebook Messenger on iPhone, iPad, And Android?
-
-Facebook stories don't only appear on your Facebook home page; they also appear on your Facebook Messenger. And you can delete your stories by visiting Facebook Messenger. Let's find out how.
-
-**Step 1:** Launch your Facebook Messenger app on your Android, iPhone, or iPad. Ensure you are logged in to your account.
-
-**Step 2:** You will see Your Story and other stories on the top. The first story will be your story. So, please, click on that.
-
-**Step 3:** Now, you need to click on the three dots. Hit the Delete option, and another pop-up window will appear. You need to click on the delete option again.
-
-![delete Facebook Story from messager](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-messager.jpg)
-
-## Part 4: How to Control Who Can View Your Facebook Stories?
-
-You can make your stories visible to your friends, customize the viewers, or keep them public. Facebook allows you to control how and with whom you want to share your stories with.
-
-**Step 1:** Go to your Facebook home page and click on Your Story. Upload a story, but please click on the privacy option before clicking on the share option.
-
-![  Facebook Story privacy option](https://images.wondershare.com/filmora/article-images/facebook-story-privacy-option.jpg)
-
-**Step 2:** Now, the privacy setting page will let you choose from- public, friends, and custom. You can hide your story from a few people as well. Choose the one that meets your requirement. Then, go back and share the story.
-
-![  Facebook Story privacy  ](https://images.wondershare.com/filmora/article-images/facebook-story-privacy.jpg)
-
-## Part 5: How to Hide Facebook Story from Specific People?
-
-Facebook has made sharing stories easy because of the multiple features it offers. Apart from controlling the story, you can even choose to hide the story from specific people. To do that, here's what you need to do.
-
-**Step 1:** Launch your Facebook account, and then upload something on your story and set the privacy to Friends. After that, you need to click on the Hide Story From option.
-
-![  Facebook Story hide from specific person  ](https://images.wondershare.com/filmora/article-images/hide-facebook-story-from-specific-people.jpg)
-
-**Step 2:** You will be shown the complete list of people you are connected with on Facebook. Select the people you don't want to share your stories with, and then click on done.
-
-## Part 6: How to Delete Someone Else's Story on Your Facebook?
-
-If you don't want to see someone else’s story, then you can mute their stories. Once you do that, their stories will no longer appear on your News Feed. Here are the steps to follow:
-
-Visit the Stories section, and then tap on a story of a person that you don't want to see. There will be three dots on the top right, select it and then click on the Mute option, and the specific person's stories will be muted.
-
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
 ![ delete other's Facebook Story  ](https://images.wondershare.com/filmora/article-images/delete-people-facebook-story.jpg)
 
 **Conclusion**
@@ -488,3 +574,47 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-instagram-video-a-complete-guide-to-content-posting/"><u>[New] 2024 Approved  Instagram Video  A Complete Guide to Content Posting</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-online-fb-link-exporter-unlock-access-to-8plus-tools/"><u>[New] 2024 Approved  Online FB Link Exporter  Unlock Access to 8+ Tools</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-social-media-strategies-for-showcasing-your-video-content/"><u>[New] 2024 Approved  Social Media Strategies for Showcasing Your Video Content</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-engage-grow-and-rise-triple-threat-tactics-for-facebook-pages-for-2024/"><u>[New] Engage, Grow, and Rise  Triple Threat Tactics for Facebook Pages for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-how-to-setup-and-evaluate-facebook-instream-ads-for-2024/"><u>[New] How to Setup and Evaluate Facebook Instream Ads for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-innovative-ideas-for-fb-slideshow-creations/"><u>[New] In 2024, Innovative Ideas for FB Slideshow Creations</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-leverage-the-power-of-visual-storytelling-with-your-own-facebook-slideshows/"><u>[New] In 2024, Leverage the Power of Visual Storytelling with Your Own Facebook Slideshows</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-master-the-art-of-sharing-gaming-moments-xboxfb-livestream/"><u>[New] In 2024, Master the Art of Sharing Gaming Moments  Xbox/FB Livestream</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-revolutionize-traffic-flows-with-innovative-facebook-video-tactics/"><u>[New] In 2024, Revolutionize Traffic Flows with Innovative Facebook Video Tactics</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-secrets-to-free-hd-video-grabs-from-facebook/"><u>[New] In 2024, Secrets to Free HD Video Grabs From Facebook</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-is-inshot-the-best-video-editing-app-our-in-depth-review/"><u>[New] Is InShot the Best Video Editing App? Our In-Depth Review</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-navigate-through-the-top-5-video-extractors-for-fb-on-your-iphoneipad-for-2024/"><u>[New] Navigate Through the Top 5 Video Extractors for FB on Your iPhone/iPad for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-premium-free-fb-imagemotion-graphics-builder-for-2024/"><u>[New] Premium Free FB Image/Motion Graphics Builder for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-prepare-for-success-essential-trends-in-facebook-ads-24-for-2024/"><u>[New] Prepare for Success  Essential Trends in Facebook Ads '24 for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-reinstate-disappearing-watch-thumbnail-for-2024/"><u>[New] Reinstate Disappearing Watch Thumbnail for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-rhythms-unlocked-fb-downloads-galore-for-2024/"><u>[New] Rhythms Unlocked  FB Downloads Galore for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-social-media-snippet-seizers-2023-for-2024/"><u>[New] Social Media Snippet Seizers, 2023 for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-compreeved-guide-to-optimizing-space-and-pc-for-vr/"><u>[New] The Compreeved Guide to Optimizing Space & PC for VR</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-from-passive-to-profitable-youtube-success-on-the-worlds-biggest-social-network/"><u>[Updated] 2024 Approved  From Passive to Profitable  YouTube Success on the World's Biggest Social Network</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-how-to-make-your-mark-active-living-on-facebook/"><u>[Updated] 2024 Approved  How to Make Your Mark  Active Living on Facebook</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-link-and-leverage-your-fb-story-for-greater-impact/"><u>[Updated] 2024 Approved  Link & Leverage Your FB Story for Greater Impact</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-maximizing-clarity-improve-iphoneandroid-video-quality/"><u>[Updated] 2024 Approved  Maximizing Clarity  Improve iPhone/Android Video Quality</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-perfecting-your-content-understanding-facebook-video-sizes-and-ratios/"><u>[Updated] 2024 Approved  Perfecting Your Content  Understanding Facebook Video Sizes and Ratios</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-preventing-sudden-deletion-of-personal-videos-from-fb/"><u>[Updated] 2024 Approved  Preventing Sudden Deletion of Personal Videos From FB</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-capturecraft-in-depth-analysis-of-screen-capture-tech-for-2024/"><u>[Updated] CaptureCraft  In-Depth Analysis of Screen Capture Tech for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-how-to-embed-facebook-live-on-a-website-for-2024/"><u>[Updated] How to Embed Facebook Live on a Website for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-lightning-leap-into-facebook-id-sleuthing/"><u>[Updated] In 2024, Lightning Leap Into Facebook ID Sleuthing</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-missing-icon-reclaim-your-facebook-watch-icon/"><u>[Updated] In 2024, Missing Icon? Reclaim Your Facebook Watch Icon</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-seamless-transfer-of-high-definition-fb-media/"><u>[Updated] In 2024, Seamless Transfer of High Definition FB Media</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-social-media-sensation-top-eight-videos/"><u>[Updated] In 2024, Social Media Sensation  Top Eight Videos</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-integrated-story-spread-4-simple-steps-on-fb-for-2024/"><u>[Updated] Integrated Story Spread  4 Simple Steps on FB for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-maximizing-revenue-crafting-engaging-fb-animation-ads-for-2024/"><u>[Updated] Maximizing Revenue  Crafting Engaging FB Animation Ads for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-navigating-freezing-of-fb-video-ads-for-2024/"><u>[Updated] Navigating Freezing of FB Video Ads for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-pinpoint-and-eliminate-android-video-glitches-for-2024/"><u>[Updated] Pinpoint & Eliminate Android Video Glitches for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/calls-on-oneplus-12r-go-straight-to-voicemail-12-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Calls on OnePlus 12R Go Straight to Voicemail? 12 Fixes | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-full-guide-to-unlock-your-itel-by-drfone-android/"><u>In 2024, Full Guide to Unlock Your Itel</u></a></li>
+<li><a href="https://extra-information.techidaily.com/live-action-anytime-anywhere-our-ultimate-12-stream-service/"><u>Live Action Anytime, Anywhere - Our Ultimate 12-Stream Service</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-filmora-coupon-hunters-guide-7-essential-tips-for-2024/"><u>New Filmora Coupon Hunters Guide 7 Essential Tips for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/prime-video-trendsetters-top-likers-and-viewers-on-twitter-for-2024/"><u>Prime Video Trendsetters  Top Likers & Viewers on Twitter for 2024</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/updated-2024-approved-demystifying-the-vectorscope-a-comprehensive-guide-for-premiere-pro-color-correction/"><u>Updated 2024 Approved Demystifying the Vectorscope A Comprehensive Guide for Premiere Pro Color Correction</u></a></li>
+</ul></div>

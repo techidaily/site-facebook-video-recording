@@ -1,7 +1,7 @@
 ---
 title: "\"Introduction to Effective Analysis  Facebook Insights for 2024\""
-date: 2024-05-20T20:06:23.118Z
-updated: 2024-05-21T20:06:23.118Z
+date: 2024-07-20T17:08:22.987Z
+updated: 2024-07-21T17:08:22.987Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Introduction to Effective Analysis: Facebook Insights for 2024\""
 excerpt: "\"This Article Describes Introduction to Effective Analysis: Facebook Insights for 2024\""
 keywords: "Facebook Inspection Guide,Social Media Data Analysis,FB Insight Basics,Data Analytics for FB,Social Networking Metrics,FB Insights Introduction,Engagement Analysis Tool"
-thumbnail: https://www.lifewire.com/thmb/dMPS7xdJyHFzVyJkCHD1luzOMsY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-1307216070-0e099dda13034522b872849a6b02d975.jpg
+thumbnail: https://thmb.techidaily.com/cf88e87b734b5b9f59ddbd2f8f99680f9b1ec3ba8de831308f2fd3fe15c5bbed.jpg
 ---
 
 ## Introduction to Effective Analysis: Facebook Insights
@@ -35,12 +35,146 @@ thumbnail: https://www.lifewire.com/thmb/dMPS7xdJyHFzVyJkCHD1luzOMsY=/400x300/fi
 * [**Part 2: Where to Find Facebook Insights**](#part2)
 * [**Part 3: How to Use Facebook Insights for Beginners**](#part3)
 
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1: What is Facebook Insights
 
  A free analytical tool offered by Facebook, the [Facebook Insights](https://www.facebook.com/business/news/audience-insights) helps you in understanding and analysing your posts, your fans, and your page’s performance as a whole. From understanding which of your posts are getting more likes, comments, and shares to knowing the reach of your posts and the increasing fan count, the Facebook Insights can guide you through the way.
 
  But, you need to remain updated and in the loop with the regular and fresh developments taking place on your page every now and then.
 
+## Part 2: Where to Find Facebook Insights
+
+ To find out the audience demographic, audience’s response, and page performance on Facebook, [you need to check the Facebook page insights](https://www.facebook.com/help/268680253165747?helpref=search&sr=1&query=insights). It shows you past two years data. The demographic data like the gender, location or age is only available when the data reaches 100 or more traffic on the Page Insight page. The community pages insight is not shown.
+
+ By using Facebook Insights, you can learn how well your post is doing, which post has more engagement, know when your audience is checking the posts, page performance metrics and more.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
+LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
+## Part 3: How to Use Facebook Insights for Beginners
+
+### 1\. Overview
+
+ What is overview all about? The overview gives you a complete picture of your and your audience’s activities on your page for a week. The prime things that it covers are how many likes, comments, and shares your post received over a week, the number of people who viewed your content for one week, and the number of likes your page received. By understanding the measurement and performance of your page, you can check if any sort of pattern is developing, and then, delve deeper into the sections.
+
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![insights overview](https://images.wondershare.com/filmora/article-images/insights-overview.JPG)
+
+### 2\. Page Likes
+
+ There are three basic metrics in the likes section.
+
+ Firstly, the **page likes**, which captures the total likes on your page per day for 28 days.
+
+ Secondly, the **net likes**, which captures the total new likes on your page subtracted by the total dislikes.
+
+ Finally, the **certain times** your page was liked but broken by where it took place. In order to build your brand, you need to keep a track of your page likes and make sure that you are targeting the right people and connecting with them by targeting posts through relevant content.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### 3\. Post Reach
+
+ The Post Reach helps you to understand how many people viewed your posts and how they interacted or responded to it. It is divided into 4 prime metrics. The Post Reach shows you the number of people who were exposed to a particular post. It is further broken into paid and organic reach.
+
+**Total Reach** shows the total number of people who viewed any kind of activities from your page.
+
+ In Like Comments, and Share section, you can check the total number of shares, comments, and likes and the positive engagement your page received. Your post will be shown to more people according to the higher number of engagement in your post.
+
+ In Hide, Report as Spam, and Unlikes, you may check the negative people count on your page. When the negative engagement of the people is more, lesser people can view your post in future.
+
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
+![insights post reach](https://images.wondershare.com/filmora/article-images/insights-post-reach.JPG)
+
+### 4\. Post Promotion
+
+ Promoting your post to your target audiences beyond your Facebook page’s fans can boost your post. You can even create an advertisement out of your post and include a call to action button on the page. By clicking on the Boost a Post, the Insights gives you the list of your high performing posts as well as the recommended posts with more user engagement. These posts can be promoted as per your choice. Your target audience, duration, and the budget of the promotion can be specified as per your choice.
+
+### 5\. Video Analytics
+
+ Now, the video tab gives you a complete overview of how your videos are performing. You can check out the paid and organic, repeat and unique, and manual click and auto click views on your videos. There are 3 tabs under this section.
+
+ Video views show the number of times your video is viewed and more than 3 seconds is considered a view by Facebook.
+
+ You may check out how many times the people viewed your video for more than 10 seconds under the 10-Second Views tab.
+
+ The Top Videos section shows you the top 5 videos posted by you with more than 3 seconds views. This helps you to analyse the type of video preferred by your audiences.
+
+![insights video analytics](https://images.wondershare.com/filmora/article-images/insights-video-analytics.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<!-- affiliate ads end -->
+### 6\. People Analytics
+
+ Under the People tab, you get to understand the metrics of like and views of people on your posts. It is further divided into 3 sections.
+
+ Your **Fans section** helps you to analyse the language, age, city, country, and gender of your fans.
+
+ You get a breakdown your page followers according to their language, age, gender, country, and city in the **Followers section**.
+
+ The **People Reached tab** shows the number of people who viewed your post by demographics. You can analyse if the right people, location, and age group are targeted or you need to make corrections.
+
+![insights people analytics](https://images.wondershare.com/filmora/article-images/insights-people-analytics.jpg)
+
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Conclusion
+
+ Measuring the success of your Facebook page and posts is now easy with Facebook Insights. Keep a track of your posts and preferences of your audiences and run the campaigns successfully. Follow the above points to use the Facebook Insights without any confusion.
+
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+ Facebook is the most powerful social media tool can help your brand or business to reach the right traffic, but if you post without knowing the likes of your audience or who your audience is, your efforts go down the drain.
+
+[Facebook Insights](https://www.facebook.com/business/a/page/page-insights) that enables you to track your business performance, create brand awareness, and more. Using it the right way is the most important part of successful campaigns on Facebook.
+
+ Are you planning to do a social media campaign or [find influenceres on Facebook to Drive More Traffic](https://tools.techidaily.com/wondershare/filmora/download/)? Try out the Facebook Insights and you won’t be disappointed. For all the beginners, learn how to use Facebook Insights correctly.
+
+* [**Part 1: What is Facebook Insights**](#part1)
+* [**Part 2: Where to Find Facebook Insights**](#part2)
+* [**Part 3: How to Use Facebook Insights for Beginners**](#part3)
+
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 1: What is Facebook Insights
+
+ A free analytical tool offered by Facebook, the [Facebook Insights](https://www.facebook.com/business/news/audience-insights) helps you in understanding and analysing your posts, your fans, and your page’s performance as a whole. From understanding which of your posts are getting more likes, comments, and shares to knowing the reach of your posts and the increasing fan count, the Facebook Insights can guide you through the way.
+
+ But, you need to remain updated and in the loop with the regular and fresh developments taking place on your page every now and then.
+
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: Where to Find Facebook Insights
 
  To find out the audience demographic, audience’s response, and page performance on Facebook, [you need to check the Facebook page insights](https://www.facebook.com/help/268680253165747?helpref=search&sr=1&query=insights). It shows you past two years data. The demographic data like the gender, location or age is only available when the data reaches 100 or more traffic on the Page Insight page. The community pages insight is not shown.
@@ -65,6 +199,9 @@ thumbnail: https://www.lifewire.com/thmb/dMPS7xdJyHFzVyJkCHD1luzOMsY=/400x300/fi
 
  Finally, the **certain times** your page was liked but broken by where it took place. In order to build your brand, you need to keep a track of your page likes and make sure that you are targeting the right people and connecting with them by targeting posts through relevant content.
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 ### 3\. Post Reach
 
  The Post Reach helps you to understand how many people viewed your posts and how they interacted or responded to it. It is divided into 4 prime metrics. The Post Reach shows you the number of people who were exposed to a particular post. It is further broken into paid and organic reach.
@@ -109,6 +246,9 @@ thumbnail: https://www.lifewire.com/thmb/dMPS7xdJyHFzVyJkCHD1luzOMsY=/400x300/fi
 
  Measuring the success of your Facebook page and posts is now easy with Facebook Insights. Keep a track of your posts and preferences of your audiences and run the campaigns successfully. Follow the above points to use the Facebook Insights without any confusion.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
@@ -151,6 +291,9 @@ Follow @Shanoon Cox
 
  What is overview all about? The overview gives you a complete picture of your and your audience’s activities on your page for a week. The prime things that it covers are how many likes, comments, and shares your post received over a week, the number of people who viewed your content for one week, and the number of likes your page received. By understanding the measurement and performance of your page, you can check if any sort of pattern is developing, and then, delve deeper into the sections.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![insights overview](https://images.wondershare.com/filmora/article-images/insights-overview.JPG)
 
 ### 2\. Page Likes
@@ -179,6 +322,9 @@ Follow @Shanoon Cox
 
  Promoting your post to your target audiences beyond your Facebook page’s fans can boost your post. You can even create an advertisement out of your post and include a call to action button on the page. By clicking on the Boost a Post, the Insights gives you the list of your high performing posts as well as the recommended posts with more user engagement. These posts can be promoted as per your choice. Your target audience, duration, and the budget of the promotion can be specified as per your choice.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 5\. Video Analytics
 
  Now, the video tab gives you a complete overview of how your videos are performing. You can check out the paid and organic, repeat and unique, and manual click and auto click views on your videos. There are 3 tabs under this section.
@@ -191,6 +337,9 @@ Follow @Shanoon Cox
 
 ![insights video analytics](https://images.wondershare.com/filmora/article-images/insights-video-analytics.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 6\. People Analytics
 
  Under the People tab, you get to understand the metrics of like and views of people on your posts. It is further divided into 3 sections.
@@ -203,12 +352,21 @@ Follow @Shanoon Cox
 
 ![insights people analytics](https://images.wondershare.com/filmora/article-images/insights-people-analytics.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Conclusion
 
  Measuring the success of your Facebook page and posts is now easy with Facebook Insights. Keep a track of your posts and preferences of your audiences and run the campaigns successfully. Follow the above points to use the Facebook Insights without any confusion.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -245,12 +403,21 @@ Follow @Shanoon Cox
 
 ## Part 3: How to Use Facebook Insights for Beginners
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1\. Overview
 
  What is overview all about? The overview gives you a complete picture of your and your audience’s activities on your page for a week. The prime things that it covers are how many likes, comments, and shares your post received over a week, the number of people who viewed your content for one week, and the number of likes your page received. By understanding the measurement and performance of your page, you can check if any sort of pattern is developing, and then, delve deeper into the sections.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<!-- affiliate ads end -->
 ![insights overview](https://images.wondershare.com/filmora/article-images/insights-overview.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. Page Likes
 
  There are three basic metrics in the likes section.
@@ -273,10 +440,16 @@ Follow @Shanoon Cox
 
 ![insights post reach](https://images.wondershare.com/filmora/article-images/insights-post-reach.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ### 4\. Post Promotion
 
  Promoting your post to your target audiences beyond your Facebook page’s fans can boost your post. You can even create an advertisement out of your post and include a call to action button on the page. By clicking on the Boost a Post, the Insights gives you the list of your high performing posts as well as the recommended posts with more user engagement. These posts can be promoted as per your choice. Your target audience, duration, and the budget of the promotion can be specified as per your choice.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 5\. Video Analytics
 
  Now, the video tab gives you a complete overview of how your videos are performing. You can check out the paid and organic, repeat and unique, and manual click and auto click views on your videos. There are 3 tabs under this section.
@@ -289,6 +462,9 @@ Follow @Shanoon Cox
 
 ![insights video analytics](https://images.wondershare.com/filmora/article-images/insights-video-analytics.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 6\. People Analytics
 
  Under the People tab, you get to understand the metrics of like and views of people on your posts. It is further divided into 3 sections.
@@ -299,112 +475,24 @@ Follow @Shanoon Cox
 
  The **People Reached tab** shows the number of people who viewed your post by demographics. You can analyse if the right people, location, and age group are targeted or you need to make corrections.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![insights people analytics](https://images.wondershare.com/filmora/article-images/insights-people-analytics.jpg)
 
 ## Conclusion
 
  Measuring the success of your Facebook page and posts is now easy with Facebook Insights. Keep a track of your posts and preferences of your audiences and run the campaigns successfully. Follow the above points to use the Facebook Insights without any confusion.
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
- Facebook is the most powerful social media tool can help your brand or business to reach the right traffic, but if you post without knowing the likes of your audience or who your audience is, your efforts go down the drain.
-
-[Facebook Insights](https://www.facebook.com/business/a/page/page-insights) that enables you to track your business performance, create brand awareness, and more. Using it the right way is the most important part of successful campaigns on Facebook.
-
- Are you planning to do a social media campaign or [find influenceres on Facebook to Drive More Traffic](https://tools.techidaily.com/wondershare/filmora/download/)? Try out the Facebook Insights and you won’t be disappointed. For all the beginners, learn how to use Facebook Insights correctly.
-
-* [**Part 1: What is Facebook Insights**](#part1)
-* [**Part 2: Where to Find Facebook Insights**](#part2)
-* [**Part 3: How to Use Facebook Insights for Beginners**](#part3)
-
-## Part 1: What is Facebook Insights
-
- A free analytical tool offered by Facebook, the [Facebook Insights](https://www.facebook.com/business/news/audience-insights) helps you in understanding and analysing your posts, your fans, and your page’s performance as a whole. From understanding which of your posts are getting more likes, comments, and shares to knowing the reach of your posts and the increasing fan count, the Facebook Insights can guide you through the way.
-
- But, you need to remain updated and in the loop with the regular and fresh developments taking place on your page every now and then.
-
-## Part 2: Where to Find Facebook Insights
-
- To find out the audience demographic, audience’s response, and page performance on Facebook, [you need to check the Facebook page insights](https://www.facebook.com/help/268680253165747?helpref=search&sr=1&query=insights). It shows you past two years data. The demographic data like the gender, location or age is only available when the data reaches 100 or more traffic on the Page Insight page. The community pages insight is not shown.
-
- By using Facebook Insights, you can learn how well your post is doing, which post has more engagement, know when your audience is checking the posts, page performance metrics and more.
-
-## Part 3: How to Use Facebook Insights for Beginners
-
-### 1\. Overview
-
- What is overview all about? The overview gives you a complete picture of your and your audience’s activities on your page for a week. The prime things that it covers are how many likes, comments, and shares your post received over a week, the number of people who viewed your content for one week, and the number of likes your page received. By understanding the measurement and performance of your page, you can check if any sort of pattern is developing, and then, delve deeper into the sections.
-
-![insights overview](https://images.wondershare.com/filmora/article-images/insights-overview.JPG)
-
-### 2\. Page Likes
-
- There are three basic metrics in the likes section.
-
- Firstly, the **page likes**, which captures the total likes on your page per day for 28 days.
-
- Secondly, the **net likes**, which captures the total new likes on your page subtracted by the total dislikes.
-
- Finally, the **certain times** your page was liked but broken by where it took place. In order to build your brand, you need to keep a track of your page likes and make sure that you are targeting the right people and connecting with them by targeting posts through relevant content.
-
-### 3\. Post Reach
-
- The Post Reach helps you to understand how many people viewed your posts and how they interacted or responded to it. It is divided into 4 prime metrics. The Post Reach shows you the number of people who were exposed to a particular post. It is further broken into paid and organic reach.
-
-**Total Reach** shows the total number of people who viewed any kind of activities from your page.
-
- In Like Comments, and Share section, you can check the total number of shares, comments, and likes and the positive engagement your page received. Your post will be shown to more people according to the higher number of engagement in your post.
-
- In Hide, Report as Spam, and Unlikes, you may check the negative people count on your page. When the negative engagement of the people is more, lesser people can view your post in future.
-
-![insights post reach](https://images.wondershare.com/filmora/article-images/insights-post-reach.JPG)
-
-### 4\. Post Promotion
-
- Promoting your post to your target audiences beyond your Facebook page’s fans can boost your post. You can even create an advertisement out of your post and include a call to action button on the page. By clicking on the Boost a Post, the Insights gives you the list of your high performing posts as well as the recommended posts with more user engagement. These posts can be promoted as per your choice. Your target audience, duration, and the budget of the promotion can be specified as per your choice.
-
-### 5\. Video Analytics
-
- Now, the video tab gives you a complete overview of how your videos are performing. You can check out the paid and organic, repeat and unique, and manual click and auto click views on your videos. There are 3 tabs under this section.
-
- Video views show the number of times your video is viewed and more than 3 seconds is considered a view by Facebook.
-
- You may check out how many times the people viewed your video for more than 10 seconds under the 10-Second Views tab.
-
- The Top Videos section shows you the top 5 videos posted by you with more than 3 seconds views. This helps you to analyse the type of video preferred by your audiences.
-
-![insights video analytics](https://images.wondershare.com/filmora/article-images/insights-video-analytics.JPG)
-
-### 6\. People Analytics
-
- Under the People tab, you get to understand the metrics of like and views of people on your posts. It is further divided into 3 sections.
-
- Your **Fans section** helps you to analyse the language, age, city, country, and gender of your fans.
-
- You get a breakdown your page followers according to their language, age, gender, country, and city in the **Followers section**.
-
- The **People Reached tab** shows the number of people who viewed your post by demographics. You can analyse if the right people, location, and age group are targeted or you need to make corrections.
-
-![insights people analytics](https://images.wondershare.com/filmora/article-images/insights-people-analytics.jpg)
-
-## Conclusion
-
- Measuring the success of your Facebook page and posts is now easy with Facebook Insights. Keep a track of your posts and preferences of your audiences and run the campaigns successfully. Follow the above points to use the Facebook Insights without any confusion.
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -436,3 +524,50 @@ Follow @Shanoon Cox
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-dive-deep-10-immersive-youtube-videos-for-vr-enthusiasts/"><u>[New] 2024 Approved  Dive Deep  10 Immersive YouTube Videos for VR Enthusiasts</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-best-9-screen-free-adventures-in-mobile-gaming-android-edition-for-2024/"><u>[New] Best 9 Screen-Free Adventures in Mobile Gaming (Android Edition) for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-charting-success-top-online-video-channels/"><u>[New] Charting Success  Top Online Video Channels</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-efficiently-capture-whatsapp-chat-a-step-by-step-tutorial/"><u>[New] Efficiently Capture WhatsApp Chat  A Step-by-Step Tutorial</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-how-to-amplify-facebook-stories-with-music-elements/"><u>[New] How to Amplify Facebook Stories with Music Elements</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-how-to-recall-facebooks-older-episodes-with-your-computer-and-phone/"><u>[New] How to Recall Facebook's Older Episodes with Your Computer & Phone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-amplify-your-creative-voice-on-tiktok-designed-themes-for-you/"><u>[New] In 2024, Amplify Your Creative Voice on TikTok  Designed Themes for You</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-earning-potential-unleashed-monetizing-fb-pages-effectively/"><u>[New] In 2024, Earning Potential Unleashed  Monetizing FB Pages Effectively</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-legal-considerations-when-uploading-videos-to-social-network-sites/"><u>[New] Legal Considerations When Uploading Videos to Social Network Sites</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-optimizing-video-playback-for-engaged-audiences/"><u>[New] Optimizing Video Playback for Engaged Audiences</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-resolving-live-stream-pause-issues-on-fb/"><u>[New] Resolving Live Stream Pause Issues on FB</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-revive-missing-social-media-watch-icon/"><u>[New] Revive Missing Social Media Watch Icon</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-setting-up-facebook-viewing-for-smooth-apple-tv-experience/"><u>[New] Setting Up Facebook Viewing for Smooth Apple TV Experience</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-transform-your-digital-works-into-blockchain-treasures-with-these-tools/"><u>[New] Transform Your Digital Works Into Blockchain Treasures with These Tools</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-a-comprehensive-guide-to-earnings-from-youtube-short-videos/"><u>[Updated] A Comprehensive Guide to Earnings From YouTube Short Videos</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-how-to-live-stream-facebook-from-pc-mac-or-laptop-with-obs/"><u>[Updated] How to Live Stream Facebook From PC, Mac or Laptop with OBS</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-online-facebook-video-to-mp3-converters-how-to-convert-fb-to-mp3/"><u>[Updated] Online Facebook Video to MP3 Converters | How to Convert FB to MP3?</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-reveal-hidden-gems-posting-fb-videos-effectively/"><u>[Updated] Reveal Hidden Gems  Posting FB Videos Effectively</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-screentosave-mobilepc-video-recording/"><u>[Updated] ScreenToSave  Mobile/PC Video Recording</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-enhance-your-smartphone-photos-with-these-free-innovative-tools/"><u>2024 Approved  Enhance Your Smartphone Photos with These Free, Innovative Tools</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-how-to-capture-and-share-your-favorite-pics-on-social-platforms-with-obs/"><u>2024 Approved  How to Capture and Share Your Favorite Pics on Social Platforms with OBS</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-improve-youtube-viewing-of-fb-videos-on-android/"><u>2024 Approved  Improve YouTube Viewing of FB Videos on Android</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-navigating-facebook-to-play-youtube-videos-without-interruption/"><u>2024 Approved  Navigating Facebook to Play YouTube Videos Without Interruption</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-peeking-at-pro-screen-recording-tools/"><u>2024 Approved  Peeking at Pro Screen Recording Tools</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-setting-up-your-zone-for-top-notch-oculus-vr-experience/"><u>2024 Approved  Setting Up Your Zone for Top-Notch Oculus VR Experience</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-the-best-5-book-video-promotions-ever-made/"><u>2024 Approved  The Best 5 Book Video Promotions Ever Made</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/how-to-add-videos-in-instagram-story-for-2024/"><u>How to Add Videos in Instagram Story for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-activation-lock-on-apple-watch-or-iphone-7-by-drfone-ios/"><u>In 2024, How To Bypass Activation Lock On Apple Watch Or iPhone 7?</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-use-ispoofer-on-vivo-y02t-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Vivo Y02T? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-instagram-video-troubleshooting-no-silence-full-sound/"><u>In 2024, Instagram Video Troubleshooting - No Silence, Full Sound</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-livestream-recorder-for-messenger/"><u>In 2024, LiveStream Recorder for Messenger</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-livestreaming-pre-recorded-content-seamlessly-on-fb/"><u>In 2024, Livestreaming Pre-Recorded Content Seamlessly on FB</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-myvideocapture-social-media-video-download/"><u>In 2024, MyVideoCapture  Social Media Video Download</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-rights-overload-immediate-content-scrapping/"><u>In 2024, Rights Overload  Immediate Content Scrapping</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-solutions-for-non-deliverable-facebook-messenger-videos-on-androidios/"><u>In 2024, Solutions for Non-Deliverable Facebook Messenger Videos on Android/iOS</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/invisible-viewers-for-fb-chronicles-for-2024/"><u>Invisible Viewers for FB Chronicles for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/master-live-broadcast-setup-using-obs-studio-pc-mac-laptop-for-2024/"><u>Master Live Broadcast Setup Using OBS Studio (PC, Mac, Laptop) for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/maximizing-tv-viewing-watching-fb-videos-directly-for-2024/"><u>Maximizing TV Viewing  Watching FB Videos Directly for 2024</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-2024-approved-rotating-the-audio-and-video-files-is-quite-a-challenging-task-though-but-the-arrival-of-some-of-the-well-known-video-rotators-has-solved-/"><u>New 2024 Approved Rotating the Audio and Video Files Is Quite a Challenging Task Though, but the Arrival of some of the Well Known Video Rotators Has Solved This Problem</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-in-2024-s-top-picks-video-stabilizer-apps-for-smartphones/"><u>New In 2024, S Top Picks Video Stabilizer Apps for Smartphones</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/secret-glance-at-fb-snapshots-for-2024/"><u>Secret Glance at FB Snapshots for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-photographers-companion-to-master-color-correction-top-11-for-2024/"><u>The Photographer's Companion to Master Color Correction (Top 11) for 2024</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-the-ultimate-guide-to-elevating-clearness-in-internet-streamed-auditory-content/"><u>Updated The Ultimate Guide to Elevating Clearness in Internet-Streamed Auditory Content</u></a></li>
+</ul></div>

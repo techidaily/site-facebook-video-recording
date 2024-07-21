@@ -1,7 +1,7 @@
 ---
 title: "\"From Silent Screens to Captivating Media  Instantly Create Captions on FB for 2024\""
-date: 2024-06-26T02:30:12.574Z
-updated: 2024-06-27T02:30:12.574Z
+date: 2024-07-20T17:21:22.687Z
+updated: 2024-07-21T17:21:22.687Z
 tags:
   - ai video
   - ai facebook
@@ -31,6 +31,9 @@ Here are a few simple steps to get things done:
 
 Step 1: First of all, you need to move to your video library. In case if you find this library is empty, then you can add videos to it from your personal device. Simply use the upload button to get your video to which you wish to add subtitles or captions.
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![add caption facebook](https://images.wondershare.com/filmora/article-images/add-caption-video-library.jpg)
 
 Step 2: Now use edit video button it will help you to reach at Captions Tab. It offers two selections: Generate or Upload SRT file.
@@ -45,6 +48,9 @@ SRT caption files are usually supported by almost all popular media players and 
 * Note that, each caption phrase need to be divided into several numbered sections so start with 1 and then press Enter.
 * The standard timing options for SubRip formats use to be milliseconds so you need to divide all phrases respectively into desired time slots. Keep on adding your phrases till the time you cover whole video.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<!-- affiliate ads end -->
 ![facebook subtitle create](https://images.wondershare.com/filmora/article-images/facebook-subtitle-create.jpg)
 
 * Now save this text file into SRT format by using Save and then All Files option. Add your desired file name and select file format as .srt. Hit Save option.
@@ -64,6 +70,9 @@ Save all updates when you are satisfied with preview.
 
 ## How to Edit Facebook Video Text/Subtitles with Wondershare Filmora
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 It is convenient to create captions in Facebook with the automatic generate tool or uploading the .SRT file, but if you want your text/subtitle with more cool visual effects, like dialog balloons, headings, we recommend you to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/). You can easily update intro, credit and captions as well as subtitles to your Facebook videos using Wondershare Filmora tool. If you want to make video for business, here comes [Filmora Business](https://tools.techidaily.com/wondershare/filmora/download/). It is a simple to use video editor to make short video on Facebook. You can make amazing Facebook videos. Download it now to have a try ![![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Here are few simple to follow steps
@@ -72,6 +81,9 @@ Here are few simple to follow steps
 
 First if all, you need to add your video file to Wondershare Filmora timeline. Note that it is good to import videos to Media Library first and then access them for editing via library only so that your original video files can stay safe. Use drag and drop feature or Add files option to get your files from Media Library to Timeline.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Step 2: Apply Template ![filmora text interface 201704](https://images.wondershare.com/filmora/article-images/filmora-text-interface-201704.jpg)
 
 Wondershare Filmora will provide you a wide range of templates for selection of text formats. You can pick any of these as per need.
@@ -83,10 +95,17 @@ Wondershare Filmora will provide you a wide range of templates for selection of 
 
 Once you have finished the text based editing task then hit the Export option available on software window. It will provide you six different output selection options, edited file can be send to DVD, Vimeo, YouTube, Facebook, Device and one can adjust desired Format for it. If you want to update this edited file on Facebook Page then simply select MP3 as your desired output file format.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![output format](https://images.wondershare.com/filmora/article-images/output-format.jpg)
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -103,3 +122,63 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-game-changers-discovering-top-tier-gaming-webcam-technology/"><u>[New] 2024 Approved  Game Changers  Discovering Top-Tier Gaming Webcam Technology</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-growth-hurdle-cleared-500-subscribers-win/"><u>[New] In 2024, Growth Hurdle Cleared  500 Subscribers Win</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-the-innovators-choice-best-gimbal-systems-for-video-creators/"><u>[New] The Innovator’s Choice  Best Gimbal Systems for Video Creators</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-viral-views-vault-the-daily-top-10-watched-videos/"><u>[New] Viral Views Vault  The Daily Top 10 Watched Videos</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-mastering-mobile-video-editing-on-tiktok/"><u>[Updated] 2024 Approved  Mastering Mobile Video Editing on TikTok</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-tag-like-a-pro-the-most-trending-hashtags-on-instagram-to-increase-engagement/"><u>[Updated] 2024 Approved  Tag Like a Pro  The Most Trending Hashtags on Instagram to Increase Engagement</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-creating-captivating-loops-for-instagram-posts-for-2024/"><u>[Updated] Creating Captivating Loops for Instagram Posts for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-the-ultimate-cut-for-quality-offline-ipad-gaming/"><u>[Updated] The Ultimate Cut for Quality Offline iPad Gaming</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-unveiling-youtubes-monthly-monetization-rules/"><u>2024 Approved  Unveiling YouTube’s Monthly Monetization Rules</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-video-framing-mastery-letterbox-technique-for-social-media-content/"><u>2024 Approved  Video Framing Mastery  Letterbox Technique for Social Media Content</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-what-every-user-should-know-about-facebooks-latest-shift/"><u>2024 Approved  What Every User Should Know About Facebook's Latest Shift</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-what-is-blue-video-icon-on-facebook-messenger/"><u>2024 Approved  What Is Blue Video Icon on Facebook Messenger?</u></a></li>
+<li><a href="https://howto.techidaily.com/8-solutions-to-solve-youtube-app-crashing-on-tecno-camon-20-premier-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Solutions to Solve YouTube App Crashing on Tecno Camon 20 Premier 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/a-step-by-step-manual-swiftly-produce-captions-for-facebook-videos-for-2024/"><u>A Step-by-Step Manual  Swiftly Produce Captions for Facebook Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/a-step-by-step-process-to-upgrade-and-update-video-covers-on-social-media/"><u>A Step-by-Step Process to Upgrade and Update Video Covers on Social Media</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/achieve-synchronicity-with-your-browser-and-fbs-autoplay-feature/"><u>Achieve Synchronicity with Your Browser and FB's Autoplay Feature</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/acoustic-amplification-of-social-media-content-on-facebook/"><u>Acoustic Amplification of Social Media Content on Facebook</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/automatic-youtube-playback-made-simple-for-social-networking-sites-like-facebook-for-2024/"><u>Automatic YouTube Playback Made Simple for Social Networking Sites Like Facebook for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/avatar-abstraction-artistry-sculpting-your-playful-image/"><u>Avatar Abstraction Artistry  Sculpting Your Playful Image</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/best-fb-video-extractors-for-ios-devices-ranked-1-for-2024/"><u>Best FB Video Extractors for iOS Devices Ranked #1 for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/best-practices-elevating-your-virtual-identity-on-facebook/"><u>Best Practices  Elevating Your Virtual Identity on Facebook</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/blending-beats-posting-tunes-on-digital-diaries/"><u>Blending Beats  Posting Tunes on Digital Diaries</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/boost-your-facebook-profile-select-8-apps-with-highest-like-potential-for-2024/"><u>Boost Your Facebook Profile  Select 8 Apps with Highest Like Potential for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/boosting-your-businesss-productivity-with-top-fb-planners-for-2024/"><u>Boosting Your Business's Productivity with Top FB Planners for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/bridging-games-and-friends-xbox-live-to-facebook-broadcasting-for-2024/"><u>Bridging Games and Friends  Xbox Live to Facebook Broadcasting for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/bridging-the-gap-youtube-and-facebook-content-collaboration/"><u>Bridging the Gap  YouTube and Facebook Content Collaboration</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/building-brand-loyalty-through-emotional-fb-video-storytelling/"><u>Building Brand Loyalty Through Emotional FB Video Storytelling</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/compre-written-guide-youtube-video-distribution-on-fb-for-2024/"><u>Compre Written Guide  YouTube Video Distribution on FB for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/crafting-an-irresistible-brand-image-on-your-fb-page/"><u>Crafting an Irresistible Brand Image on Your FB Page</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/creating-a-strong-brand-voice-with-social-media-videos/"><u>Creating a Strong Brand Voice with Social Media Videos</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/creating-compelling-call-to-actions-utilizing-three-critical-copy-techniques/"><u>Creating Compelling Call-To-Actions  Utilizing Three Critical Copy Techniques</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/decoding-inverse-image-retrieval-for-social-networks-focusing-on-fb-for-2024/"><u>Decoding Inverse Image Retrieval for Social Networks, Focusing on FB for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/discord-profile-video-info-dimensions-codec-time-span/"><u>Discord Profile Video Info  Dimensions, Codec, Time Span</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/easy-steps-to-locate-recently-viewed-videos-by-you-on-fb-for-2024/"><u>Easy Steps to Locate Recently Viewed Videos by You on FB for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/effortlessly-traverse-facebooks-past-posts/"><u>Effortlessly Traverse Facebook’s Past Posts</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/elevate-video-impact-proven-youtube-seo-methods/"><u>Elevate Video Impact  Proven YouTube SEO Methods</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/engage-enlighten-and-enthrall-with-immersive-facebook-sharing/"><u>Engage, Enlighten and Enthrall with Immersive Facebook Sharing</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/enhance-social-media-reach-on-facebook-using-proven-seo-methods-for-2024/"><u>Enhance Social Media Reach on Facebook Using Proven SEO Methods for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/enhancing-televised-experiences-with-fb-live-techniques-for-2024/"><u>Enhancing Televised Experiences with FB Live Techniques for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/everything-about-facebook-for-2024/"><u>Everything About Facebook for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/expand-your-online-horizons-upload-360-photos-with-ease-on-mobile-platforms-for-2024/"><u>Expand Your Online Horizons  Upload 360 Photos with Ease on Mobile Platforms for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/facebook-favorites-top-8-androidiphone-apps-for-social-popularity/"><u>Facebook Favorites  Top 8 Android/iPhone Apps for Social Popularity</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/facebook-today-key-changes-for-users/"><u>Facebook Today  Key Changes for Users</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-unfortunately-settings-has-stopped-on-oppo-a38-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Unfortunately Settings Has Stopped on Oppo A38 Quickly | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/gopro-hero5-experience-recap/"><u>GoPro Hero5 Experience Recap</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/how-mycam-changes-video-recording-at-home-an-in-depth-review-for-2024/"><u>How MyCam Changes Video Recording at Home – An In-Depth Review for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-honor-90-lite-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Snapchat Location Spoofer to Protect Your Privacy On Honor 90 Lite? | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-isolating-photographs-within-windows-10-movie-files/"><u>In 2024, Isolating Photographs Within Windows 10 Movie Files</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-masterful-social-media-monitoring-expert-selection-of-analytics-software/"><u>In 2024, Masterful Social Media Monitoring  Expert Selection of Analytics Software</u></a></li>
+<li><a href="https://extra-information.techidaily.com/navigating-the-world-of-live-periscope-streaming/"><u>Navigating the World of Live Periscope Streaming</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-the-6-most-reliable-audio-converter-programs/"><u>New The 6 Most Reliable Audio Converter Programs</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/reconnect-scanner-troubleshooting-guide-for-win10-users/"><u>Reconnect Scanner: Troubleshooting Guide for Win10 Users</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/rotate-videos-online-best-web-based-solutions-for-2024/"><u>Rotate Videos Online Best Web-Based Solutions for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-kapwing-slow-motion-editing-made-easy-a-simple-step-by-step-guide/"><u>Updated 2024 Approved Kapwing Slow Motion Editing Made Easy A Simple, Step-by-Step Guide</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/updated-essential-audio-recording-tools-for-personal-computers/"><u>Updated Essential Audio Recording Tools for Personal Computers</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-in-2024-best-mac-audio-converters-for-seamless-music-transfers/"><u>Updated In 2024, Best Mac Audio Converters for Seamless Music Transfers</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-video-editing-face-off-final-cut-pro-vs-lumafusion-which-is-right-for-you/"><u>Updated In 2024, Video Editing Face-Off Final Cut Pro vs LumaFusion - Which Is Right for You?</u></a></li>
+</ul></div>
