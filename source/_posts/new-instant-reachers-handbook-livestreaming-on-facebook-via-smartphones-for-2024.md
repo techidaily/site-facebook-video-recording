@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Instant Reachers' Handbook  Livestreaming on Facebook via Smartphones for 2024\""
-date: 2024-09-02T17:53:21.939Z
-updated: 2024-09-03T17:53:21.939Z
+date: 2024-09-07T06:45:13.991Z
+updated: 2024-09-08T06:45:13.991Z
 tags:
   - ai video
   - ai facebook
@@ -15,30 +15,60 @@ keywords: "Live Streaming FB Guide,Social Media Streaming,Instant Online Broadca
 thumbnail: https://thmb.techidaily.com/71ccc2fedcffdaa9357153f28278ee3778285e29e6f3d8460fc68588e03103f5.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123473/16836" target="_top" id="2123473">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123473" border="0" alt="https://techidaily.com" width="254" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123473/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Instant Reachers' Handbook: Livestreaming on Facebook via Smartphones
 
 # How to livestream on facebook from android and iOS?
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Richard Bennett
 
  Mar 27, 2024• Proven solutions
 
  Facebook has recently launched a live feature which would allow the users to broadcast the important moments of their live to a large audience. The live feature on Facebook would allow you to reach out to the maximum number of audience who would be able to watch your videos live on Facebook. Every time you go live on Facebook your followers will be receiving notifications so that tune in to your broadcast just on time. There are loads of filters which you can apply to make your videos even more engaging.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Steps to go live using Facebook for Android and iOS
 
  1\. The first thing you need to do is log on to your Facebook account and click the **'whats on your mind'** button right above the Newsfeed icon on the FB app.
 
 ![News Feed ](https://images.wondershare.com/filmora/article-images/news-feed.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  2\. Now click the **‘Live Video’** button which comes in the shape of a person icon with a broadcast sign on the head. If you are using iOS then tap on **‘Live Video’**.
 
  3\. In the 3rd step you are required to type a brief description of the video you are posting. (However this is optional).
 
 ![optional description ](https://images.wondershare.com/filmora/article-images/optional-description.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  4\. Now you need to select an audience for your video- you can make it public, friends or customize your audience.
 
 ![audience ](https://images.wondershare.com/filmora/article-images/audience.jpg)
@@ -47,6 +77,12 @@ thumbnail: https://thmb.techidaily.com/71ccc2fedcffdaa9357153f28278ee3778285e29e
 
 ![broadcast ](https://images.wondershare.com/filmora/article-images/broadcast.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115942/19272" target="_top" id="2115942">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115942" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115942/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  6\. While streaming you will see a **‘Live’** button in red colour right on top. Clicking on this button would allow you to see the length of your broadcast. Just below this you will be seeing the comments from your viewers.
 
  7\. The camera can be changed with the help of the switch button on the top right.
@@ -156,6 +192,3 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
