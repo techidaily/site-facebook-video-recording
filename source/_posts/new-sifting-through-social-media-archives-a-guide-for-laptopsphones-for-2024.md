@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Sifting Through Social Media Archives  A Guide for Laptops/Phones for 2024\""
-date: 2024-09-07T06:45:12.226Z
-updated: 2024-09-08T06:45:12.226Z
+date: 2024-09-08T09:23:46.641Z
+updated: 2024-09-12T19:38:13.488Z
 tags:
   - ai video
   - ai facebook
@@ -21,12 +21,6 @@ thumbnail: https://thmb.techidaily.com/19d1e1f9a7e016bed2849100cf93d86788ddae5b2
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Liza Brown
 
  Mar 27, 2024• Proven solutions
@@ -44,11 +38,12 @@ Facebook has a complex interface, but it will be much easier to navigate it once
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 1: How to View Old Stories on iPhone/Android Facebook App?
 
 Facebook mobile application is one of the convenient ways of using it as it has a user-friendly interface. You can quickly post stories through the Facebook mobile app and interact with your friends. Here is how you can view old stories on a mobile app:
@@ -68,11 +63,12 @@ By clicking on the **More option**, you will see a few more options appear. Clic
 On the story archive option, you will see three dots on the top right option. It provides you with a choice to save stories or not. You can turn on the save archives option to save every story you post so that you can view it later.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 2: How to View Stories on Facebook Desktop?
 
 You can use Facebook on your desktop; it is feasible to use it on a desktop when you are using it for professional purposes such as blogging or business. It is possible to view old Facebook stories through desktop also; here is how:
@@ -88,11 +84,18 @@ Once you click on the story archive, all your **old stories** will appear in seq
 **Note:** You can only view stories through the above process if you have turned on your story archive option. Click on settings to turn it on or off as per your choice.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120864/26400?prodsku=Mercury" target="_top" id="2120864">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120864/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 3: How to View A Friend’s Old Facebook Story?
 
 It is nearly impossible to view your friend’s story once it has disappeared. You cannot watch the stories even if they are achieved. However, there is one way to view old stories of your friends. Here is how:
@@ -111,6 +114,13 @@ People make a **series of highlights** and name them accordingly. If the story i
 
 **Note:** A person or a user has to click on the star highlight sign to save stories for the future. If they do not select the highlight option, stories will disappear after 24 hours, and there is no way to view them in the future. Hence, this option is only applicable when a user has saved their stories for public view.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4: How to Save Posts from Your Stories Archive to Your Device?
 
 We tend not to save stories to our devices when clicking them directly from the Facebook app. However, you can save a post to your device from the stories archive using simple steps. Let's see how to do it:
@@ -128,11 +138,12 @@ After visiting the story archive, click on the story you wish to save. Click on 
 After you click three dots, you will see a save and delete photo option. Click on the **save option** to download it to your device.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123468/16836" target="_top" id="2123468">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123468" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123468/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 5: How to See Old Stories on a Facebook Business Page?
 
 Facebook business pages help in enhancing business significantly, primarily if you use story features for customer interaction. If you want to keep track of old stories, you can use the following method:
@@ -156,57 +167,17 @@ Facebook is an excellent platform to interact with your audience, and the story 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
-
-<span class="atpl-alsoreadstyle">Also read:</span>
-<div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-5-top-link-minimizers-transforming-youtube-watchability/"><u>[New] 2024 Approved  5-Top Link Minimizers Transforming YouTube Watchability</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-enhancing-click-through-high-roi-strategies-for-fb-animatons/"><u>[New] 2024 Approved  Enhancing Click-Through  High-ROI Strategies for FB Animatons</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-reddit-poster-canvas-ratio/"><u>[New] 2024 Approved  Reddit Poster Canvas Ratio</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-the-pros-playbook-blurring-the-boundary-between-work-and-home-spaces/"><u>[New] 2024 Approved  The Pro's Playbook  Blurring the Boundary Between Work and Home Spaces</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-unlocking-facebooks-full-potential-4-sharing-techniques/"><u>[New] 2024 Approved  Unlocking Facebook's Full Potential  4 Sharing Techniques</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-elite-7-film-downloader-apps/"><u>[New] Elite 7 Film Downloader Apps</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-facebook-security-breach-regain-account-with-ease/"><u>[New] In 2024, Facebook Security Breach? Regain Account with Ease</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-integrate-harmony-in-media-posts-facebooks-sound-guide/"><u>[New] In 2024, Integrate Harmony in Media Posts  Facebook's Sound Guide</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-mastering-facebook-broadcasts-android-and-ios-tips/"><u>[New] In 2024, Mastering Facebook Broadcasts  Android & iOS Tips</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-strategies-for-improving-youtubefacebook-video-quality/"><u>[New] Strategies for Improving YouTube/Facebook Video Quality</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-surviving-and-thriving-adapting-to-facebooks-algorithm-changes/"><u>[New] Surviving and Thriving  Adapting to Facebook's Algorithm Changes</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-the-hunt-for-hit-tunes-and-viral-videos-on-fb-for-2024/"><u>[New] The Hunt for Hit Tunes and Viral Videos on FB for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-top-tier-visual-data-vaults/"><u>[New] Top-Tier Visual Data Vaults</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-windowsmac-securely-download-facebook-media/"><u>[New] Windows/Mac  Securely Download Facebook Media</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-become-an-influencer-grow-by-a-thousand-on-instagrammonth-for-2024/"><u>[Updated] Become an Influencer  Grow by a Thousand on Instagram/Month for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-crossing-thresholds-in-ctas-anticipating-fb-ad-shifts/"><u>[Updated] Crossing Thresholds in CTAs  Anticipating FB Ad Shifts</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-fix-the-facebook-message-shows-its-you-in-this-video/"><u>[Updated] Fix the Facebook Message Shows It's You in This Video</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-secure-your-links-no-cost-high-efficiency-exporters-for-23-online/"><u>[Updated] In 2024, Secure Your Links  No-Cost, High-Efficiency Exporters for '23 Online</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-revive-your-iphone-ipad-and-macs-airdrop-functionality-with-quick-tips/"><u>[Updated] Revive Your iPhone, iPad & Mac's Airdrop Functionality with Quick Tips</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-revolutionize-facebook-ads-creative-video-tactics-revealed-for-2024/"><u>[Updated] Revolutionize Facebook Ads  Creative Video Tactics Revealed for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-enhance-your-digital-footprint-upload-tiktoks-on-twitter/"><u>2024 Approved  Enhance Your Digital Footprint  Upload TikToks on Twitter</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-exploring-the-leading-10-macwindows-srt-enhancers/"><u>2024 Approved  Exploring the Leading 10 Mac/Windows SRT Enhancers</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-smirk-spotlights-showcasing-7-comedic-content-pieces/"><u>2024 Approved  Smirk Spotlights  Showcasing 7 Comedic Content Pieces</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-unlocking-the-potential-of-bulk-tiktok-media-extraction/"><u>2024 Approved  Unlocking the Potential of Bulk TikTok Media Extraction</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-realme-c67-4g-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Realme C67 4G | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/digital-replay-engine-how-to-download-and-preserve-lives-for-2024/"><u>Digital Replay Engine  How to Download and Preserve Lives for 2024</u></a></li>
-<li><a href="https://techidaily.com/how-to-reset-tecno-spark-20-pro-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Tecno Spark 20 Pro without Losing Data | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-lava-yuva-2-pro-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Lava Yuva 2 Pro to Any iOS Devices | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-best-music-live-streaming-services/"><u>In 2024, Best Music Live Streaming Services</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-blocking-the-buzz-no-more-fb-video-ads/"><u>In 2024, Blocking the Buzz  No More FB Video Ads</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-fake-the-location-to-get-around-the-mlb-blackouts-on-tecno-spark-10-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Fake the Location to Get Around the MLB Blackouts on Tecno Spark 10 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-overcoming-obstacles-to-display-videos-prominently/"><u>In 2024, Overcoming Obstacles to Display Videos Prominently</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-the-essentials-of-making-professional-level-facebook-reels/"><u>In 2024, The Essentials of Making Professional-Level Facebook Reels</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/innovate-or-stagnate-the-must-know-fb-ad-trends-for-24/"><u>Innovate or Stagnate – The Must-Know FB Ad Trends for '24</u></a></li>
-<li><a href="https://review-topics.techidaily.com/recover-your-music-after-70-lite-5g-has-been-deleted-by-fonelab-android-recover-music/"><u>Recover your music after 70 Lite 5G has been deleted</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/sifting-through-social-media-archives-a-guide-for-laptopsphones/"><u>Sifting Through Social Media Archives  A Guide for Laptops/Phones</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/ultimate-guide-top-101-personal-profiles-on-facebook-for-2024/"><u>Ultimate Guide  Top 101 Personal Profiles on Facebook for 2024</u></a></li>
-</ul></div>
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -214,3 +185,19 @@ Follow @Liza Brown
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-tailored-approach-boosting-fans-via-page-ranking/"><u>[Updated] 2024 Approved Tailored Approach Boosting Fans via Page Ranking</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-revolutionize-your-online-presence-with-live-screenshares-for-2024/"><u>[Updated] Revolutionize Your Online Presence with Live Screenshares for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-directly-convert-facebook-videos-to-high-quality-mp3/"><u>2024 Approved Directly Convert Facebook Videos to High-Quality MP3</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-essential-tips-for-youtube-edits-with-sony-vegas/"><u>2024 Approved Essential Tips for YouTube Edits with Sony Vegas</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-from-recording-to-revelation-a-comprehensive-guide-to-360-videos-on-facebook/"><u>2024 Approved From Recording to Revelation A Comprehensive Guide to 360 Videos on Facebook</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/download-youtube-content-effortlessly-uncovering-the-top-3-strategies-for-saving-google-video-footage/"><u>Download YouTube Content Effortlessly: Uncovering the Top 3 Strategies for Saving Google Video Footage</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/fire-browser-excellence-premier-facebook-downloaders-and-addons-for-firefox/"><u>Fire-Browser Excellence Premier Facebook Downloaders & Addons for FireFox</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/here-are-different-ways-to-find-pokemon-go-trainer-codes-to-add-to-your-account-on-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>Here are Different Ways to Find Pokemon Go Trainer Codes to Add to Your Account On Apple iPhone 11 | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/how-to-fake-gps-on-android-without-mock-location-for-your-samsung-galaxy-m34-5g-drfone-by-drfone-virtual/"><u>How to Fake GPS on Android without Mock Location For your Samsung Galaxy M34 5G | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/professioneller-bildschirmaufzeichner-ideal-fur-windows-10-8-und-7-pcs-vollstandige-oder-selektive-aufnahmemodi/"><u>Professioneller Bildschirmaufzeichner: Ideal Für Windows 10, 8 Und 7 PCs - Vollständige Oder Selektive Aufnahmemodi</u></a></li>
+<li><a href="https://common-error.techidaily.com/resolve-windows-10-bluetooth-connectivity-problems-fast-and-simple/"><u>Resolve Windows 10 Bluetooth Connectivity Problems Fast and Simple</u></a></li>
+</ul></div>
+
