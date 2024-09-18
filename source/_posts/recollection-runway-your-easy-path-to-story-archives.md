@@ -1,7 +1,7 @@
 ---
 title: "\"Recollection Runway  Your Easy Path to Story Archives\""
-date: 2024-09-12T02:14:05.907Z
-updated: 2024-09-12T20:38:15.085Z
+date: 2024-09-15T04:14:36.671Z
+updated: 2024-09-18T06:32:07.080Z
 tags:
   - ai video
   - ai facebook
@@ -43,19 +43,6 @@ Facebook stories are a short generated collection of photos and videos that the 
 
 You can share the content on Facebook stories, which will appear at the top of the Facebook news feed. Also, if you are confused about how to view old stories on Facebook, users need to Tap on friends’ circle at the top area of the application, and while watching the story, one could also reply with a direct message feature.
 
-<!-- affiliate ads begin -->
-<span id="1982457">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How to See Old Facebook Stories on Desktop?
 
 Are you looking at how to see old stories on Facebook desktop? Let’s look at each step in detail:
@@ -66,29 +53,9 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 
 ![facebook old stories more](https://images.wondershare.com/filmora/article-images/2021/facebook-old-stories-more.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3:** Now just tap on the “Story Archive” option from the list.
 
 ![facebook story archive](https://images.wondershare.com/filmora/article-images/2021/facebook-story-archive.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1770526">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 4:** After this, you would be shown all the stories sequentially in the Story Archives section.
 
@@ -135,10 +102,10 @@ To attract more audience and gain more likes, comments all you need is a smart [
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Features:**
@@ -167,13 +134,6 @@ You can crop, trim, cut, split, and merge your video in a few clicks in Wondersh
 
 Also, you can add various text effects and add Lower 3rds and subtitles. It has nearly 300 filters, overlays, and elements embedded in Filmora that you can use for your Facebook video and make it look amazing.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Export and Share
 
 Once you are done with the video editing you need to do is to export and publish it on Facebook. You need to click on Export and you would get few saving options. You can save it to your smartphone or in .mp4 format and upload it to Facebook later. Wondershare Filmora let you share your video to platforms such YouTube, Vimeo, or burn it to the DVD collection.
@@ -191,10 +151,10 @@ Happy editing!
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -212,19 +172,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-techniques-for-tidying-up-image-backdrops/"><u>[New] 2024 Approved Techniques for Tidying Up Image Backdrops</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-how-to-combat-shake-in-visual-media/"><u>[New] How to Combat Shake in Visual Media</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-shine-a-light-the-12-ultimate-fixes-for-making-facebook-videos-visible-again/"><u>[New] In 2024, Shine a Light The 12 Ultimate Fixes for Making Facebook Videos Visible Again</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-building-a-powerful-community-of-insta-followers/"><u>[Updated] In 2024, Building a Powerful Community of Insta-Followers</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-pinnacle-microphone-selections-for-4k-camera-excellence/"><u>[Updated] In 2024, Pinnacle Microphone Selections for 4K Camera Excellence</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-the-intersection-of-law-copyright-and-media-on-platforms-like-fb/"><u>[Updated] In 2024, The Intersection of Law, Copyright, and Media on Platforms Like FB</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-the-2023-panorama-of-facebooks-micro-videos-insights-and-impact/"><u>[Updated] The 2023 Panorama of Facebook's Micro-Videos Insights and Impact</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/asias-top-3-lingual-heavyweights-filter-and-save/"><u>Asia's Top 3 Lingual Heavyweights: Filter & Save</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/get-your-hands-on-a-high-quality-156-ips-monitor-at-an-all-time-low-only-6599-save-big-today/"><u>Get Your Hands on a High-Quality 15.6 IPS Monitor at an All-Time Low: Only $65.99, Save Big Today!</u></a></li>
-<li><a href="https://win-answers.techidaily.com/how-to-resolve-the-camera-not-found-error-in-snap-app/"><u>How to Resolve the 'Camera Not Found' Error in Snap App</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-realme-12-proplus-5g-pin-codepattern-lockpassword-by-drfone-android/"><u>In 2024, How to Unlock Realme 12 Pro+ 5G PIN Code/Pattern Lock/Password</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-overcoming-uneven-sound-in-fb-video-playback/"><u>In 2024, Overcoming Uneven Sound in FB Video Playback</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-unveiling-the-best-of-facebooks-vid-scene/"><u>In 2024, Unveiling the Best of Facebook's Vid Scene</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/maximize-mobile-viewing-sharper-chromebook-and-phone-videos/"><u>Maximize Mobile Viewing Sharper Chromebook and Phone Videos</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-top-picks-of-firefox-tools-to-streamline-your-facebook-video-experience-2023/"><u>[New] 2024 Approved Top Picks of Firefox Tools to Streamline Your Facebook Video Experience, 2023</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-breaking-the-barrier-uploading-and-live-broadcasting-vids-to-fb/"><u>[New] In 2024, Breaking the Barrier Uploading and Live Broadcasting Vids to FB</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-the-art-and-science-of-fb-video-ads-unveiling-20-crucial-steps/"><u>[Updated] 2024 Approved The Art and Science of FB Video Ads Unveiling 20 Crucial Steps</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-exclusive-access-to-premium-playlists-on-mobile-devices/"><u>[Updated] Exclusive Access to Premium Playlists on Mobile Devices</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-from-concept-to-completion-building-effective-facebook-covers-for-2024/"><u>[Updated] From Concept to Completion Building Effective Facebook Covers for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-from-disparate-pixels-constructing-splendid-imagery-weaves/"><u>2024 Approved From Disparate Pixels Constructing Splendid Imagery Weaves</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-unlocking-the-power-of-music-in-engaging-video-content/"><u>2024 Approved Unlocking the Power of Music in Engaging Video Content</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/cataloging-fb-video-ratios/"><u>Cataloging FB Video Ratios</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/easy-installation-scansnap-software-updates-and-drivers-for-windows-get-set-up-quick/"><u>Easy Installation: ScanSnap Software Updates and Drivers for Windows - Get Set Up Quick</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/profit-strategies-in-youtube-marketing-for-2024/"><u>Profit Strategies in YouTube Marketing for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolved-how-to-fix-non-responsive-google-chrome-issues/"><u>Resolved: How to Fix Non-Responsive Google Chrome Issues</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshoot-and-resolve-your-windows-0x80cuase-070643-updating-or-installing-problems-easily/"><u>Troubleshoot & Resolve Your Windows 0X80cuase 070643 Updating or Installing Problems Easily!</u></a></li>
 </ul></div>
 

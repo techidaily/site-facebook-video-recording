@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  A Step-by-Step Approach to Ending Live Sharing on Laptops and Tablets\""
-date: 2024-09-10T18:03:08.838Z
-updated: 2024-09-13T12:18:38.317Z
+date: 2024-09-12T10:39:17.665Z
+updated: 2024-09-18T10:06:35.643Z
 tags:
   - ai video
   - ai facebook
@@ -36,13 +36,6 @@ A Facebook story will last for 24 hours. Once the 24 hours timeline is over, you
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 1: How to Delete A Photo or Video from Facebook Story?
 
 So, you can remove your Facebook story either by opening your Facebook account on your desktop browser or through your mobile app.
@@ -54,13 +47,6 @@ Let's begin with the mobile Facebook application:
 **Step 2:** Now, click on Your Story and click on the three dots that you see on the top. You will see a list of options; please click on the delete photo option to remove the story.
 
 ![delete Facebook Story from mobile](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-mobile.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Delete Facebook Story from Desktop**
 
@@ -74,21 +60,7 @@ Let's begin with the mobile Facebook application:
 
 ![delete Facebook Story from desktop](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-desktop.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 4:** Finally, click on the Delete option again, and you are done. This Facebook story is removed.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: How to Delete A Story from Facebook Story Archive?
 
@@ -99,19 +71,6 @@ If it is already enabled, follow these steps to delete the archived Facebook sto
 **Step 1:** Visit your Facebook account and click on your profile. On your profile, you will see three dots. Please click on the three dots. Once done, you will see a list of options; please click on the archive option.
 
 ![delete Facebook Story from desktop](https://images.wondershare.com/filmora/article-images/facebook-story-archive.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1374819">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 2**: Now, select the Story Archive option that you see on the top. This will show all the archived stories. Next, choose a story that you want to remove permanently. The story will appear. Click on the three dots, and then click on the delete option.
 
@@ -140,10 +99,10 @@ You can make your stories visible to your friends, customize the viewers, or kee
 ![  Facebook Story privacy option](https://images.wondershare.com/filmora/article-images/facebook-story-privacy-option.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 2:** Now, the privacy setting page will let you choose from- public, friends, and custom. You can hide your story from a few people as well. Choose the one that meets your requirement. Then, go back and share the story.
@@ -151,10 +110,10 @@ You can make your stories visible to your friends, customize the viewers, or kee
 ![  Facebook Story privacy  ](https://images.wondershare.com/filmora/article-images/facebook-story-privacy.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 5: How to Hide Facebook Story from Specific People?
@@ -165,14 +124,20 @@ Facebook has made sharing stories easy because of the multiple features it offer
 
 ![  Facebook Story hide from specific person  ](https://images.wondershare.com/filmora/article-images/hide-facebook-story-from-specific-people.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 2:** You will be shown the complete list of people you are connected with on Facebook. Select the people you don't want to share your stories with, and then click on done.
+
+<!-- affiliate ads begin -->
+<span id="1982485">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 6: How to Delete Someone Else's Story on Your Facebook?
 
@@ -203,18 +168,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-ace-applications-transforming-videos-for-tweet-for-2024/"><u>[New] Ace Applications Transforming Videos for Tweet for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-capture-action-the-complete-technique-for-adding-motion-blur-in-photos-for-2024/"><u>[New] Capture Action The Complete Technique for Adding Motion Blur in Photos for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-harness-the-power-of-storytelling-making-captivating-reels-on-facebook/"><u>[New] Harness the Power of Storytelling Making Captivating Reels on Facebook</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-fine-tuning-your-fb-videos-aspect-ratios-decoded-for-2024/"><u>[Updated] Fine-Tuning Your FB Videos Aspect Ratios Decoded for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-turn-fb-vids-into-savable-mp3-files/"><u>[Updated] Turn FB Vids Into Savable MP3 Files</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-experts-choice-best-action-cameras-for-winter-sports/"><u>2024 Approved Expert's Choice Best Action Cameras for Winter Sports</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-groundbreaking-strategies-30-innovative-facebook-moves/"><u>2024 Approved Groundbreaking Strategies 30 Innovative Facebook Moves</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-mastering-content-strategy-after-the-facebook-revamp/"><u>2024 Approved Mastering Content Strategy After the Facebook Revamp</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/facebook-broadcast-keepers-2023-for-2024/"><u>Facebook Broadcast Keepers 2023 for 2024</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-remove-a-previously-synced-google-account-from-your-tecno-spark-go-2023-by-drfone-android/"><u>How to Remove a Previously Synced Google Account from Your Tecno Spark Go (2023)</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-send-and-fake-live-location-on-facebook-messenger-of-your-nokia-130-music-drfone-by-drfone-virtual-android/"><u>How to Send and Fake Live Location on Facebook Messenger Of your Nokia 130 Music | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-6-with-an-apple-watch-and-what-to-do-if-it-doesnt-work-drfone-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 6 With an Apple Watch & What to Do if It Doesnt Work | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/trouble-with-apple-iphone-6s-swipe-up-try-these-11-solutions-by-drfone-ios/"><u>Trouble with Apple iPhone 6s Swipe-Up? Try These 11 Solutions</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-expert-curated-selection-of-best-ps3-simulators-pc-edition/"><u>[New] In 2024, Expert-Curated Selection of Best PS3 Simulators (PC Edition)</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-unlocking-facebooks-secrets-an-introductory-guide/"><u>[New] Unlocking Facebook's Secrets An Introductory Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-how-to-use-a-tripod-for-vlogging/"><u>[Updated] 2024 Approved How To Use a Tripod for Vlogging</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-crafting-powerful-hashtags-for-fb-brand-identity-for-2024/"><u>[Updated] Crafting Powerful Hashtags for FB Brand Identity for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-master-the-art-of-social-media-success-with-these-10-facebook-tips/"><u>2024 Approved Master the Art of Social Media Success with These 10 Facebook Tips</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-premiere-pros-best-practices-free-template-samples/"><u>2024 Approved Premiere Pro's Best Practices FREE Template Samples</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/ace-your-ai-dialogue-leveraging-the-best-github-resources-for-crafting-ideal-chatgpt-prompts/"><u>Ace Your AI Dialogue: Leveraging the Best GitHub Resources for Crafting Ideal ChatGPT Prompts</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-lenovo-t500-latest-drivers-and-update-with-ease/"><u>Download Lenovo T500 Latest Drivers and Update with Ease</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/enhancing-engagement-through-effective-video-strategies-on-fb-for-2024/"><u>Enhancing Engagement Through Effective Video Strategies on FB for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/locating-your-missing-facetime-images-a-guide-on-where-they-are-stored/"><u>Locating Your Missing FaceTime Images: A Guide on Where They Are Stored</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-learners-forum-at-bett-2022/"><u>Worldwide Learners' Forum at BETT 2022</u></a></li>
 </ul></div>
 

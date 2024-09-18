@@ -1,7 +1,7 @@
 ---
 title: How to Fix Phasmophobia VR Not Working
-date: 2024-09-07T06:45:17.818Z
-updated: 2024-09-08T06:45:17.818Z
+date: 2024-09-14T01:37:29.640Z
+updated: 2024-09-17T21:12:18.333Z
 tags:
   - win11
   - win10
@@ -17,26 +17,8 @@ thumbnail: https://thmb.techidaily.com/4d92bee2eba99f34da43a3826fc4e46ce3e4a6c22
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/03/zoom-cannot-start-video-1.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1982462">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Zoom cannot start video or no camera is detected? You’re not alone. There have been quite a lot of reports about the camera issue on Zoom. In this post, we’ll show you the 5 best ways to fix your dysfunctional camera on Zoom, whether it’s not working, not detected or has poor quality.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Try these fixes
 
  Here are 5 methods for you to troubleshoot the Zoom cannot start video error. You don’t have to try them all. Simply work from the top down until you find the one that does the trick.
@@ -55,22 +37,10 @@ thumbnail: https://thmb.techidaily.com/4d92bee2eba99f34da43a3826fc4e46ce3e4a6c22
 2. Select**Privacy** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/1-2-3.jpg)
 3. Click **Camera** on the left pane. Then, click the **Change** button and turn on the Camera access for this device.  
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/1-3-3.jpg)
 4. **Toggle on** the button under Allow apps to access your camera.  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/1-4-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Once applying the changes, you can relaunch Zoom and see if the camera is able to work correctly. If not, check out the next fix below.
 
 ### Fix 2 – Close other programs that use the camera
@@ -84,12 +54,6 @@ thumbnail: https://thmb.techidaily.com/4d92bee2eba99f34da43a3826fc4e46ce3e4a6c22
 
  Restart Zoom and test. If the error reoccurs, continue to the next solution.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Fix 3 – Adjust the Zoom settings
 
  If you’ve constantly disconnected and reconnected your camera, the Zoom’s settings may be messed up. To ensure your camera is correctly selected, you should check the app settings. Here is how.
@@ -98,21 +62,16 @@ thumbnail: https://thmb.techidaily.com/4d92bee2eba99f34da43a3826fc4e46ce3e4a6c22
 2. Click the**gear icon** at the top right corner.  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/2-6.jpg)
 3. Select the**Video** tab. Then choose the correct camera from the drop-down menu.
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115908/19272" target="_top" id="2115908">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115908" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115908/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Check if the Zoom video issue is solved now. If not, there are two more fixes to try.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Fix 4 – Update your camera driver
 
  If the camera driver on your PC is faulty or outdated, you may encounter the Zoom cannot start video issue. To keep your camera working at the best performance, you should update its driver to the latest.
@@ -131,16 +90,17 @@ thumbnail: https://thmb.techidaily.com/4d92bee2eba99f34da43a3826fc4e46ce3e4a6c22
  Or click**Update All** to automatically download and install the correct version of all the drivers that are missing or out of date on your system (this requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you‘ll be prompted to upgrade when you click**Update All** ).  
 ![](https://images.drivereasy.com/wp-content/uploads/2021/04/update-webcam-driver-driver-easy.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **The Pro version of Driver Easy** comes with full technical support.  
  If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
 
  A driver update can well tackle various types of camera issues. But if this doesn’t help your case, try the last method.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Fix 5 – Reinstall Zoom
 
@@ -149,14 +109,16 @@ thumbnail: https://thmb.techidaily.com/4d92bee2eba99f34da43a3826fc4e46ce3e4a6c22
 1. On your keyboard, press the**Windows logo key** and R to invoke the Run box. Type in**appwiz.cpl** in the field and click**OK** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2021/02/6-1.jpg)
 2. Scroll to locate Zoom. Right-click it and click**Uninstall** .  
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2021/02/6-2.jpg)
 3. After the app is completely uninstalled, you can go to **[Zoom’s official website](https://zoom.us/download)**  and download the latest client.
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 See if the newly installed restore its camera functionality.
 
@@ -173,8 +135,6 @@ See if the newly installed restore its camera functionality.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -184,47 +144,14 @@ See if the newly installed restore its camera functionality.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-best-practices-in-embedding-real-time-videos-from-fb/"><u>[New] 2024 Approved  Best Practices in Embedding Real-Time Videos From FB</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-essential-steps-for-fb-file-transfers-on-linux-mac/"><u>[New] 2024 Approved  Essential Steps for FB File Transfers on Linux, Mac</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-how-to-delete-facebook-story/"><u>[New] 2024 Approved  How to Delete Facebook Story?</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-expertly-navigating-the-world-of-audio-recording-gear-apple-specific-for-2024/"><u>[New] Expertly Navigating the World of Audio Recording Gear (Apple-Specific) for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-facebooks-top-additions-for-savvy-users-unveiled/"><u>[New] Facebook's Top Additions for Savvy Users Unveiled</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-a-closer-look-at-facebooks-video-transformation/"><u>[New] In 2024, A Closer Look at Facebook’s Video Transformation</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-automatic-youtube-video-transition-tips-for-facebook-users/"><u>[New] In 2024, Automatic YouTube Video Transition Tips for Facebook Users</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-boosting-your-presence-on-fb-with-virality-techniques/"><u>[New] In 2024, Boosting Your Presence on FB with Virality Techniques</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-crafting-an-irresistible-brand-image-on-your-fb-page/"><u>[New] In 2024, Crafting an Irresistible Brand Image on Your FB Page</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-interactive-link-integration-for-instagram-users/"><u>[New] In 2024, Interactive Link Integration for Instagram Users</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-simplifying-the-process-of-finding-facebook-watch-history-for-2024/"><u>[New] Simplifying the Process of Finding Facebook Watch History for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-discover-free-pioneering-apps-to-supercharge-social-storytelling/"><u>[Updated] 2024 Approved  Discover FREE Pioneering Apps to Supercharge Social Storytelling</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-finding-the-perfect-dj-template-video-download-for-your-events/"><u>[Updated] 2024 Approved  Finding the Perfect DJ Template Video Download for Your Events</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-growth-and-profitability-in-the-digital-marketplace-explore-these-top-15-facebook-insights/"><u>[Updated] 2024 Approved  Growth & Profitability in the Digital Marketplace  Explore These Top 15 Facebook Insights</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-innovative-fb-video-editors-for-high-impact-advertising-campaigns/"><u>[Updated] 2024 Approved  Innovative Fb Video Editors for High-Impact Advertising Campaigns</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-launch-your-channel-8-entry-level-digital-course-series/"><u>[Updated] 2024 Approved  Launch Your Channel  8 Entry-Level Digital Course Series</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-mastering-top-faces-essential-fb-videos/"><u>[Updated] 2024 Approved  Mastering Top Faces  Essential FB Videos</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-thriving-financially-with-successful-facebook-video-advertising-tactics/"><u>[Updated] 2024 Approved  Thriving Financially with Successful Facebook Video Advertising Tactics</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-behind-the-scenes-navigating-multiple-viewpoints-on-facebook-live-for-2024/"><u>[Updated] Behind the Scenes  Navigating Multiple Viewpoints on Facebook Live for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-best-camera-lenses-for-youtube-for-2024/"><u>[Updated] Best Camera Lenses for YouTube for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-digest-this-top-tiktok-gastronomic-gems-for-2024/"><u>[Updated] Digest This  Top #Tiktok Gastronomic Gems for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-elevate-your-gameplay-stream-xbox-seamlessly-to-facebook-for-2024/"><u>[Updated] Elevate Your Gameplay  Stream Xbox Seamlessly to Facebook for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-filming-in-circle-iphone-techniques-for-facebook-integration-for-2024/"><u>[Updated] Filming in Circle  IPhone Techniques for Facebook Integration for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-perfecting-sound-integrating-music-into-vimeo-video-projects/"><u>[Updated] In 2024, Perfecting Sound  Integrating Music Into Vimeo Video Projects</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-screen-grab-mastery-for-windows-users-3-techniques/"><u>[Updated] In 2024, Screen Grab Mastery for Windows Users (3 Techniques)</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-optimize-your-video-consumption-the-guide-to-auto-play-youtube-on-facebook/"><u>[Updated] Optimize Your Video Consumption  The Guide to Auto-Play Youtube on Facebook</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-perfect-pairings-of-sound-and-sight-on-social-platforms/"><u>[Updated] Perfect Pairings of Sound and Sight on Social Platforms</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-top-tier-mp4-director-for-facebook/"><u>[Updated] Top-Tier MP4 Director for Facebook</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-elevate-your-gaming-experience-mastering-steam-recordings/"><u>2024 Approved  Elevate Your Gaming Experience - Mastering Steam Recordings</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-top-8-steps-to-make-your-instagram-unboxing-reels-viral/"><u>2024 Approved  Top 8 Steps to Make Your Instagram Unboxing Reels Viral</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/dialogue-dynamics-secrets-to-great-screenwriting/"><u>Dialogue Dynamics  Secrets to Great Screenwriting</u></a></li>
-<li><a href="https://techtrends.techidaily.com/discover-the-best-8-websites-to-track-down-individuals-instantly/"><u>Discover the Best 8 Websites to Track Down Individuals Instantly</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-samsung-galaxy-a54-5g-device-sim-by-drfone-android/"><u>Easily Unlock Your Samsung Galaxy A54 5G Device SIM</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/how-chatgpts-real-time-data-retrieval-transforms-the-information-landscape/"><u>How ChatGPT's Real-Time Data Retrieval Transforms the Information Landscape</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-building-brands-through-memes/"><u>In 2024, Building Brands Through Memes</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-cease-non-filtered-youtube-video-trail/"><u>In 2024, Cease Non-Filtered YouTube Video Trail</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/in-2024-eliminating-frame-drops-in-obs-broadcasts/"><u>In 2024, Eliminating Frame Drops in OBS Broadcasts</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-honor-magic-6-prowithwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Honor Magic 6 Prowith/without a PC</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-tecno-spark-20c-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Tecno Spark 20C? | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-smart-shopping-top-6-low-cost-action-cams-under-100/"><u>In 2024, Smart Shopping  Top 6 Low-Cost ACTION Cams Under $100</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-the-social-media-synergy-twitters-most-shared-tiktoks/"><u>In 2024, The Social Media Synergy  Twitter’s Most Shared TikToks</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/mastering-fb-slideshows-for-content-sharing/"><u>Mastering FB Slideshows for Content Sharing</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/social-networking-101-registering-with-facebook-for-2024/"><u>Social Networking 101  Registering with Facebook for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-discovering-the-future-of-broadcast-roku-and-facebook-live-for-2024/"><u>[New] Discovering the Future of Broadcast Roku & Facebook LIVE for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-the-progression-of-vegaspro-through-its-2019-updates/"><u>[Updated] 2024 Approved The Progression of VegasPro Through Its 2019 Updates</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-epicentertainment-eyeview/"><u>[Updated] EpicEntertainment EyeView</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-with-location-spoofer-on-motorola-edge-40-neo-drfone-by-drfone-virtual-android/"><u>In 2024, How To Simulate GPS Movement With Location Spoofer On Motorola Edge 40 Neo? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-unlock-software-for-samsung-galaxy-f15-5g-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>In 2024, The Best Android Unlock Software For Samsung Galaxy F15 5G Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-top-5-tools-for-fb-video-retrieval-made-simple/"><u>In 2024, Top 5 Tools for FB Video Retrieval Made Simple</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/is-fake-gps-location-spoofer-a-good-choice-on-samsung-galaxy-s23plus-drfone-by-drfone-virtual-android/"><u>Is Fake GPS Location Spoofer a Good Choice On Samsung Galaxy S23+? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/most-shared-moments-socials-star-vids-for-2024/"><u>Most Shared Moments Social's Star Vids for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/top-20-strategies-for-effective-facebook-video-campaigns-for-2024/"><u>Top 20 Strategies for Effective Facebook Video Campaigns for 2024</u></a></li>
 </ul></div>
+

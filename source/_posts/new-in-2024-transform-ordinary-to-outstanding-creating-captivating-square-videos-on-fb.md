@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Transform Ordinary to Outstanding  Creating Captivating Square Videos on FB\""
-date: 2024-09-08T10:31:14.516Z
-updated: 2024-09-12T19:19:35.063Z
+date: 2024-09-11T16:55:40.363Z
+updated: 2024-09-17T16:36:06.199Z
 tags:
   - ai video
   - ai facebook
@@ -75,38 +75,17 @@ First of all, you need to install the software on your Windows/Mac computer and 
 
 ![tupi](https://images.wondershare.com/filmora/article-images/import-video-filmora.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 2: Crop the video**
 
 You got to right click on the selected video and then select ‘Crop & Zoom’ from the dropdown list.
 
 ![crop and zoom](https://images.wondershare.com/filmora/article-images/crop-and-zoom.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135474/26400" target="_top" id="2135474">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135474" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135474/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3: Open the edit panel**
 
 Now, on the edit panel hit the ‘Crop Clip’ button and select 1:1 from the bottom. The square video area can be adjusted from the preview window.
 
 ![edit panel](https://images.wondershare.com/filmora/article-images/crop-zoom-panel.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 4: Save changes and export**
 
@@ -115,26 +94,6 @@ Here, you need to press ‘OK’ and export the file to your computer. Later you
 ![export video](https://images.wondershare.com/filmora/article-images/export-video-filmora.JPG)
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 4: How to create square videos by Adobe Premiere
 
@@ -148,18 +107,18 @@ First you need to import video to Premiere Pro. Go to File > Import, and then se
 
 ![import video premiere](https://images.wondershare.com/filmora/article-images/import-video-premiere.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2：Sequence settings**
 
 Click Sequence in the top, and then select Sequence Settings. First to seclect ARRI Cinema to activiate the settings. In the video area, adjust the frame size. You need to keep horizontal and vertical number the same in order to create square video. Here, we adjsut it to 600\. Leave the rest options the same. Click OK.
 
 ![Sequence settings](https://images.wondershare.com/filmora/article-images/sequence-setting.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 3：Export**
 
@@ -176,10 +135,10 @@ From the above article, we are sure that square videos on Facebook are significa
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -197,17 +156,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-dslr-mastery-broadcasting-with-facebook-live-via-computer/"><u>[New] 2024 Approved DSLR Mastery Broadcasting with Facebook Live via Computer</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-mastering-waveform-overlaps-the-crossfade-method/"><u>[New] Mastering Waveform Overlaps The Crossfade Method</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-optimize-your-workday-with-io-screen-capture-expertise/"><u>[New] Optimize Your Workday with IO Screen Capture Expertise</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-swiftly-remove-live-videos-on-social-platforms/"><u>[New] Swiftly Remove Live Videos on Social Platforms</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-unlock-crystal-clear-facebook-video-on-android-for-2024/"><u>[New] Unlock Crystal-Clear Facebook Video on Android for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-capture-and-share-immedienas-unprecedented-journey-with-dslr-and-facebook-live-for-2024/"><u>[Updated] Capture and Share Immedienas Unprecedented Journey with DSLR & Facebook LIVE for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-basic-tips-how-to-record-and-save-google-voice-calls/"><u>[Updated] In 2024, Basic Tips How to Record and Save Google Voice Calls</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-uniting-social-media-and-television-with-fb-live-for-2024/"><u>[Updated] Uniting Social Media & Television with FB Live for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/2024-approved-best-online-hubs-capturing-sky-in-high-dynamic-range/"><u>2024 Approved Best Online Hubs Capturing Sky in High Dynamic Range</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/experience-the-joyride-with-ddpai-mini3-a-fresh-take-on-dashcam-reviews/"><u>Experience the Joyride with DDpai Mini3 – A Fresh Take on Dashcam Reviews!</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-frp-on-vivo-y200-by-drfone-android/"><u>How to Bypass FRP on Vivo Y200?</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-chromebook-screenshots-made-easy-top-5-app-choices/"><u>In 2024, Chromebook Screenshots Made Easy Top 5 App Choices</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-the-ultimate-guide-shifting-your-profile-picture-on-global-platforms/"><u>[New] 2024 Approved The Ultimate Guide Shifting Your Profile Picture on Global Platforms</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-top-choice-for-fb-vids-mp4-download-toolkit/"><u>[Updated] In 2024, Top Choice for FB Vids – MP4 Download Toolkit</u></a></li>
+<li><a href="https://discover-hacks.techidaily.com/1726226072680-10/"><u>10 가지 위젯리: 그린 스크린 없이 비디오에서 배경을 제거하는 최고의 방법</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-honor-magic-vs-2-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Honor Magic Vs 2 | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/discovery-unearthing-the-best-videos-from-fbs-sphere/"><u>Discovery Unearthing the Best Videos From FB's Sphere</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/everything-you-need-to-know-about-lock-screen-settings-on-your-vivo-s18-by-drfone-android/"><u>Everything You Need to Know about Lock Screen Settings on your Vivo S18</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-complete-fixes-to-solve-iphone-12-pro-max-randomly-asking-for-apple-id-password-by-drfone-ios/"><u>In 2024, Complete Fixes To Solve iPhone 12 Pro Max Randomly Asking for Apple ID Password</u></a></li>
+<li><a href="https://games-able.techidaily.com/innovative-solutions-to-beat-the-overheating-issue-on-steam-devices/"><u>Innovative Solutions to Beat the Overheating Issue on Steam Devices</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-call-logs-from-realme-12plus-5g-by-fonelab-android-recover-call-logs/"><u>Possible solutions to restore deleted call logs from Realme 12+ 5G</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/rekindling-relics-of-facebook-tales-step-by-device-step/"><u>Rekindling Relics of Facebook Tales Step by Device Step</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/transformador-digital-av-cambiar-mp4-por-aac-o-aac-para-mp4/"><u>Transformador Digital AV: Cambiar MP4 Por AAC O AAC Para MP4</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/unlock-high-definition-pics-effective-no-cost-tactics-for-2024/"><u>Unlock High Definition Pics Effective, No-Cost Tactics for 2024</u></a></li>
 </ul></div>
 
