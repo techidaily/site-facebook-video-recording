@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Break Free the Chuckles  Ranking 20 Hilarious FB Detention Scenes\""
-date: 2024-09-15T00:22:40.571Z
-updated: 2024-09-18T10:59:56.059Z
+date: 2024-09-19T23:06:47.741Z
+updated: 2024-09-23T02:01:22.757Z
 tags:
   - ai video
   - ai facebook
@@ -62,6 +62,13 @@ When you’re released from Facebook jail knowing you haven’t been rehabilitat
 
 ![fresh outa facebook jail](https://images.wondershare.com/filmora/article-images/2021/fresh-outa-facebook-jail.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 This was me - Fresh out of Facebook jail in this morning!
 
 #### 4\. Finally Out of FB Jail
@@ -80,6 +87,13 @@ After having been through a hard time in Facebook jail, what your comment sectio
 
 ![funny gary outta fb jail](https://images.wondershare.com/filmora/article-images/2021/funny-gary-outta-fb-jail.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972665/19272" target="_top" id="1972665">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972665" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972665/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 This is how Funny Gary Out of Facebook Jail.
 
 #### 7\. Come Back from FB Jail
@@ -92,6 +106,13 @@ How did I come back from Facebook jail and look for the MF that reported me.
 
 ![back from fb jail](https://images.wondershare.com/filmora/article-images/2021/back-from-fb-jail.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 I am bacccck from Facebook jail. Fantastic!!!
 
 #### 9\. Out of FB Jail 15th Time
@@ -103,6 +124,13 @@ Now that I am outa Facebook jail for the 15th time. What type of mischief shall 
 #### 10\. Outa FB Jail and Play
 
 ![outa facebook jail play](https://images.wondershare.com/filmora/article-images/2021/outa-facebook-jail-play.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Out of Facebook Jail!!! Let’s play bitches!
 
@@ -122,19 +150,33 @@ Also one of the best features of the Filmora meme generator is that it has a ver
 
 ![meme generator imgflip](https://images.wondershare.com/filmii/article-images/meme-generator-imgflip.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 This Facebook meme generator offers benefits such as adding customizable images and text, resizing/moving text boxes as desired, customized font options, outline colors, rotation, flipping, and many more. It also has so many colorful stickers to make your meme look creative. It gets operated in HTML canvas.
 
 #### 3\. Canva
 
 ![canva meme generator](https://images.wondershare.com/filmii/article-images/canva-meme-generator.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Canva's name is not at all unknown to anybody related to the designing field. It is an amazing online free tool helping as a Facebook meme generator too. It has so many templates available you just need to pick the right one for you and proceed. It is surely the best choice for funny Facebook memes and especially Facebook jail memes. You will get color/font options, resize, crop, flip, etc. options to create the best memes. Canva is a very user-friendly online tool and it has a very easy-to-use design which makes an overall creating experience very smooth.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: How to Make Your Facebook Jail Meme?
@@ -167,13 +209,6 @@ So once you go through this article you would realize that the funny Facebook me
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -189,20 +224,17 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2023-facebook-live-video-downloaders-for-2024/"><u>[New] 2023 Facebook Live Video Downloaders for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-capture-and-save-fb-videos-on-windows-mac/"><u>[New] 2024 Approved Capture and Save FB Videos on Windows, Mac</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-facebooks-essential-steps-smoothly-uploading-videos-via-pc-iosandroid/"><u>[New] In 2024, Facebook's Essential Steps Smoothly Uploading Videos via PC, iOS/Android</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-from-shopping-lists-to-viral-hauls-video-making-insights/"><u>[New] In 2024, From Shopping Lists to Viral Hauls Video Making Insights</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-sharing-content-video-posts-on-instagram-guide-for-2024/"><u>[New] Sharing Content Video Posts on Instagram Guide for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-social-sharing-simplified-uploading-immersive-mobile-photography-for-2024/"><u>[New] Social Sharing Simplified Uploading Immersive Mobile Photography for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-hack-the-system-avoid-video-ads-directly-on-fb-for-2024/"><u>[Updated] Hack the System Avoid Video Ads Directly on FB for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-understanding-absence-of-direct-messages/"><u>[Updated] Understanding Absence of Direct Messages</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-the-dark-side-of-digital-escapism/"><u>2024 Approved The Dark Side of Digital Escapism</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/chatgpt-text-summarization-when-accuracy-matters-should-you-trust-the-ai/"><u>ChatGPT Text Summarization: When Accuracy Matters, Should You Trust the AI?</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-3-ways-to-change-location-on-facebook-marketplace-for-motorola-moto-g34-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Change Location on Facebook Marketplace for Motorola Moto G34 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/in-2024-compact-movie-story-proposal/"><u>In 2024, Compact Movie Story Proposal</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/launch-your-own-fb-stream-on-pc-mac-and-laptop-using-obs-for-2024/"><u>Launch Your Own FB Stream on PC, Mac & Laptop Using OBS for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/transform-your-tone-and-texture-with-easy-snapchat-voice-tweaks/"><u>Transform Your Tone and Texture with Easy Snapchat Voice Tweaks</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/unforgettable-haunting-adventures-in-animation-the-ultimate-list-of-kid-friendly-halloween-movies/"><u>Unforgettable Haunting Adventures in Animation: The Ultimate List of Kid-Friendly Halloween Movies</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-enhancing-facebooks-instream-ad-reach-a-detailed-approach/"><u>[New] In 2024, Enhancing Facebook's Instream Ad Reach A Detailed Approach</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-get-the-most-out-of-your-content-facebooks-full-screen-tutorial-2023/"><u>[New] In 2024, Get the Most Out of Your Content Facebook's Full-Screen Tutorial 2023</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-leveraging-facebook-best-practices-for-360-videos/"><u>[New] Leveraging Facebook Best Practices for 360 Videos</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-ultimate-instagram-ringtone-making-manual/"><u>[New] The Ultimate Instagram Ringtone Making Manual</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-real-time-streaming-on-facebook-simplified-2023/"><u>[Updated] 2024 Approved Real-Time Streaming on Facebook, Simplified 2023</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-peak-performance-powerhouses-gadgets-galore/"><u>2024 Approved Peak Performance Powerhouses, Gadgets Galore</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/discover-the-first-asus-laptop-powered-by-intels-latest-lunar-lake-chips-meet-the-expertbook-p5/"><u>Discover the First ASUS Laptop Powered by Intel's Latest Lunar Lake Chips – Meet the ExpertBook P5</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-motorola-moto-e13-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos From Motorola Moto E13 to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-friendly-frenemies-top-social-vr-games/"><u>In 2024, Friendly Frenemies Top Social VR Games</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-tecno-spark-10c-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Tecno Spark 10C | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/top-6-essential-lite-videos-downloader-apps-for-facebook-for-2024/"><u>Top 6 Essential Lite Videos Downloader Apps for Facebook for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/unlock-the-secrets-of-facebook-live-a-beginners-manual/"><u>Unlock the Secrets of Facebook Live A Beginner's Manual</u></a></li>
 </ul></div>
 

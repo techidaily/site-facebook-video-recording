@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Mastering FB's Look Back Feature  Edit Tutorial\""
-date: 2024-09-13T06:07:00.142Z
-updated: 2024-09-17T21:49:23.196Z
+date: 2024-09-18T07:14:23.880Z
+updated: 2024-09-22T17:29:02.348Z
 tags:
   - ai video
   - ai facebook
@@ -48,6 +48,13 @@ thumbnail: https://thmb.techidaily.com/ab11097b735383eb1301c6c7953b6d3e90027241d
 * Enables you to upload the edit Look Back Video to Facebook instantly.
 * Burn Look Back video to a DVD as a special gift.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Easily Edit Facebook Look Back Video with Filmora
 
 #### 1. Download and import your Look Back video
@@ -56,11 +63,31 @@ thumbnail: https://thmb.techidaily.com/ab11097b735383eb1301c6c7953b6d3e90027241d
 
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/video-editor-interface.jpg "edit look back video")
 
+<!-- affiliate ads begin -->
+<span id="1770526">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 2. Add texts to the Look Back video
 
  To share the unforgettable moments in Look Back video, adding texts is a good idea. To do this, switch to Text tab and you'll see various texts templates on the left panel. Choose your favorite one and place it on the Timeline. Then the text thumbnail with a leading letter "T" will appear on the timeline. Double click it to type your texts in the box and select the font, color, animation, etc. Hit "Return" to confirm the settings and go back to the primary window.
 
 ![edit look back video](https://images.wondershare.com/topic/video-editing/add-titles.jpg "edit look back video")
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 3. Edit the audio of Look Back video
 
@@ -69,6 +96,13 @@ thumbnail: https://thmb.techidaily.com/ab11097b735383eb1301c6c7953b6d3e90027241d
  If you don't like the original background music of your Look Back video, just replace it and add a new one. To do this, right click the video and select the "Audio Detach" option. Then the background music will immediately be separated and appear on the music timeline. You can easily delete it and add a new one.
 
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/audio-detach.jpg "edit look back video")
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 4. Add more effects to your Look Back video
 
@@ -106,28 +140,16 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-leveraging-fb-livestream-for-post-produced-content-dissemination/"><u>[New] In 2024, Leveraging FB Livestream for Post-Produced Content Dissemination</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-peering-into-popularity-instagram-analytics-for-you-for-2024/"><u>[New] Peering Into Popularity Instagram Analytics for You for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-customize-your-social-media-screenscape/"><u>[Updated] 2024 Approved Customize Your Social Media Screenscape</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-storytelling-revolution-free-cross-platform-social-sensations/"><u>[Updated] 2024 Approved Storytelling Revolution FREE, Cross-Platform Social Sensations</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-free-top-8-apps-to-get-likes-on-facebook-android-and-iphone/"><u>[Updated] In 2024, FREE Top 8 Apps to Get Likes on Facebook (Android and iPhone)</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-maximizing-impact-with-a-triad-of-tailored-copywriting-methods/"><u>[Updated] In 2024, Maximizing Impact with a Triad of Tailored Copywriting Methods</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-superior-satire-picture-styler/"><u>[Updated] In 2024, Superior Satire Picture Styler</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-transform-fb-video-tunes-to-mp3/"><u>[Updated] In 2024, Transform Fb Video Tunes to MP3</u></a></li>
-<li><a href="https://fox-that.techidaily.com/best-practices-for-organizing-and-editing-photos-on-the-iphone-a-comprehensive-guide-to-solving-common-problems/"><u>Best Practices for Organizing & Editing Photos on the iPhone: A Comprehensive Guide to Solving Common Problems</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/essential-tools-for-educators-identifying-gpt-powered-content-created-by-students/"><u>Essential Tools for Educators: Identifying GPT-Powered Content Created by Students</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/exclusive-realms-for-artificial-intelligence-prompt-sharing/"><u>Exclusive Realms for Artificial Intelligence Prompt Sharing</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-old-music-from-your-honor-v-purse-by-fonelab-android-recover-music/"><u>How to recover old music from your Honor V Purse</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-how-to-fake-gps-on-android-without-mock-location-for-your-itel-p40-drfone-by-drfone-virtual/"><u>In 2024, How to Fake GPS on Android without Mock Location For your Itel P40 | Dr.fone</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-navigating-legal-boundaries-in-whatsapp-call-recordings/"><u>In 2024, Navigating Legal Boundaries in WhatsApp Call Recordings</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/the-best-android-unlock-software-for-samsung-galaxy-s23-fe-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>The Best Android Unlock Software For Samsung Galaxy S23 FE Device Top 5 Picks to Remove Android Locks</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/transform-your-video-cover-image-with-easy-steps/"><u>Transform Your Video Cover Image with Easy Steps</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-unlock-fb-videos-instant-mp4-format-conversion/"><u>[New] In 2024, Unlock FB Videos Instant MP4 Format Conversion</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-master-list-essential-6-fb-lite-downloads-for-2024/"><u>[New] Master List Essential 6 FB Lite Downloads for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-quick-fixes-to-address-delayed-stories-on-social-networks/"><u>[Updated] 2024 Approved Quick Fixes to Address Delayed Stories on Social Networks</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-unlimited-hd-videostreaming-on-your-device-for-2024/"><u>[Updated] Unlimited HD Videostreaming on Your Device for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/descargar-sonidos-del-video-sin-costo-guia-completa-para-acceso-gratuito/"><u>Descargar Sonidos Del Video Sin Costo: Guía Completa Para Acceso Gratuito</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-update-iphone-13-pro-without-losing-anything-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Update iPhone 13 Pro without Losing Anything? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/lost-footage-immediate-removal-impacts/"><u>Lost Footage Immediate Removal Impacts</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/nickelodeons-newest-sensation-the-american-debut-of-nickwatch-at-the-kids-choice-extravaganza/"><u>Nickelodeon's Newest Sensation: The American Debut of NickWatch at the Kids' Choice Extravaganza</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/perfect-methods-for-computer-based-vhs-artistic-touches-for-2024/"><u>Perfect Methods for Computer-Based VHS Artistic Touches for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-fake-gps-location-pro-and-is-it-good-on-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>What is Fake GPS Location Pro and Is It Good On Apple iPhone SE (2022)? | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/m4am4b-movavi/"><u>オンラインで無料のM4A・M4Bファイル変換 - Movavi</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

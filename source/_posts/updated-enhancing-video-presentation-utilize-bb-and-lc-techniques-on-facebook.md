@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Enhancing Video Presentation  Utilize BB and LC Techniques on Facebook\""
-date: 2024-09-12T08:31:02.508Z
-updated: 2024-09-17T18:01:05.242Z
+date: 2024-09-21T18:45:06.578Z
+updated: 2024-09-23T06:39:55.167Z
 tags:
   - ai video
   - ai facebook
@@ -45,6 +45,13 @@ This method is suitable for users whose source videos are not in square format (
 
 ![start-filmora9](https://images.wondershare.com/filmora/article-images/start-filmora9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * 2\. Go to **File**\-**Import Media** and import the source file to the Media library (let’s say it’s 1920\*1080 at 16:9)
 
 ![import-sample-video](https://images.wondershare.com/filmora/article-images/import-sample-video.jpg)
@@ -52,6 +59,13 @@ This method is suitable for users whose source videos are not in square format (
 * 3\. Drag and drop the source video to the timeline, and a black letterbox will be created automatically in the preview window, cause the source file didn’t match the 1:1 ratio you set for the project
 
 ![automatic-letterbox](https://images.wondershare.com/filmora/article-images/automatic-letterbox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * 4\. Add a subtitle under **Titles** tab to the letterbox at the top and bottom and custom the texts you want.
 
@@ -61,9 +75,23 @@ And you can also go to the **Elements** tab, and add some creative elements such
 
 ![add-emoji-elements](https://images.wondershare.com/filmora/article-images/add-emoji-elements.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
+  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * 5\. Export the square video to local computer in mp4 or other supported formats
 
 ![filmora9-export-panel](https://images.wondershare.com/filmora/article-images/filmora9-export-panel.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * 6\. Upload the exported square video to Facebook, and show how it looks like on Facebook.
 
@@ -86,9 +114,23 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 
 ![add-doll-subtitle](https://images.wondershare.com/filmora/article-images/add-doll-subtitle.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * 5\. You will see that the subtitle appears on the video in real time. Here you can adjust the width and height of the subtitle. Make it so that that black bar covers the lower end of the video completely and delete the text
 
 ![custom-letterbox](https://images.wondershare.com/filmora/article-images/custom-letterbox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * 6\. Drag and drop the subtitle again from the Titles-Subtitles option. This time for the top section of the video
 
@@ -102,27 +144,20 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 
 ![post-my-video](https://images.wondershare.com/filmora/article-images/post-my-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## To Sum up
 
 Adding a letterbox, then designing your own texts, elements and filters will bring great creativity to your video on Facebook. Creativity will connect people and you will create your own magic! Filmora now offers 2 effective ways to add a letterbox to any videos and a variety of attractive filters, overlays, and elements. This is why we recommend you all to try and use Filmora for all your editing needs. Here you go!
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -139,17 +174,16 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-avatar-abstraction-artistry-sculpting-your-playful-image/"><u>[Updated] 2024 Approved Avatar Abstraction Artistry Sculpting Your Playful Image</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-vlog-with-verve-following-in-the-footsteps-of-video-experts/"><u>[Updated] Vlog with Verve Following in the Footsteps of Video Experts</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-is-inshot-leading-video-cutting-tech-deep-insight-reviewed/"><u>2024 Approved Is InShot Leading Video Cutting Tech? Deep Insight Reviewed</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-stream-powerhouse-connect-twitch-to-facebook-followers/"><u>2024 Approved Stream Powerhouse Connect Twitch to Facebook Followers</u></a></li>
-<li><a href="https://location-fake.techidaily.com/all-must-knows-to-use-fake-gps-go-location-spoofer-on-google-pixel-7a-drfone-by-drfone-virtual-android/"><u>All Must-Knows to Use Fake GPS GO Location Spoofer On Google Pixel 7a | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/digital-diaries-blending-visuals-with-audio-threads/"><u>Digital Diaries Blending Visuals with Audio Threads</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-fix-corrupt-video-files-of-tecno-using-video-repair-utility-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>How to Fix corrupt video files of Tecno using Video Repair Utility on Windows?</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-3-ways-to-change-location-on-facebook-marketplace-for-tecno-spark-10-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Change Location on Facebook Marketplace for Tecno Spark 10 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-top-15-online-and-desktop-platforms-to-create-gifs/"><u>In 2024, Top 15 Online & Desktop Platforms to Create GIFs</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/innovative-approaches-to-social-media-video-making-for-2024/"><u>Innovative Approaches to Social Media Video Making for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/instant-access-to-fb-content-download-tips-and-tricks/"><u>Instant Access to Fb Content: Download Tips & Tricks</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/unlock-the-full-potential-of-snapshots-on-iphones/"><u>Unlock the Full Potential of Snapshots on iPhones</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-the-art-of-effective-online-engagement-on-fb/"><u>[New] 2024 Approved The Art of Effective Online Engagement on FB</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-perfect-your-podcast-sound-editing-techniques-in-garageband/"><u>[New] Perfect Your Podcast Sound Editing Techniques in GarageBand</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-team-harmony-and-efficiency-8-recommended-facebook-timers/"><u>[Updated] 2024 Approved Team Harmony and Efficiency 8 Recommended Facebook Timers</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-audience-expansion-with-immersive-360-videos-on-social-media-for-2024/"><u>[Updated] Audience Expansion with Immersive 360 Videos on Social Media for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-seamless-process-of-instagram-video-content/"><u>[Updated] Seamless Process of Instagram Video Content</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/vob-mp4-free-online-conversion-from-vob-to-mp4/"><u>「オンライン無償VOB-MP4変換サービス」 - Free Online Conversion From VOB to MP4</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-2023-how-to-find-videos-on-facebook/"><u>2024 Approved 2023 | How to Find Videos on Facebook?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/achieve-your-health-goals-on-a-budget-with-our-fitbit-versa-lite-review/"><u>Achieve Your Health Goals on a Budget with Our Fitbit Versa Lite Review</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/1723199739845-environmental-factors-can-affect-tool-accuracy-requiring-adjustments-to-maintenance-schedules/"><u>Environmental Factors Can Affect Tool Accuracy, Requiring Adjustments to Maintenance Schedules</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/iphone-12-backup-password-never-set-but-still-asking-heres-the-fix-by-drfone-ios/"><u>iPhone 12 Backup Password Never Set But Still Asking? Heres the Fix</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-honor-play-7t-drfone-by-drfone-virtual-android/"><u>Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Honor Play 7T | Dr.fone</u></a></li>
 </ul></div>
 

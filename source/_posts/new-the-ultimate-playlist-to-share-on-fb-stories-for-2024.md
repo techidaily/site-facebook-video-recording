@@ -1,7 +1,7 @@
 ---
 title: "[New] The Ultimate Playlist to Share on FB Stories for 2024"
-date: 2024-09-14T19:30:02.080Z
-updated: 2024-09-18T00:02:55.303Z
+date: 2024-09-19T16:16:22.259Z
+updated: 2024-09-23T00:59:56.190Z
 tags:
   - ai video
   - ai facebook
@@ -100,6 +100,13 @@ Double click on the audio file within the panel given on the top of the Filmora 
 
 ![edit FB music story  ](https://images.wondershare.com/filmora/article-images/edit-facebook-story-music-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  **Step 4: Export edited file**
 
 You can save the edited file. WMV or .MP4 formats by clicking on the export option on the top. You can rename the file before saving it.
@@ -113,10 +120,10 @@ _For more details about editing videos on Filmora, you can check [How to Edit Vi
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: How to Customize the Appearance of Your Facebook Story Song?
@@ -129,13 +136,6 @@ You can click on the play button after selecting the song, and it will appear in
 
 ![enable FB music story lyric  ](https://images.wondershare.com/filmora/article-images/enable-facebook-music-sticker-lyric-mode.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  **Step**  2: Change the color **and**   **add elements**
 
 Tap and hold the sticker; move your finger on the screen to place the sticker anywhere you like. You can also click on the rainbow-colored dot on the screen to change the background and lyrics color.
@@ -143,6 +143,13 @@ Tap and hold the sticker; move your finger on the screen to place the sticker an
 A user can also select elements from the given options. You can add a poll, emojis, and GIFs to interact with viewers. Click on done on the top right corner to post.
 
 ![edit FB music story lyric  ](https://images.wondershare.com/filmora/article-images/edit-facebook-music-sticker-color-elements.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## FAQs About Adding Music to Facebook Story
 
@@ -154,11 +161,31 @@ Yes, you can add a story on Facebook from your computer. Click on create a story
 
 There are a few ways to fix the music sticker issue if it is not popping up in your stories. One of the easiest ways to do it is to go to the Apple Store or Play Store and search for Facebook. If you see an update sign, click on it; updating the app might solve the issue. You can also delete and reinstall the app to tackle the problem.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Conclusion**
 
 Facebook story feature is one of the best options that one can use to gain visibility and increase interaction. Everyone should know how to add music to Facebook story as it makes the viewer focus more on your story content. We are sure you must have learned how to add music to enhance your stories.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1484963">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -175,17 +202,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-the-digital-archivists-toolkit-downloading-videos-from-messenger/"><u>[New] 2024 Approved The Digital Archivist's Toolkit Downloading Videos From Messenger</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-top-6-facebook-lite-video-downloaders/"><u>[New] Top 6 Facebook Lite Video Downloaders</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-master-the-art-of-streamlined-screen-recordings-on-mac/"><u>[Updated] 2024 Approved Master the Art of Streamlined Screen Recordings on Mac</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-sound-on-call-sensor-iphone-24-tech/"><u>[Updated] Sound-on-Call Sensor IPhone '24 Tech</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/best-strategies-and-hacks-mastering-subway-surfers-top-10-ways/"><u>Best Strategies & Hacks: Mastering 'Subway Surfers' Top 10 Ways</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/essential-techniques-for-sizing-up-your-instagram-video-reach/"><u>Essential Techniques for Sizing Up Your Instagram Video Reach</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/how-efficient-is-chatgpt-in-serving-as-a-proofreading-companeback/"><u>How Efficient Is ChatGPT in Serving as a Proofreading Companeback?</u></a></li>
-<li><a href="https://driver-error.techidaily.com/how-to-make-unseen-seagate-hd-show-up-in-win11/"><u>How To Make Unseen Seagate HD Show Up in Win11</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-elevating-social-media-interaction-via-fb-story-links/"><u>In 2024, Elevating Social Media Interaction via FB Story Links</u></a></li>
-<li><a href="https://fox-that.techidaily.com/overcome-iphoneipad-wireless-connection-woes-with-these-easy-to-follow-steps-8-in-total/"><u>Overcome iPhone/iPad Wireless Connection Woes with These Easy-to-Follow Steps (8 in Total)</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-oxford-3000-learn-the-most-important-words-in-english/"><u>The Oxford 3000: Learn the Most Important Words in English</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/turbocharge-video-on-snapchat-new-users-edition/"><u>Turbocharge Video on Snapchat New Users Edition</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-mastering-video-posts-on-the-worlds-biggest-social-network/"><u>[New] 2024 Approved Mastering Video Posts on the World's Biggest Social Network</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-top-vr-content-developers-you-should-know/"><u>[New] 2024 Approved Top VR Content Developers You Should Know</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-revolutionize-your-teams-productivity-with-these-tools-for-2024/"><u>[New] Revolutionize Your Team's Productivity with These Tools for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-rhythms-unlocked-fb-downloads-galore-for-2024/"><u>[New] Rhythms Unlocked FB Downloads Galore for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-surprise-your-friends-with-these-unheard-memes/"><u>[New] Surprise Your Friends with These Unheard Memes</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-technicality-of-srgb-vs-rgb/"><u>[New] The Technicality of Srgb vs Rgb</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-quickest-photo-scanner-in-windows-land/"><u>[Updated] 2024 Approved Quickest Photo Scanner in Windows Land</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-essential-audio-tools-free-superior-dj-templates-online-for-2024/"><u>[Updated] Essential Audio Tools Free, Superior DJ Templates Online for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-comparative-analysis-of-fb-video-formats/"><u>[Updated] In 2024, Comparative Analysis of FB Video Formats</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-dive-into-fb-360-videos-recording-and-sharing-secrets/"><u>[Updated] In 2024, Dive Into FB 360 Videos Recording and Sharing Secrets</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-expert-advice-on-achieving-high-quality-gopro-videos/"><u>[Updated] In 2024, Expert Advice on Achieving High-Quality GoPro Videos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-immerse-in-world-heritage-through-vr/"><u>[Updated] In 2024, Immerse in World Heritage Through VR</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-quick-fixes-top-6-fb-lite-video-tools/"><u>[Updated] Quick Fixes TOP 6 FB Lite Video Tools</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-foremost-8-titans-of-4k-blu-ray-technology/"><u>2024 Approved Foremost 8 Titans of 4K Blu-Ray Technology</u></a></li>
+<li><a href="https://win11.techidaily.com/fixing-source-disk-unreadable-issue-in-windows-systems/"><u>Fixing Source Disk Unreadable Issue in Windows Systems</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/key-cinematic-works-to-learn-and-love-the-danish-tongue/"><u>Key Cinematic Works to Learn and Love the Danish Tongue</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/mastering-the-art-of-making-dormant-facebook-vids-pop-up-again/"><u>Mastering the Art of Making Dormant Facebook Vids Pop Up Again</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/shush-windows-11-explore-tabs-step-by-step/"><u>Shush Windows 11 Explore Tabs: Step-by-Step</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/transforming-viewing-habits-with-fb-live-on-roku-for-2024/"><u>Transforming Viewing Habits with FB Live on Roku for 2024</u></a></li>
 </ul></div>
 

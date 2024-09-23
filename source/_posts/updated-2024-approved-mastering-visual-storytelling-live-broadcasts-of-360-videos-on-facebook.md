@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Mastering Visual Storytelling  Live Broadcasts of 360 Videos on Facebook\""
-date: 2024-09-14T09:25:04.071Z
-updated: 2024-09-18T04:34:49.784Z
+date: 2024-09-21T16:24:09.216Z
+updated: 2024-09-22T20:48:56.236Z
 tags:
   - ai video
   - ai facebook
@@ -33,6 +33,13 @@ thumbnail: https://thmb.techidaily.com/c62b5284641027dfddd7dff7e86c9bcc06523e51b
 
  If you want to live broadcast a 360 degree video on facebook then your first most requirements will be a camera that can capture such videos. There are so many options available in market that you can add into your preference list like ALLie, Insta360 Air (Android) and Nano (iPhone), Giroptic IO, Samsung Gear 360 and many more. The Nokia Ozo and Z CAM S1 are also supported in the higher end professional grade category. Pick any one of these devices and soon you will be able to impress your audience with impressive updates.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Specification for Live 360
 
  Those who are searching for the tech specs related to live 360 degree feature must go through these points:
@@ -44,6 +51,13 @@ thumbnail: https://thmb.techidaily.com/c62b5284641027dfddd7dff7e86c9bcc06523e51b
 * Supported video frame rate is 30fps only.
 * It is important to maintain a distance of at least 20 to 30 feet between camera and objects to be recorded.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Go Live 360?
 
  You can use these two tricks to go live 360:
@@ -53,10 +67,10 @@ thumbnail: https://thmb.techidaily.com/c62b5284641027dfddd7dff7e86c9bcc06523e51b
 2\. Go to “facebook.com/live/create” link and here you will get RTMP server URL along with a valid stream key. This information can be utilized to start live 360 with cameras that do not have auto integration feature. It will also help you to start streaming using simple streaming software.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2044582/7443" target="_top" id="2044582">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044582" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044582/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Go Live 360 with Instagram 360?
@@ -115,10 +129,10 @@ thumbnail: https://thmb.techidaily.com/c62b5284641027dfddd7dff7e86c9bcc06523e51b
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
-  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -136,12 +150,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-audience-engagement-trends-to-master-on-instagram/"><u>[New] In 2024, Audience Engagement Trends to Master on Instagram</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-navigating-video-visibility-barriers-in-social-networking/"><u>[New] Navigating Video Visibility Barriers in Social Networking</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-exploring-previous-images-3-inverse-search-methods-on-social-media/"><u>[Updated] Exploring Previous Images 3 Inverse Search Methods on Social Media</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-navigating-self-representation-on-facebook-live-calls/"><u>[Updated] In 2024, Navigating Self-Representation on Facebook Live Calls</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-top-10-remarkable-e-learning-platforms-excluding-udemy/"><u>2024 Approved Top 10 Remarkable E-Learning Platforms Excluding Udemy</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/6-proven-ways-to-unlock-huawei-phone-when-you-forget-the-password-by-drfone-android/"><u>6 Proven Ways to Unlock Huawei Phone When You Forget the Password</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-top-6-ways-to-transfer-text-messages-from-tecno-pova-6-pro-5g-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 6 Ways to Transfer Text Messages from Tecno Pova 6 Pro 5G to Other Android Devices | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2023s-leading-applications-for-downloading-facebook-lite-videos/"><u>[New] 2023'S Leading Applications for Downloading Facebook Lite Videos</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-enhance-social-media-reach-on-facebook-using-proven-seo-methods/"><u>[New] 2024 Approved Enhance Social Media Reach on Facebook Using Proven SEO Methods</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-joining-the-world-of-live-broadcasts-a-roku-primer/"><u>[New] 2024 Approved Joining the World of Live Broadcasts A Roku Primer</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-efficient-use-of-obs-with-zoom-video-platform/"><u>[New] In 2024, Efficient Use of OBS with Zoom Video Platform</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-iphone-and-android-unite-for-music-on-your-fb-profile/"><u>[New] IPhone & Android Unite for Music on Your FB Profile</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-quick-tutorial-get-snapchat-running-on-macos/"><u>[New] Quick Tutorial Get Snapchat Running on macOS</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-seamless-background-extraction-in-picsart-editing/"><u>[New] Seamless Background Extraction in Picsart Editing</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-masterclass-splitting-your-screen-for-maximum-impact-on-facebook-live/"><u>[Updated] Masterclass Splitting Your Screen for Maximum Impact on Facebook Live</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-ranking-the-ultimate-10-free-online-subtitle-makers-srt-for-2024/"><u>[Updated] Ranking the Ultimate 10 Free Online Subtitle Makers (Srt) for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/cookiebot-driven-data-collection-optimize-your-websites-user-experience/"><u>Cookiebot-Driven Data Collection: Optimize Your Website's User Experience</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-crafting-engaging-live-videos-on-smartphones-and-social-networks/"><u>In 2024, Crafting Engaging Live Videos on Smartphones & Social Networks</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/mastering-lock-screen-settings-how-to-enable-and-disable-on-google-pixel-8-pro-by-drfone-android/"><u>Mastering Lock Screen Settings How to Enable and Disable on Google Pixel 8 Pro</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-virtualdub-substitutes-a-comprehensive-list-of-video-editors/"><u>New 2024 Approved VirtualDub Substitutes A Comprehensive List of Video Editors</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/outshining-gpt-claudes-four-unique-features-for-better-conversations/"><u>Outshining GPT: Claude's Four Unique Features for Better Conversations</u></a></li>
 </ul></div>
 

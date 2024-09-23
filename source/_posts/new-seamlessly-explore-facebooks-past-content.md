@@ -1,7 +1,7 @@
 ---
 title: "[New] Seamlessly Explore Facebook's Past Content"
-date: 2024-09-12T05:15:00.363Z
-updated: 2024-09-17T18:58:17.875Z
+date: 2024-09-18T07:22:49.543Z
+updated: 2024-09-23T07:08:22.553Z
 tags:
   - ai video
   - ai facebook
@@ -57,9 +57,23 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 
 ![facebook story archive](https://images.wondershare.com/filmora/article-images/2021/facebook-story-archive.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 4:** After this, you would be shown all the stories sequentially in the Story Archives section.
 
 Thus how to view old stories on Facebook desktop is very easy with above above-mentioned easy steps.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: How to Watch Old Stories on Facebook on your Mobile?
 
@@ -77,9 +91,23 @@ You can find and see the old stories on Facebook with the help of the archived s
 
 ![story archive facebook mobile](https://images.wondershare.com/filmora/article-images/2021/story-archive-facebook-mobile.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934254/19272" target="_top" id="1934254">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934254" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934254/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 5:** Now you would get to see all the old stories you have created sequentially from newest to oldest order.
 
 We assure you that with the above effective and easy steps your doubt of how to see old stories on Facebook would be solved.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4: Can you See Friends' Old Stories on Facebook?
 
@@ -89,23 +117,9 @@ The only chance is that if your friend has uploaded those stories on highlights 
 
 ![see friends old fb story](https://images.wondershare.com/filmora/article-images/2021/see-friends-old-fb-story.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 An old highlighted story shared by your friend would appear on your friend’s profile below the Friends section and above create post option as Story Highlights.
 
 So for the above discussed all ways the only must thing is to setting archive on which would allow you to re-watch stories again and solve your doubt of how to view old stories on Facebook.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 5: How to Create Facebook Videos with Ease?
 
@@ -172,15 +186,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-the-ugly-side-of-digital-video-profits/"><u>[New] The Ugly Side of Digital Video Profits</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-excellence-in-ai-based-photo-transformations/"><u>[Updated] Excellence in AI-Based Photo Transformations</u></a></li>
-<li><a href="https://some-tips.techidaily.com/updated-the-ultimate-guide-to-crafting-irresistible-titles/"><u>[Updated] The Ultimate Guide to Crafting Irresistible Titles</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/13-ways-to-get-your-fb-videos-spotlighted/"><u>13 Ways to Get Your FB Videos Spotlighted</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-cast-vivo-s18-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>How to Cast Vivo S18 to Computer for iPhone and Android? | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-navigating-real-time-sharing-with-roku-and-fb-live/"><u>In 2024, Navigating Real-Time Sharing with Roku & FB Live</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/social-media-coverage-start-scale-resolution-length/"><u>Social Media Coverage Start Scale, Resolution, Length</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/top-8-trending-facebook-video-hits-for-2024/"><u>Top 8 Trending Facebook Video Hits for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/understanding-the-risks-could-chatgpt-use-lead-to-job-termination/"><u>Understanding the Risks: Could ChatGPT Use Lead to Job Termination?</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/updated-the-innovators-guide-to-non-intrusive-audio-modulation-in-modern-videos-for-2024/"><u>Updated The Innovators Guide to Non-Intrusive Audio Modulation in Modern Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-facebook-photosvideos-the-role-of-watermarks-for-2024/"><u>[New] Facebook Photos/Videos The Role of Watermarks for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-recommendations-to-overcome-live-breakdowns-fb/"><u>[New] Recommendations to Overcome Live Breakdowns (FB)</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-spark-social-media-flames-facebook-success-hacks/"><u>[Updated] 2024 Approved Spark Social Media Flames Facebook Success Hacks</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-unlocking-social-media-success-rising-through-the-facebook-leaderboard/"><u>[Updated] In 2024, Unlocking Social Media Success Rising Through the Facebook Leaderboard</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-2023-sound-savvy-with-facebook-downloader/"><u>2024 Approved 2023 Sound Savvy with Facebook Downloader</u></a></li>
+<li><a href="https://win-able.techidaily.com/conquer-the-realm-of-wealth-in-like-a-dragon-on-pc-top-techniques-revealed-for-unlimited-success/"><u>Conquer the Realm of Wealth in 'Like a Dragon' On PC: Top Techniques Revealed for Unlimited Success</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/1723016425647-cutting-through-the-noise-clear-crisp-audio-solutions-for-problematic-playbacks-on-windows-117-platforms/"><u>Cutting Through the Noise: Clear, Crisp Audio Solutions for Problematic Playbacks on Windows 11/7 Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-the-controversial-content-of-facebook-papers/"><u>Deciphering the Controversial Content of Facebook Papers</u></a></li>
+<li><a href="https://apple-account.techidaily.com/forgot-your-apple-id-password-and-email-on-apple-iphone-7-plus-heres-the-best-fixes-by-drfone-ios/"><u>Forgot Your Apple ID Password and Email On Apple iPhone 7 Plus? Heres the Best Fixes</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-resolve-frozen-youtube-videos-on-androidios/"><u>In 2024, Resolve Frozen YouTube Videos on Android/iOS</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-win10s-elite-screen-recording-and-capture-software-selection/"><u>In 2024, Win10's Elite Screen Recording & Capture Software Selection</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/noise-restoration-for-skyrim-gamers-facing-sound-glitches/"><u>Noise Restoration for Skyrim Gamers Facing Sound Glitches</u></a></li>
+<li><a href="https://location-social.techidaily.com/why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-vivo-s17-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Location is Not Updating and How to Fix On Vivo S17 | Dr.fone</u></a></li>
 </ul></div>
 

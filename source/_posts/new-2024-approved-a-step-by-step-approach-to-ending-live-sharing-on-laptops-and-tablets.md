@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  A Step-by-Step Approach to Ending Live Sharing on Laptops and Tablets\""
-date: 2024-09-12T10:39:17.665Z
-updated: 2024-09-18T10:06:35.643Z
+date: 2024-09-18T20:49:33.942Z
+updated: 2024-09-23T06:58:26.061Z
 tags:
   - ai video
   - ai facebook
@@ -72,9 +72,29 @@ If it is already enabled, follow these steps to delete the archived Facebook sto
 
 ![delete Facebook Story from desktop](https://images.wondershare.com/filmora/article-images/facebook-story-archive.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983471">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2**: Now, select the Story Archive option that you see on the top. This will show all the archived stories. Next, choose a story that you want to remove permanently. The story will appear. Click on the three dots, and then click on the delete option.
 
 ![delete Facebook Story from archive](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-archive.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 This is how you will remove the stories from Facebook archived.
 
@@ -99,10 +119,10 @@ You can make your stories visible to your friends, customize the viewers, or kee
 ![  Facebook Story privacy option](https://images.wondershare.com/filmora/article-images/facebook-story-privacy-option.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 2:** Now, the privacy setting page will let you choose from- public, friends, and custom. You can hide your story from a few people as well. Choose the one that meets your requirement. Then, go back and share the story.
@@ -110,10 +130,10 @@ You can make your stories visible to your friends, customize the viewers, or kee
 ![  Facebook Story privacy  ](https://images.wondershare.com/filmora/article-images/facebook-story-privacy.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 5: How to Hide Facebook Story from Specific People?
@@ -127,16 +147,10 @@ Facebook has made sharing stories easy because of the multiple features it offer
 **Step 2:** You will be shown the complete list of people you are connected with on Facebook. Select the people you don't want to share your stories with, and then click on done.
 
 <!-- affiliate ads begin -->
-<span id="1982485">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 6: How to Delete Someone Else's Story on Your Facebook?
@@ -168,16 +182,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-expert-curated-selection-of-best-ps3-simulators-pc-edition/"><u>[New] In 2024, Expert-Curated Selection of Best PS3 Simulators (PC Edition)</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-unlocking-facebooks-secrets-an-introductory-guide/"><u>[New] Unlocking Facebook's Secrets An Introductory Guide</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-how-to-use-a-tripod-for-vlogging/"><u>[Updated] 2024 Approved How To Use a Tripod for Vlogging</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-crafting-powerful-hashtags-for-fb-brand-identity-for-2024/"><u>[Updated] Crafting Powerful Hashtags for FB Brand Identity for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-master-the-art-of-social-media-success-with-these-10-facebook-tips/"><u>2024 Approved Master the Art of Social Media Success with These 10 Facebook Tips</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-premiere-pros-best-practices-free-template-samples/"><u>2024 Approved Premiere Pro's Best Practices FREE Template Samples</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/ace-your-ai-dialogue-leveraging-the-best-github-resources-for-crafting-ideal-chatgpt-prompts/"><u>Ace Your AI Dialogue: Leveraging the Best GitHub Resources for Crafting Ideal ChatGPT Prompts</u></a></li>
-<li><a href="https://win-dash.techidaily.com/download-lenovo-t500-latest-drivers-and-update-with-ease/"><u>Download Lenovo T500 Latest Drivers and Update with Ease</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/enhancing-engagement-through-effective-video-strategies-on-fb-for-2024/"><u>Enhancing Engagement Through Effective Video Strategies on FB for 2024</u></a></li>
-<li><a href="https://fox-that.techidaily.com/locating-your-missing-facetime-images-a-guide-on-where-they-are-stored/"><u>Locating Your Missing FaceTime Images: A Guide on Where They Are Stored</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/worldwide-learners-forum-at-bett-2022/"><u>Worldwide Learners' Forum at BETT 2022</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-snapchat-audio-ensuring-whole-video-playback-every-time/"><u>[New] 2024 Approved Snapchat Audio Ensuring Whole Video Playback Every Time</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-invisible-snapgrabber-secrets-to-undetected-photo-taking-for-2024/"><u>[New] Invisible SnapGrabber Secrets to Undetected Photo-Taking for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-camclip-collector-social-edition-for-2024/"><u>[Updated] CamClip Collector, Social Edition for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-the-power-of-perception-iconic-podcast-design-tips-for-2024/"><u>[Updated] The Power of Perception Iconic Podcast Design Tips for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-best-scribblers-ios-and-androids-leading-image-editors/"><u>2024 Approved Best Scribblers IOS & Android's Leading Image Editors</u></a></li>
+<li><a href="https://howto.techidaily.com/4-solutions-to-fix-unfortunately-your-app-has-stopped-error-on-samsung-galaxy-a05-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Solutions to Fix Unfortunately Your App Has Stopped Error on Samsung Galaxy A05 | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/block-or-unblock-handle-twitch-conversations-smartly/"><u>Block or Unblock: Handle Twitch Conversations Smartly</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/deciphering-online-communication-the-dead-internet-theory-uncovered/"><u>Deciphering Online Communication: The 'Dead Internet' Theory Uncovered</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-apple-iphone-14-pro-with-an-apple-watch-and-what-to-do-if-it-doesnt-work-by-drfone-ios/"><u>How to Unlock Apple iPhone 14 Pro With an Apple Watch & What to Do if It Doesnt Work</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-capturing-every-angle-how-to-post-360-photos-on-androidios/"><u>In 2024, Capturing Every Angle How to Post 360 Photos on Android/iOS</u></a></li>
+<li><a href="https://program-issues.techidaily.com/overcoming-technical-difficulties-getting-cyberpunk-2077-to-start-up/"><u>Overcoming Technical Difficulties: Getting Cyberpunk 2077 to Start Up</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/seamless-social-circulation-sharing-your-journey-through-video-on-facebook/"><u>Seamless Social Circulation Sharing Your Journey Through Video on Facebook</u></a></li>
 </ul></div>
 

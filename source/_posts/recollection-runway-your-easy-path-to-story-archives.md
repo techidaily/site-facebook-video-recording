@@ -1,7 +1,7 @@
 ---
 title: "\"Recollection Runway  Your Easy Path to Story Archives\""
-date: 2024-09-15T04:14:36.671Z
-updated: 2024-09-18T06:32:07.080Z
+date: 2024-09-20T05:30:14.785Z
+updated: 2024-09-22T21:55:46.890Z
 tags:
   - ai video
   - ai facebook
@@ -53,6 +53,19 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 
 ![facebook old stories more](https://images.wondershare.com/filmora/article-images/2021/facebook-old-stories-more.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1702748">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 3:** Now just tap on the “Story Archive” option from the list.
 
 ![facebook story archive](https://images.wondershare.com/filmora/article-images/2021/facebook-story-archive.jpg)
@@ -72,6 +85,13 @@ You can find and see the old stories on Facebook with the help of the archived s
 **Step 3:** Then Select “Archive” from the given options.
 
 ![watch old stories facebook](https://images.wondershare.com/filmora/article-images/2021/watch-old-stories-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 4:** Scroll towards the right and select on Story Archives tab.
 
@@ -93,6 +113,13 @@ An old highlighted story shared by your friend would appear on your friend’s p
 
 So for the above discussed all ways the only must thing is to setting archive on which would allow you to re-watch stories again and solve your doubt of how to view old stories on Facebook.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 5: How to Create Facebook Videos with Ease?
 
 If you think that to create amazing videos for Facebook, you need to be a professional then let me tell you that it is not at all necessary. But yes you need to be aware of the right video editing software to help you with and solve your need to create a stunning video.
@@ -100,13 +127,6 @@ If you think that to create amazing videos for Facebook, you need to be a profes
 To attract more audience and gain more likes, comments all you need is a smart [video editor](https://tools.techidaily.com/wondershare/filmora/download/) like a Wondershare Filmora. It is one of the most effective video editing tools that help you edit your elements quickly and easily upload over Facebook.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Features:**
 
@@ -151,10 +171,10 @@ Happy editing!
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -172,17 +192,15 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-top-picks-of-firefox-tools-to-streamline-your-facebook-video-experience-2023/"><u>[New] 2024 Approved Top Picks of Firefox Tools to Streamline Your Facebook Video Experience, 2023</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-breaking-the-barrier-uploading-and-live-broadcasting-vids-to-fb/"><u>[New] In 2024, Breaking the Barrier Uploading and Live Broadcasting Vids to FB</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-the-art-and-science-of-fb-video-ads-unveiling-20-crucial-steps/"><u>[Updated] 2024 Approved The Art and Science of FB Video Ads Unveiling 20 Crucial Steps</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-exclusive-access-to-premium-playlists-on-mobile-devices/"><u>[Updated] Exclusive Access to Premium Playlists on Mobile Devices</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-from-concept-to-completion-building-effective-facebook-covers-for-2024/"><u>[Updated] From Concept to Completion Building Effective Facebook Covers for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-from-disparate-pixels-constructing-splendid-imagery-weaves/"><u>2024 Approved From Disparate Pixels Constructing Splendid Imagery Weaves</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-unlocking-the-power-of-music-in-engaging-video-content/"><u>2024 Approved Unlocking the Power of Music in Engaging Video Content</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/cataloging-fb-video-ratios/"><u>Cataloging FB Video Ratios</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/easy-installation-scansnap-software-updates-and-drivers-for-windows-get-set-up-quick/"><u>Easy Installation: ScanSnap Software Updates and Drivers for Windows - Get Set Up Quick</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/profit-strategies-in-youtube-marketing-for-2024/"><u>Profit Strategies in YouTube Marketing for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/resolved-how-to-fix-non-responsive-google-chrome-issues/"><u>Resolved: How to Fix Non-Responsive Google Chrome Issues</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/troubleshoot-and-resolve-your-windows-0x80cuase-070643-updating-or-installing-problems-easily/"><u>Troubleshoot & Resolve Your Windows 0X80cuase 070643 Updating or Installing Problems Easily!</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-the-funny-face-of-freedom-top-20-pranks-at-facebooks-barracks/"><u>[New] 2024 Approved The Funny Face of Freedom Top 20 Pranks at Facebook's Barracks</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-gif-galore-converting-tweet-videos-at-zero-cost/"><u>[New] In 2024, GIF Galore Converting Tweet Videos at Zero Cost</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-supercharge-your-online-sales-strategy-with-the-best-15-social-media-insight-apps/"><u>[New] Supercharge Your Online Sales Strategy with the Best 15 Social Media Insight Apps</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-top-5-cutting-edge-capture-apps-for-macos-users/"><u>[New] Top 5 Cutting-Edge Capture Apps for macOS Users</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-creating-a-prime-business-channel-top-picks-and-simple-steps/"><u>[Updated] In 2024, Creating a Prime Business Channel Top Picks & Simple Steps</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/broadcasting-with-a-history-live-transmission-of-pre-recorded-videos/"><u>Broadcasting with a History LIVE Transmission of Pre-Recorded Videos</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/expert-advice-on-acquiring-royalty-free-high-quality-graphics/"><u>Expert Advice on Acquiring Royalty-Free, High-Quality Graphics</u></a></li>
+<li><a href="https://blog-min.techidaily.com/pbm-movavi/"><u>PBMファイルから高速変換: オンラインで使いやすいMovaviツール</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/shooter-space-odyssey-or-both-unveiling-the-fun-side-of-the-outer-worlds-a-review/"><u>Shooter, Space Odyssey, or Both? Unveiling the Fun Side of 'The Outer Worlds': A Review</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/tips-and-tricks-for-efficiently-watching-facebook-live/"><u>Tips and Tricks for Efficiently Watching Facebook Live</u></a></li>
 </ul></div>
 

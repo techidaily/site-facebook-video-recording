@@ -1,7 +1,7 @@
 ---
 title: "\"Unlock Laughter Traps  20 Quirky FB Detention Anecdotes for Amusement for 2024\""
-date: 2024-09-17T07:05:00.731Z
-updated: 2024-09-18T00:00:38.390Z
+date: 2024-09-20T20:38:08.155Z
+updated: 2024-09-23T01:19:39.525Z
 tags:
   - ai video
   - ai facebook
@@ -50,11 +50,31 @@ Also, this penalty could be for few hours to 21 days of restrictive actions.
 
 ![out of facebook jail meme](https://images.wondershare.com/filmora/article-images/2021/out-of-facebook-jail-meme.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Fresh out of Facebook jail … So excited!!! Can’t wait!!!
 
 #### 2\. Released from Facebook Jail
 
 ![released from facebook jail](https://images.wondershare.com/filmora/article-images/2021/released-from-facebook-jail.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1982456">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 When you’re released from Facebook jail knowing you haven’t been rehabilitated, you may wanna say, “Sup, bitches?”
 
@@ -80,11 +100,25 @@ After having been through a hard time in Facebook jail, what your comment sectio
 
 ![funny gary outta fb jail](https://images.wondershare.com/filmora/article-images/2021/funny-gary-outta-fb-jail.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959759/19272" target="_top" id="1959759">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959759" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959759/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 This is how Funny Gary Out of Facebook Jail.
 
 #### 7\. Come Back from FB Jail
 
 ![come back from fb jail](https://images.wondershare.com/filmora/article-images/2021/come-back-from-fb-jail.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 How did I come back from Facebook jail and look for the MF that reported me.
 
@@ -122,6 +156,13 @@ Also one of the best features of the Filmora meme generator is that it has a ver
 
 ![meme generator imgflip](https://images.wondershare.com/filmii/article-images/meme-generator-imgflip.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 This Facebook meme generator offers benefits such as adding customizable images and text, resizing/moving text boxes as desired, customized font options, outline colors, rotation, flipping, and many more. It also has so many colorful stickers to make your meme look creative. It gets operated in HTML canvas.
 
 #### 3\. Canva
@@ -129,6 +170,13 @@ This Facebook meme generator offers benefits such as adding customizable images 
 ![canva meme generator](https://images.wondershare.com/filmii/article-images/canva-meme-generator.jpg)
 
 Canva's name is not at all unknown to anybody related to the designing field. It is an amazing online free tool helping as a Facebook meme generator too. It has so many templates available you just need to pick the right one for you and proceed. It is surely the best choice for funny Facebook memes and especially Facebook jail memes. You will get color/font options, resize, crop, flip, etc. options to create the best memes. Canva is a very user-friendly online tool and it has a very easy-to-use design which makes an overall creating experience very smooth.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4: How to Make Your Facebook Jail Meme?
 
@@ -143,10 +191,16 @@ So here below is the step by step guide you can follow to create a meme:
 ![drag memes filmora meme maker](https://images.wondershare.com/filmora/article-images/drag-memes-filmora-meme-maker.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Once you open the Filmora meme generator on your browser you would get an option of import. You need to click on that or drag to import your files. Also, you can even import YouTube and Vimeo links for creating video memes.
@@ -167,13 +221,6 @@ So once you go through this article you would realize that the funny Facebook me
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -189,20 +236,18 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-leveraging-social-integration-auto-play-youtube-videos-on-fb-pages/"><u>[New] 2024 Approved Leveraging Social Integration Auto-Play Youtube Videos on FB Pages</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-broadcast-without-breaks-2023-guides-to-overcoming-livestream-disruptions-on-fb-for-2024/"><u>[New] Broadcast Without Breaks 2023 Guides to Overcoming Livestream Disruptions on FB for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-content-revenue-route-map-comparing-the-best-streaming-platforms/"><u>[New] In 2024, Content Revenue Route Map Comparing the Best Streaming Platforms</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-mastering-video-placement-on-social-media-platforms/"><u>[New] Mastering Video Placement on Social Media Platforms</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-a-complete-guide-to-youtubes-live-image-lore/"><u>[Updated] 2024 Approved A Complete Guide to YouTube's Live Image Lore</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-facebooks-most-impressive-new-additions-decoded/"><u>[Updated] Facebook's Most Impressive New Additions Decoded</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-creating-a-personal-brand-on-facebook/"><u>[Updated] In 2024, Creating a Personal Brand on Facebook</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-navigating-social-sharing-pining-on-snapchat-for-2024/"><u>[Updated] Navigating Social Sharing Pining on Snapchat for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-exploring-the-top-8-facebook-extractors-for-films/"><u>2024 Approved Exploring the Top 8 Facebook Extractors for Films</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-professional-fb-cover-setups-to-skyrocket-engagement/"><u>2024 Approved Professional FB Cover Setups to Skyrocket Engagement</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/crafting-unique-dandd-characters-with-ai-mastering-chatgpt-and-dall-e/"><u>Crafting Unique D&D Characters with AI: Mastering ChatGPT & DALL-E</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/elevate-your-communication-skills-fastest-way-7-ways-through-mondlys-afrikaans-lessons/"><u>Elevate Your Communication Skills Fastest Way - 7 Ways Through Mondly's Afrikaans Lessons</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-ultimate-compilation-of-ios-compatible-ps2-games/"><u>In 2024, Ultimate Compilation of iOS-Compatible PS2 Games</u></a></li>
-<li><a href="https://win-able.techidaily.com/overcoming-the-launch-glitch-solutions-found-for-far-cry-6-on-desktops/"><u>Overcoming the Launch Glitch – Solutions Found for Far Cry 6 on Desktops</u></a></li>
-<li><a href="https://windows11.techidaily.com/quick-tips-overcoming-windows-winerror-messages/"><u>Quick Tips: Overcoming Windows WinError Messages</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-a-beginners-guide-to-music-in-online-video-footage-fb/"><u>[New] 2024 Approved A Beginner's Guide to Music in Online Video Footage (FB)</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-stepwise-guide-to-windows-11-sound-capture-setup/"><u>[Updated] 2024 Approved Stepwise Guide to Windows 11 Sound Capture Setup</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-is-your-facebook-video-more-engaging-in-a-vertical-format-for-2024/"><u>[Updated] Is Your Facebook Video More Engaging in a Vertical Format for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/8-ways-to-transfer-photos-from-honor-x7b-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>8 Ways to Transfer Photos from Honor X7b to iPhone Easily | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/chatgpt-enters-the-spotlight-openais-latest-innovation-in-conversational-ai/"><u>ChatGPT Enters the Spotlight: OpenAI's Latest Innovation in Conversational AI</u></a></li>
+<li><a href="https://driver-download.techidaily.com/effortless-setup-bcm20702a0-driver-for-windows-devices-downloaded-here/"><u>Effortless Setup: BCM20702A0 Driver for Windows Devices Downloaded Here</u></a></li>
+<li><a href="https://driver-install.techidaily.com/enhance-your-lenovo-thinkpad-install-updates-on-win11/"><u>Enhance Your Lenovo Thinkpad: Install Updates on Win11</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-forgot-your-apple-id-password-and-email-on-apple-iphone-14-pro-max-heres-the-best-fixes-by-drfone-ios/"><u>In 2024, Forgot Your Apple ID Password and Email On Apple iPhone 14 Pro Max? Heres the Best Fixes</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-how-do-we-experience-realities-in-a-virtual-sense/"><u>In 2024, How Do We Experience Realities in a Virtual Sense?</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-unearthing-old-facebook-tales-an-easy-to-follow-device-method/"><u>In 2024, Unearthing Old Facebook Tales An Easy-to-Follow Device Method</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-uniform-visual-clarity-in-microsoft-teams-conferences/"><u>In 2024, Uniform Visual Clarity in Microsoft Teams Conferences</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/unseen-strategies-how-to-tap-into-your-facebook-message-library-for-2024/"><u>Unseen Strategies How to Tap Into Your Facebook Message Library for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/winstall-workflows-for-smooth-windows-11-app-installation/"><u>Winstall Workflows for Smooth Windows 11 App Installation</u></a></li>
 </ul></div>
 

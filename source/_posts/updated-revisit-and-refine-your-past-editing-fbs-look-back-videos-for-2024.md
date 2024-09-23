@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Revisit and Refine Your Past  Editing FB's Look Back Videos for 2024\""
-date: 2024-09-17T06:18:05.683Z
-updated: 2024-09-18T09:18:27.016Z
+date: 2024-09-16T07:19:08.755Z
+updated: 2024-09-23T07:37:16.833Z
 tags:
   - ai video
   - ai facebook
@@ -62,6 +62,19 @@ thumbnail: https://thmb.techidaily.com/3b4f38d4b261acb2c277f07ba409b2b6a3f82798b
 
 ![edit look back video](https://images.wondershare.com/topic/video-editing/add-titles.jpg "edit look back video")
 
+<!-- affiliate ads begin -->
+<span id="1912746">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 3. Edit the audio of Look Back video
 
  To adjust the background music of Look Back video, double click the video on the Timeline. In the pop up editing panel, switch to Audio column and change the Speed, Volume, Pitch of the audio file or add the Fade in/out effect as you like.
@@ -70,6 +83,13 @@ thumbnail: https://thmb.techidaily.com/3b4f38d4b261acb2c277f07ba409b2b6a3f82798b
 
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/audio-detach.jpg "edit look back video")
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 4. Add more effects to your Look Back video
 
  Wondershare Filmora (originally Wondershare Video Editor) can help you make your video wonderful and special by applying various elements. To apply some advanced effects, right click the video and select the "Power Tool" option from the pops up menu, or hit the "Power Tool" button above the timeline to enter the Power Tool window. Here you are provided tilt shift, mosaic, face off and jump cut at beats.
@@ -77,6 +97,19 @@ thumbnail: https://thmb.techidaily.com/3b4f38d4b261acb2c277f07ba409b2b6a3f82798b
 ![add ](https://images.wondershare.com/images/multimedia/video-editor/tilt-shift-1.jpg "add ")
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<span id="701707">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 5. Save or share the edited Look Back video
 
@@ -88,6 +121,13 @@ thumbnail: https://thmb.techidaily.com/3b4f38d4b261acb2c277f07ba409b2b6a3f82798b
 * Burn to DVD to preserve or share.
 
 ![edit facebook look back video](https://images.wondershare.com/filmora/article-images/export-output.jpg "edit facebook look back video")
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
@@ -106,27 +146,15 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-fb-video-downloader-get-access-on-all-devices-2023-for-2024/"><u>[New] FB Video Downloader Get Access on All Devices, 2023 for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-spy-on-fb-chronicles-unseen/"><u>[New] In 2024, Spy on FB Chronicles, Unseen</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/nstoppable-streams-the-rising-stars-of-female-youtube-content-for-2024/"><u>[New] Unstoppable Streams The Rising Stars of Female YouTube Content for 2024</u></a></li>
-<li><a href="https://win-rankings.techidaily.com/windows108/"><u>「無料の優れたプログラム：Windows10向け8つの最適なスライドショーツールリスト」</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-7-ways-to-unlock-a-locked-google-pixel-8-phone-by-drfone-android/"><u>In 2024, 7 Ways to Unlock a Locked Google Pixel 8 Phone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-wipe-out-facebook-story-desktopmobile-tips/"><u>In 2024, Wipe Out Facebook Story Desktop/Mobile Tips</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/overcoming-the-obstacle-of-error-0x800705b4-in-updating-your-windows-11-system/"><u>Overcoming the Obstacle of Error 0X800705B4 in Updating Your Windows 11 System</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/quick-quirks-of-professional-photo-editing/"><u>Quick Quirks of Professional Photo Editing</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/stanley-j5c09-compact-crawler-saw-overview-big-on-performance/"><u>Stanley J5C09 Compact Crawler Saw Overview: Big on Performance</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-the-ultimate-list-of-twitter-sensations/"><u>[New] 2024 Approved The Ultimate List of Twitter Sensations</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-elevating-your-instagram-conversations-an-in-depth-guide-for-2024/"><u>[New] Elevating Your Instagram Conversations An In-Depth Guide for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-how-to-share-facebook-videos-to-whatsapp-in-2024/"><u>[New] How to Share Facebook Videos to WhatsApp, In 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-gold-tier-8-secret-screeners-choice/"><u>[New] In 2024, Gold-Tier 8 Secret Screeners' Choice</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-highlight-strategy-guide-10-must-try-tips-for-your-business/"><u>[Updated] In 2024, Highlight Strategy Guide 10 Must-Try Tips for Your Business</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-pioneering-sustainability-transforming-metropolitan-environments/"><u>[Updated] Pioneering Sustainability Transforming Metropolitan Environments</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-unlocking-facebook-video-success-key-strategies-revealed/"><u>[Updated] Unlocking Facebook Video Success Key Strategies Revealed</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/tackling-the-challenge-of-video-not-broadcasting-via-fb-messenger/"><u>Tackling the Challenge of Video Not Broadcasting via FB Messenger</u></a></li>
+<li><a href="https://extra-information.techidaily.com/top-actions-cameras-reviewed-hero5-vs-yi-in-the-spotlight/"><u>Top Actions Cameras Reviewed Hero5 Vs. YI in the Spotlight</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/unlock-your-disabled-apple-iphone-15-pro-without-itunes-in-5-ways-by-drfone-ios/"><u>Unlock Your Disabled Apple iPhone 15 Pro Without iTunes in 5 Ways</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1770776">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

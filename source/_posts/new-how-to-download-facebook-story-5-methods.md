@@ -1,7 +1,7 @@
 ---
 title: "[New] How to Download Facebook Story [5 Methods]"
-date: 2024-09-13T03:07:59.603Z
-updated: 2024-09-18T02:51:15.175Z
+date: 2024-09-19T02:28:47.870Z
+updated: 2024-09-23T00:22:10.691Z
 tags:
   - ai video
   - ai facebook
@@ -47,6 +47,13 @@ If you want to keep your Facebook stories around for longer than a day, you can 
 
 ![filmora-02](https://images.wondershare.com/filmora/filmora12/side_brand_filmora12.png)
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Why your video editing isn't good enough? How about some creative inspo?
 
 * 100 Million+ Users
@@ -63,6 +70,13 @@ If you want to keep your Facebook stories around for longer than a day, you can 
  \* Secure Download
 
 ![filmora12](https://images.wondershare.com/filmora/12-filmora/img/filmora12-01.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\.  Downvideo.net
 
@@ -102,6 +116,13 @@ Note: Software may not allow you to download stories from private accounts. So, 
 
 ![how to download facebook story - Fbdownloader.net](https://images.wondershare.com/filmora/article-images/2022/03/download-facebook-story-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\.  Getvid
 
 It is one of the best online free tools to download Facebook stories and save them in MP4 format. It incorporates a simple yet intuitive interface. It takes only a couple of minutes to download a Facebook story using Getvid. Follow the simple steps below to know to save Facebook stories through this software.
@@ -121,10 +142,10 @@ Paste the URL in the box and click **download**. Select **download in normal qua
 ![how to download facebook story - getvid](https://images.wondershare.com/filmora/article-images/2022/03/download-facebook-story-3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How to Download Facebook Story with Chrome Extensions?
@@ -148,10 +169,10 @@ Navigate to the webpage displaying the story you want to download.
 Click on the extension manager at the top right corner—select **download symbol** in Story Saver extension box.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\.  Download Facebook Videos
@@ -210,6 +231,13 @@ Install the application and click on its **icon** to launch it.
 
 Right-click on the Facebook story and select copy link address. Paste the copied link in the app to download the video.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4: How to Download a Facebook Story with Music?
 
 There is no default option to download or save stories on Facebook. So, you have to use third-party apps for downloading Facebook stories. However, some apps only allow you to download the visual in the story without its audio. If you are looking for a Facebook story download with music, the following section will help you.
@@ -226,13 +254,6 @@ Open Click on the extension symbol at the top right corner of the screen. Click 
 
 Open the download folder and play the video in your media player to check the video with music.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 5: How to Download Facebook Stories Anonymously?
 
 External applications can help you download Facebook stories anonymously. All you need is a trusted application on your phone or PC to save FB stories. One such notable platform is a friendly social browser. Here’s how you can save stories anonymously using this application.
@@ -246,13 +267,6 @@ Search Friendly Social Browser on your phone or PC to get started.
 Tap any video or photo in Facebook Story and click download
 
 ![Filmora logo](https://images.wondershare.com/filmora/logo_icon/wondershare-filmora-logo-horizontal.png) ![filmora product interface](https://images.wondershare.com/filmora/images/common/filmora-product-banner.png)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Best Tool to Edit Facebook Videos - Filmora
 
@@ -273,6 +287,13 @@ For macOS 10.12 or later
 
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg)](https://app.adjust.com/w06dr6m%5F19za1f6)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ## Conclusion
@@ -280,13 +301,6 @@ For macOS 10.12 or later
 You may like a photo or video in a Facebook story to save it on your PC or smartphone. Facebook does not allow its users to download stories by default. So, **Facebook story download** can be challenging. We have handpicked few easy and simple methods to help you in this process. Options covered in this article mainly include web-based tools, Chrome extensions, and third-party applications. However, all of them do not allow to save stories from private accounts. Thus, choose the tool that best fits your preferences and start downloading your favorite stories.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
-  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -303,19 +317,15 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-streamline-your-social-media-find-facebook-watched-videos-easily/"><u>[New] 2024 Approved Streamline Your Social Media Find Facebook Watched Videos Easily</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-a-comprehensive-guide-to-monetize-your-facebook-page-tips-and-tricks-for-2024/"><u>[New] A Comprehensive Guide to Monetize Your Facebook Page Tips and Tricks for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-debating-on-the-significance-of-truthfulness-in-selfies/"><u>[New] In 2024, Debating on the Significance of Truthfulness in Selfies</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-innovative-integration-mastering-vids-in-the-facebook-realm/"><u>[New] Innovative Integration Mastering Vids in the Facebook Realm</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-rapid-retreival-of-trendiest-tiktok-vids-for-2024/"><u>[New] Rapid Retreival of Trendiest TikTok Vids for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-optimal-viewing-verticalhorizontal-in-fb-videos/"><u>[Updated] In 2024, Optimal Viewing - Vertical/Horizontal in FB Videos?</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-nostalgia-unleashed-a-guide-to-fb-archives-for-2024/"><u>[Updated] Nostalgia Unleashed A Guide to FB Archives for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-integrating-facebook-livestream-into-your-roku-setup/"><u>2024 Approved Integrating Facebook Livestream Into Your Roku Setup</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/creative-writers-dream-5-cutting-edge-ai-tools-to-enhance-prose/"><u>Creative Writer's Dream: 5 Cutting-Edge AI Tools to Enhance Prose</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-reviving-the-hidden-watch-icon-on-facebook/"><u>In 2024, Reviving the Hidden Watch Icon on Facebook</u></a></li>
-<li><a href="https://games-able.techidaily.com/optimal-list-of-16-shared-screening-experiences-on-xbox/"><u>Optimal List of 16 Shared Screening Experiences on XBox</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/social-media-self-proofing-deciphering-ig-identity/"><u>Social Media Self-Proofing Deciphering IG Identity</u></a></li>
-<li><a href="https://win11.techidaily.com/streamlining-performance-via-virtual-memory-adjustment-in-windows-11/"><u>Streamlining Performance via Virtual Memory Adjustment in Windows 11</u></a></li>
-<li><a href="https://some-skills.techidaily.com/unlocking-iphone-shot-potential-adopt-these-10-principles-for-2024/"><u>Unlocking iPhone Shot Potential Adopt These 10 Principles for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-elevate-your-facebook-ads-game-no-price-tag-for-video-kit-for-2024/"><u>[New] Elevate Your Facebook Ads Game - No Price Tag for Video Kit for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-capture-every-word-4-tips-for-fb-video-transcripts/"><u>[New] In 2024, Capture Every Word 4 Tips for FB Video Transcripts</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-mastering-facebook-hashtags-for-strategic-marketing/"><u>[New] Mastering Facebook Hashtags for Strategic Marketing</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-the-ultimate-laptop-and-mobile-roadmap-for-old-facebook-stories-for-2024/"><u>[New] The Ultimate Laptop & Mobile Roadmap for Old Facebook Stories for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-natures-canvas-a-variety-of-downloads-to-enhance-cinematic-work/"><u>2024 Approved Nature’s Canvas A Variety of Downloads to Enhance Cinematic Work</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-xiaomi-redmi-k70-pro-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Xiaomi Redmi K70 Pro | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-fiction-starter-pack-top-20-novels-for-newcomers/"><u>French Fiction Starter Pack: Top 20 Novels For Newcomers</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-oneplus-nord-ce-3-lite-5g-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On OnePlus Nord CE 3 Lite 5G | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-solved-move-from-tecno-spark-20c-to-ios-not-working-problems-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Solved Move from Tecno Spark 20C to iOS not Working Problems | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/step-by-step-diving-into-the-world-of-igtv/"><u>Step-by-Step Diving Into the World of IGTV</u></a></li>
 </ul></div>
 

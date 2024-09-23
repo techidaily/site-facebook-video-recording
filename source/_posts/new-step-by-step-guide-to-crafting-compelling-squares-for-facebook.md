@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Step-by-Step Guide to Crafting Compelling Squares for Facebook\""
-date: 2024-09-16T17:43:47.545Z
-updated: 2024-09-18T11:04:11.905Z
+date: 2024-09-18T02:53:18.765Z
+updated: 2024-09-23T05:43:44.108Z
 tags:
   - ai video
   - ai facebook
@@ -87,20 +87,27 @@ Now, on the edit panel hit the ‘Crop Clip’ button and select 1:1 from the bo
 
 ![edit panel](https://images.wondershare.com/filmora/article-images/crop-zoom-panel.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
+  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 4: Save changes and export**
 
 Here, you need to press ‘OK’ and export the file to your computer. Later you can upload it on your Facebook account easily.
 
 ![export video](https://images.wondershare.com/filmora/article-images/export-video-filmora.JPG)
 
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ## Part 4: How to create square videos by Adobe Premiere
 
@@ -114,15 +121,36 @@ First you need to import video to Premiere Pro. Go to File > Import, and then se
 
 ![import video premiere](https://images.wondershare.com/filmora/article-images/import-video-premiere.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2：Sequence settings**
 
 Click Sequence in the top, and then select Sequence Settings. First to seclect ARRI Cinema to activiate the settings. In the video area, adjust the frame size. You need to keep horizontal and vertical number the same in order to create square video. Here, we adjsut it to 600\. Leave the rest options the same. Click OK.
 
 ![Sequence settings](https://images.wondershare.com/filmora/article-images/sequence-setting.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 3：Export**
 
 Export your video once the changes are satisfactory and enjoy!
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Bottom Line
 
@@ -133,13 +161,6 @@ From the above article, we are sure that square videos on Facebook are significa
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -156,19 +177,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-accelerating-operations-discover-the-leading-scheduling-tools-for-2024/"><u>[New] Accelerating Operations Discover the Leading Scheduling Tools for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-channeling-success-the-personal-brand-strategy-for-youtubers-for-2024/"><u>[New] Channeling Success The Personal Brand Strategy for YouTubers for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-capturing-faces-to-face-on-fb-top-4-tips/"><u>[New] In 2024, Capturing Faces-to-Face on FB Top 4 Tips</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-discover-9-affordable-online-editors-for-youtube/"><u>[New] In 2024, Discover 9 Affordable Online Editors for YouTube</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-create-captivating-cover-cinematics/"><u>[Updated] Create Captivating Cover Cinematics</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-from-idea-to-action-creating-engaging-gifs/"><u>[Updated] From Idea to Action Creating Engaging GIFs</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-efficient-mp4-conversion-software-facebook-targeted/"><u>2024 Approved Efficient MP4 Conversion Software (Facebook Targeted)</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-ranking-the-top-8-apps-to-increase-popularity-on-facebook/"><u>2024 Approved Ranking the Top 8 Apps to Increase Popularity on Facebook</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-zooming-success-detailed-instruction-for-exceptional-podcast-recording-quality/"><u>2024 Approved Zooming Success Detailed Instruction for Exceptional Podcast Recording Quality</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/alienware-aurora-r11-review-why-it-claimed-the-title-of-top-notch-gaming-pc/"><u>Alienware Aurora R11 Review - Why It Claimed the Title of Top-Notch Gaming PC</u></a></li>
-<li><a href="https://win-reviews.techidaily.com/aperfeicoando-imagens-com-filtros-fotograficos-e-tecnicas-de-correcao/"><u>Aperfeiçoando Imagens Com Filtros Fotográficos E Técnicas De Correção</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-activate-and-use-life360-ghost-mode-on-vivo-y27-5g-drfone-by-drfone-virtual-android/"><u>How To Activate and Use Life360 Ghost Mode On Vivo Y27 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-achieve-maximum-impact-in-fb-video-ads-use-free-tools/"><u>In 2024, Achieve Maximum Impact in FB Video Ads - Use Free Tools</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/linksys-ae1200-driver-download-made-simple-do-it-today/"><u>Linksys AE1200 Driver Download Made Simple: Do It Today</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-master-2-screen-grab-tools-for-2024/"><u>[New] Master 2 Screen Grab Tools for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-the-buzz-factor-creating-catch-all-content-for-facebook-for-2024/"><u>[New] The Buzz Factor Creating Catch-All Content for Facebook for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-ultimate-8-photo-montage-synthesizer-online/"><u>[Updated] 2024 Approved Ultimate 8 Photo Montage Synthesizer Online</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-lead-the-pack-identifying-the-best-facebook-timetabling-software-for-2024/"><u>[Updated] Lead the Pack Identifying the Best Facebook Timetabling Software for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-mastering-instagram-video-posts-for-2024/"><u>[Updated] Mastering Instagram Video Posts for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-top-10-facebook-video-downloader-for-android-updated/"><u>2024 Approved Top 10 Facebook Video Downloader for Android - Updated</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/how-to-add-music-to-facebook-story-in-2024/"><u>How to Add Music to Facebook Story, In 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-samsung-galaxy-m34-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Samsung Galaxy M34 5G | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-detect-and-remove-spyware-on-xiaomi-redmi-note-12-pro-4g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Remove Spyware on Xiaomi Redmi Note 12 Pro 4G? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-snapsnatcher-fb-media-extraction/"><u>In 2024, SnapSnatcher FB Media Extraction</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-oppo-find-x6-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Oppo Find X6 | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-the-ipogo-get-you-banned-and-how-to-solve-it-on-xiaomi-redmi-note-12-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Will the iPogo Get You Banned and How to Solve It On Xiaomi Redmi Note 12 4G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-catalan-online-in-just-10-minutes-a-day/"><u>Learn Catalan Online In Just 10 Minutes A Day</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-the-ultimate-list-of-free-gif-loop-creators-for-2024/"><u>New The Ultimate List of Free GIF Loop Creators for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/overcoming-technical-challenges-with-fb-live-videos-for-2024/"><u>Overcoming Technical Challenges with FB Live Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/unveil-hidden-watch-visual-artwork-for-2024/"><u>Unveil Hidden Watch Visual Artwork for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/mpegwav/"><u>ワローナビMpegからWavへの効果的な変換ツール -無料でダウンロード可能</u></a></li>
 </ul></div>
 

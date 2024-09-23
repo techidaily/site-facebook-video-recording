@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, The Quick Guide to Quashing Facebook's Flashy Feed"
-date: 2024-09-17T06:08:05.173Z
-updated: 2024-09-18T05:47:44.986Z
+date: 2024-09-20T17:58:26.811Z
+updated: 2024-09-23T04:44:33.678Z
 tags:
   - ai video
   - ai facebook
@@ -72,9 +72,23 @@ If it is already enabled, follow these steps to delete the archived Facebook sto
 
 ![delete Facebook Story from desktop](https://images.wondershare.com/filmora/article-images/facebook-story-archive.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2**: Now, select the Story Archive option that you see on the top. This will show all the archived stories. Next, choose a story that you want to remove permanently. The story will appear. Click on the three dots, and then click on the delete option.
 
 ![delete Facebook Story from archive](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-archive.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 This is how you will remove the stories from Facebook archived.
 
@@ -99,22 +113,15 @@ You can make your stories visible to your friends, customize the viewers, or kee
 ![  Facebook Story privacy option](https://images.wondershare.com/filmora/article-images/facebook-story-privacy-option.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 2:** Now, the privacy setting page will let you choose from- public, friends, and custom. You can hide your story from a few people as well. Choose the one that meets your requirement. Then, go back and share the story.
 
 ![  Facebook Story privacy  ](https://images.wondershare.com/filmora/article-images/facebook-story-privacy.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 5: How to Hide Facebook Story from Specific People?
 
@@ -125,6 +132,13 @@ Facebook has made sharing stories easy because of the multiple features it offer
 ![  Facebook Story hide from specific person  ](https://images.wondershare.com/filmora/article-images/hide-facebook-story-from-specific-people.jpg)
 
 **Step 2:** You will be shown the complete list of people you are connected with on Facebook. Select the people you don't want to share your stories with, and then click on done.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 6: How to Delete Someone Else's Story on Your Facebook?
 
@@ -141,10 +155,10 @@ Facebook stories are a great way to let people know what you are up to. It's sho
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
-  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -162,21 +176,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-streamline-visual-content-expert-mac-tips-for-instagram-video-size/"><u>[New] 2024 Approved Streamline Visual Content Expert Mac Tips for Instagram Video Size</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-aspect-ratio-preferences-on-facebook-vids/"><u>[New] Aspect Ratio Preferences on Facebook Vids</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-uniting-windows-and-mac-users-with-skype-groups-for-2024/"><u>[New] Uniting Windows & Mac Users with Skype Groups for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-facebooks-most-impressive-new-additions-decoded/"><u>[Updated] 2024 Approved Facebook's Most Impressive New Additions Decoded</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-free-up-your-time-with-these-5-chrome-plugins-for-fb-video-downloads-for-2024/"><u>[Updated] Free Up Your Time with These 5 Chrome Plugins for FB Video Downloads for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-facebooks-pivot-to-short-form-content-unpacking-2023-changes/"><u>[Updated] In 2024, Facebook's Pivot to Short-Form Content Unpacking 2023 Changes</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-mastering-reddit-a-step-by-step-guide-for-effective-posts/"><u>[Updated] Mastering Reddit A Step-By-Step Guide for Effective Posts</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-drone-stability-guide-high-ranking-gimbals/"><u>2024 Approved Drone Stability Guide High-Ranking Gimbals</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-how-to-download-facebook-videos-on-windows-and-mac/"><u>2024 Approved How to Download Facebook Videos on Windows and Mac</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-motorola-moto-g-stylus-5g-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Simple and Effective Ways to Change Your Country on YouTube App Of your Motorola Moto G Stylus 5G (2023) | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-socialvideo-saver-messenger-edition/"><u>In 2024, SocialVideo Saver – Messenger Edition</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-turn-youtube-live-feeds-into-mp3-with-online-tools-2023/"><u>In 2024, Turn YouTube Live Feeds Into MP3 with Online Tools 2023</u></a></li>
-<li><a href="https://fox-that.techidaily.com/is-your-iphones-silentring-switch-not-responding-here-are-some-steps-you-can-take-to-fix-it/"><u>Is Your iPhone's Silent/Ring Switch Not Responding? Here Are Some Steps You Can Take To Fix It</u></a></li>
-<li><a href="https://article-files.techidaily.com/mastering-the-art-of-3d-animation-with-elite-design-applications-for-2024/"><u>Mastering the Art of 3D Animation with Elite Design Applications for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/overcoming-fear-of-technology-8-key-motivations-for-teachers-to-embrace-artifice-intelligence/"><u>Overcoming Fear of Technology: 8 Key Motivations for Teachers to Embrace Artifice Intelligence</u></a></li>
-<li><a href="https://techidaily.com/solutions-to-restore-deleted-files-from-red-magic-8s-pro-by-fonelab-android-recover-data/"><u>Solutions to restore deleted files from Red Magic 8S Pro</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-brief-vignettes-facebooks-fast-lane/"><u>[New] Brief Vignettes Facebook’s Fast Lane</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-expert-insights-into-timecode-manipulation-in-macos-srt-files/"><u>[Updated] Expert Insights Into Timecode Manipulation in macOS SRT Files</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-navigating-microsoft-azure-for-text-conversion/"><u>[Updated] Navigating Microsoft Azure for Text Conversion</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-syncing-songs-to-social-networks-iphonesandroid-approach-for-2024/"><u>[Updated] Syncing Songs to Social Networks IPhones/Android Approach for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-why-does-your-facebook-message-feature-a-blue-emoji-uncovering-its-relevance-for-2024/"><u>[Updated] Why Does Your FaceBook Message Feature a Blue Emoji? Uncovering Its Relevance for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-error-code-963-on-google-play-of-realme-gt-3-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Error Code 963 on Google Play Of Realme GT 3 | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/how-to-remove-password-in-windows-10-easily/"><u>How to Remove Password in Windows 10. Easily!</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-precise-voice-adjustments-for-pubg-success/"><u>In 2024, Precise Voice Adjustments for PUBG Success</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/profile-persona-painting-crafting-an-animated-imagery/"><u>Profile Persona Painting Crafting an Animated Imagery</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/quick-download-of-razer-mamba-drivers-simple-and-fast/"><u>Quick Download of Razer Mamba Drivers - Simple and Fast</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/top-11-free-and-premium-2d-animation-programs-of-2024-a-comprehensive-guide/"><u>Top 11 Free & Premium 2D Animation Programs of 2024: A Comprehensive Guide</u></a></li>
+<li><a href="https://games-able.techidaily.com/top-20-versatile-game-pairs-for-social-fun-across-devices/"><u>Top 20 Versatile Game Pairs for Social Fun Across Devices</u></a></li>
 </ul></div>
 
