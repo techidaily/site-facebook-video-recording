@@ -539,14 +539,5 @@ So, that's how you can find watched videos on Facebook. The steps are pretty eas
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<span class="atpl-alsoreadstyle">Also read:</span>
-<div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-craft-viral-stories-on-fb-with-pro-tips/"><u>[Updated] 2024 Approved Craft Viral Stories on FB with Pro Tips</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-enhancing-user-experience-recovering-lost-youtubefb-videos/"><u>[Updated] 2024 Approved Enhancing User Experience Recovering Lost YouTube/FB Videos</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/download-harmony-free-music-from-fb/"><u>Download Harmony Free Music From FB</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-vivo-t2-pro-5g-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Vivo T2 Pro 5G to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-streamlines-language-acquisition-new-edition/"><u>Mondly Streamlines Language Acquisition - New Edition!</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/toms-tech-insights-expert-hardware-analysis-and-reviews/"><u>Tom's Tech Insights: Expert Hardware Analysis and Reviews</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/turning-tides-in-visuals-mastering-the-art-of-angles-and-rotations-on-insta-for-2024/"><u>Turning Tides in Visuals Mastering the Art of Angles and Rotations on Insta for 2024</u></a></li>
-</ul></div>
+
 
