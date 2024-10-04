@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Dive Deep  Accessing Facebook's Story Vault\""
-date: 2024-09-27T22:39:19.931Z
-updated: 2024-09-29T10:57:59.986Z
+date: 2024-10-01T21:52:02.936Z
+updated: 2024-10-04T21:39:51.114Z
 tags:
   - ai video
   - ai facebook
@@ -57,19 +57,6 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 
 ![facebook story archive](https://images.wondershare.com/filmora/article-images/2021/facebook-story-archive.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 4:** After this, you would be shown all the stories sequentially in the Story Archives section.
 
 Thus how to view old stories on Facebook desktop is very easy with above above-mentioned easy steps.
@@ -102,15 +89,22 @@ The only chance is that if your friend has uploaded those stories on highlights 
 
 ![see friends old fb story](https://images.wondershare.com/filmora/article-images/2021/see-friends-old-fb-story.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 An old highlighted story shared by your friend would appear on your friend’s profile below the Friends section and above create post option as Story Highlights.
 
 So for the above discussed all ways the only must thing is to setting archive on which would allow you to re-watch stories again and solve your doubt of how to view old stories on Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 5: How to Create Facebook Videos with Ease?
@@ -148,10 +142,10 @@ You can crop, trim, cut, split, and merge your video in a few clicks in Wondersh
 Also, you can add various text effects and add Lower 3rds and subtitles. It has nearly 300 filters, overlays, and elements embedded in Filmora that you can use for your Facebook video and make it look amazing.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Export and Share
@@ -171,10 +165,10 @@ Happy editing!
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -192,20 +186,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-the-ultimate-facebook-video-players-list/"><u>[New] 2024 Approved The Ultimate Facebook Video Players List</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-decoding-the-download-your-guide-to-fb-videography-for-2024/"><u>[New] Decoding the Download Your Guide to FB Videography for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-essential-list-high-quality-cost-free-meeting-platforms/"><u>[New] Essential List High-Quality, Cost-Free Meeting Platforms</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-from-broadcasting-basics-to-facebook-live-with-wirecast/"><u>[New] From Broadcasting Basics to Facebook Live with Wirecast</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-youtube-studios-pathway-to-high-quality-videography/"><u>[New] In 2024, YouTube Studio's Pathway to High-Quality Videography</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-exploring-the-reasons-behind-blue-icons-in-facebooks-chat-communication/"><u>[Updated] Exploring the Reasons Behind Blue Icons in Facebook’s Chat Communication</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-instagram-success-the-leading-25-tagging-tactics/"><u>[Updated] In 2024, Instagram Success The Leading 25 Tagging Tactics</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-memory-map-maker/"><u>[Updated] Memory Map Maker</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-sky-high-success-on-social-media-mastering-dji-drone-streams/"><u>[Updated] Sky-High Success on Social Media Mastering DJI Drone Streams</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/convert-video-files-for-free-transform-flv-into-high-quality-flac-using-movavis-service/"><u>Convert Video Files for Free - Transform FLV Into High-Quality FLAC Using Movavi's Service</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-app-not-available-in-your-country-play-store-problem-on-oneplus-nord-n30-se-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix App Not Available in Your Country Play Store Problem on OnePlus Nord N30 SE | Dr.fone</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-mastering-subtitle-manipulation-in-macos/"><u>In 2024, Mastering Subtitle Manipulation in macOS</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-the-guide-to-earning-through-streams-dm-and-yo-unveiled/"><u>In 2024, The Guide to Earning Through Streams Dm & Yo Unveiled</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/mastery-manual-downloading-hd-videos-on-todays-digital-landscapes/"><u>Mastery Manual Downloading HD Videos on Today's Digital Landscapes</u></a></li>
-<li><a href="https://fox-that.techidaily.com/unlocking-iphones-hidden-potential-mastering-the-use-of-dfu-mode/"><u>Unlocking iPhone's Hidden Potential: Mastering the Use of DFU Mode</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-choose-your-view-facebook-video-aspect-ratio-for-2024/"><u>[New] Choose Your View Facebook Video Aspect Ratio for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-echoing-social-engagement-transferring-tiktok-videos-on-facebook-for-2024/"><u>[New] Echoing Social Engagement Transferring TikTok Videos on Facebook for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-essential-tips-for-zooming-on-snapchat-shots-for-2024/"><u>[New] Essential Tips for Zooming on Snapchat Shots for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/76263904-new-in-2024-revolutionize-your-branding-50-free-youtube-banners-inside/"><u>[New] In 2024, Revolutionize Your Branding - 50 Free YouTube Banners Inside!</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-top-underground-sources-for-smart-fb-memes-for-2024/"><u>[New] Top Underground Sources for Smart FB Memes for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-web-accessory-fb-stories-keeper/"><u>[New] Web Accessory FB Stories Keeper</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-engaging-creativity-crafting-compelling-facebook-ads/"><u>[Updated] In 2024, Engaging Creativity Crafting Compelling Facebook Ads</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-how-to-create-captivating-videos-an-introduction-to-fb-reels/"><u>[Updated] In 2024, How to Create Captivating Videos An Introduction to FB Reels</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-master-the-art-of-backup-phones-camera-roll-upload-to-social-apps/"><u>[Updated] In 2024, Master the Art of Backup Phone's Camera Roll Upload to Social Apps</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-quest-conquerors-best-of-the-role-playing-worlds-for-2024/"><u>[Updated] Quest Conquerors Best of the Role-Playing Worlds for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/banishing-sound-bugs-from-your-virtual-realm-of-new-world/"><u>Banishing Sound Bugs From Your Virtual Realm of 'New World'</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/building-brand-loyalty-crafting-striking-fb-videos-for-2024/"><u>Building Brand Loyalty Crafting Striking FB Videos for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/download-and-install-usb-30-compatible-drivers-for-windows-systems/"><u>Download and Install USB 3.0 Compatible Drivers for Windows Systems</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/how-to-share-tiktok-videos-to-facebook-for-2024/"><u>How to Share TikTok Videos to Facebook for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-stream-anything-from-gionee-f3-pro-to-apple-tv-drfone-by-drfone-android/"><u>In 2024, How To Stream Anything From Gionee F3 Pro to Apple TV | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-navigating-video-visibility-barriers-in-social-networking/"><u>In 2024, Navigating Video Visibility Barriers in Social Networking</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/step-by-step-guide-toggling-onoff-screen-keyboard-feature-on-windows-10/"><u>Step-by-Step Guide: Toggling On/Off Screen Keyboard Feature on Windows 10</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-conversations-a-guide-to-facebooks-advanced-moderation-tools/"><u>Streamlining Conversations: A Guide to Facebook's Advanced Moderation Tools</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/webcam-filming-made-professional-in-no-time/"><u>Webcam Filming Made Professional in No Time</u></a></li>
 </ul></div>
 

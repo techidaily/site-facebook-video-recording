@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Enhancing Video Aesthetics with BB and LC Overlays on Facebook"
-date: 2024-09-27T06:16:33.246Z
-updated: 2024-09-29T12:10:57.326Z
+date: 2024-09-29T21:18:19.343Z
+updated: 2024-10-04T16:11:50.394Z
 tags:
   - ai video
   - ai facebook
@@ -69,6 +69,20 @@ And you can also go to the **Elements** tab, and add some creative elements such
 
 ![post-on-facebook](https://images.wondershare.com/filmora/article-images/post-on-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Method 2: Create a Letterbox by Adding Text Shapes
 
 This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). Let us see the steps below:
@@ -77,45 +91,24 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 
 ![import-square-video](https://images.wondershare.com/filmora/article-images/import-square-video.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * 2\. Then drag and drop your source video to the timeline. No black bars will appear automatically like in Method 1
 
 ![no-letterbox](https://images.wondershare.com/filmora/article-images/no-letterbox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * 3\. To create a letterbox, choose the option **Titles**. Now you will be shown a variety of subtitles and credit styles
 * 4\. Select **Subtitles**, then add a subtitle style that has a black background to your video, such as Subtitle 1,2,3, etc.
 
 ![add-doll-subtitle](https://images.wondershare.com/filmora/article-images/add-doll-subtitle.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * 5\. You will see that the subtitle appears on the video in real time. Here you can adjust the width and height of the subtitle. Make it so that that black bar covers the lower end of the video completely and delete the text
 
 ![custom-letterbox](https://images.wondershare.com/filmora/article-images/custom-letterbox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * 6\. Drag and drop the subtitle again from the Titles-Subtitles option. This time for the top section of the video
@@ -123,10 +116,10 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 ![add-subtitle-again](https://images.wondershare.com/filmora/article-images/add-subtitle-again.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * 7\. You can input your own texts in the box or delete the text as you want, and you will be left with a video that has black bars on the top and bottom
@@ -138,10 +131,10 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 ![post-my-video](https://images.wondershare.com/filmora/article-images/post-my-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## To Sum up
@@ -151,13 +144,20 @@ Adding a letterbox, then designing your own texts, elements and filters will bri
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -174,18 +174,17 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://blue-screen-error.techidaily.com/fixed-windows-10-blue-screen-error-after-update/"><u>[Fixed] Windows 10 Blue Screen Error After Update</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-revealing-the-12-paths-fixing-non-appearing-fb-video-posts-now/"><u>[New] 2024 Approved Revealing The 12 Paths Fixing Non-Appearing FB Video Posts, Now</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-facebooks-vision-for-video-unpacking-the-short-form-movement/"><u>[New] Facebook's Vision for Video Unpacking the Short Form Movement</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-discover-every-shared-element-with-friends/"><u>[New] In 2024, Discover Every Shared Element with Friends</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-the-instagram-live-guide-conversation-tools-unveiled/"><u>[New] The Instagram Live Guide Conversation Tools Unveiled</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-unwind-and-learn-your-guide-to-podcasting-multitasking/"><u>[New] Unwind and Learn Your Guide to Podcasting Multitasking</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-visionsnap-tech-your-guide-to-the-best-of-2023-for-2024/"><u>[New] VisionSnap Tech – Your Guide to the Best of 2023 for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-ranking-8-real-time-strategies-to-grow-youtube-success-for-2024/"><u>[Updated] Ranking 8 Real-Time Strategies to Grow YouTube Success for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-from-youtube-to-insta-a-video-posting-guide/"><u>2024 Approved From YouTube to Insta A Video Posting Guide</u></a></li>
-<li><a href="https://win-dash.techidaily.com/1722969958013-download-and-update-your-mbox-vehicles-drivers-easy-steps-for-windows-users/"><u>Download & Update Your MBox Vehicle's Drivers - Easy Steps for Windows Users</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-changeadd-location-filters-on-snapchat-for-your-samsung-galaxy-a54-5g-drfone-by-drfone-virtual-android/"><u>How to Change/Add Location Filters on Snapchat For your Samsung Galaxy A54 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/how-to-share-tiktok-videos-to-facebook-in-2024/"><u>How to Share TikTok Videos to Facebook, In 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/unleashing-creativity-how-to-master-io-screen-capture-for-2024/"><u>Unleashing Creativity How to Master IO Screen Capture for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-soundtrack-synthesis-crafting-scenes-in-imovie/"><u>[New] Soundtrack Synthesis Crafting Scenes in iMovie</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-facebook-media-extractor-mp3-focus/"><u>[Updated] 2024 Approved Facebook Media Extractor – MP3 Focus</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-navigating-social-feeds-with-panoramic-content-a-guide-for-iosandroid-users/"><u>[Updated] 2024 Approved Navigating Social Feeds with Panoramic Content A Guide for iOS/Android Users</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-enhancing-profile-clips-for-impact/"><u>[Updated] Enhancing Profile Clips for Impact</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-how-to-craft-standout-names-for-your-youtube-channel-for-2024/"><u>[Updated] How to Craft Standout Names for Your YouTube Channel for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-unveiling-1-ranked-ios-apps-to-download-facebook-videos-and-gigs-for-2024/"><u>[Updated] Unveiling #1 Ranked iOS Apps to Download Facebook Videos and Gigs for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/how-to-add-music-to-a-video-on-iphone-3-free-ways/"><u>How to Add Music to a Video on iPhone [3 FREE WAYS]</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-infinix-hot-30i-drfone-by-drfone-virtual-android/"><u>In 2024, Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Infinix Hot 30i | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/journey-through-the-metaverse-discovering-iconic-memes-for-2024/"><u>Journey Through the Metaverse Discovering Iconic Memes for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/optimizing-large-scale-video-migrations-from-iphone-to-mac-systems-for-2024/"><u>Optimizing Large-Scale Video Migrations From iPhone to Mac Systems for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/secrets-to-successful-scrape-mass-tiktok-videos-for-2024/"><u>Secrets to Successful Scrape Mass TikTok Videos for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/stuck-at-android-system-recovery-of-vivo-v27e-fix-it-easily-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Stuck at Android System Recovery Of Vivo V27e ? Fix It Easily | Dr.fone</u></a></li>
 </ul></div>
 

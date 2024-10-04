@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Tracing Back on Facebook  A Laptop & Mobile Recipe\""
-date: 2024-09-20T05:09:54.718Z
-updated: 2024-09-22T22:15:07.999Z
+date: 2024-09-27T16:55:13.097Z
+updated: 2024-10-04T21:28:36.346Z
 tags:
   - ai video
   - ai facebook
@@ -56,10 +56,10 @@ By clicking on the **More option**, you will see a few more options appear. Clic
 On the story archive option, you will see three dots on the top right option. It provides you with a choice to save stories or not. You can turn on the save archives option to save every story you post so that you can view it later.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105863/7443" target="_top" id="2105863">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105863" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105863/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How to View Stories on Facebook Desktop?
@@ -77,10 +77,10 @@ Once you click on the story archive, all your **old stories** will appear in seq
 **Note:** You can only view stories through the above process if you have turned on your story archive option. Click on settings to turn it on or off as per your choice.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: How to View A Friend’s Old Facebook Story?
@@ -101,6 +101,13 @@ People make a **series of highlights** and name them accordingly. If the story i
 
 **Note:** A person or a user has to click on the star highlight sign to save stories for the future. If they do not select the highlight option, stories will disappear after 24 hours, and there is no way to view them in the future. Hence, this option is only applicable when a user has saved their stories for public view.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4: How to Save Posts from Your Stories Archive to Your Device?
 
 We tend not to save stories to our devices when clicking them directly from the Facebook app. However, you can save a post to your device from the stories archive using simple steps. Let's see how to do it:
@@ -118,10 +125,10 @@ After visiting the story archive, click on the story you wish to save. Click on 
 After you click three dots, you will see a save and delete photo option. Click on the **save option** to download it to your device.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 5: How to See Old Stories on a Facebook Business Page?
@@ -146,13 +153,6 @@ Facebook is an excellent platform to interact with your audience, and the story 
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -166,5 +166,23 @@ Follow @Liza Brown
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-master-facebook-broadcasting-with-devices-and-obs-studio/"><u>[New] 2024 Approved Master Facebook Broadcasting with Devices and OBS Studio</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-mastering-fb-video-in-hd-1080p-techniques/"><u>[New] Mastering FB Video in HD 1080P Techniques</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-maximizing-visibility-on-twitter-campaigns/"><u>[New] Maximizing Visibility on Twitter Campaigns</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-from-fast-paced-footage-to-staggeringly-slow-motion-videos-a-comprehensive-ig-reel-guide/"><u>[Updated] 2024 Approved From Fast-Paced Footage to Staggeringly Slow Motion Videos A Comprehensive IG Reel Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-a-step-by-step-guide-for-creating-channel-trailers-that-convert-viewers-into-customers/"><u>[Updated] In 2024, A Step-by-Step Guide for Creating Channel Trailers that Convert Viewers Into Customers</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-accelerating-profile-lookups-on-facebook/"><u>[Updated] In 2024, Accelerating Profile Lookups on Facebook</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-revolutionize-your-fb-video-strategy-with-these-ideas-for-2024/"><u>[Updated] Revolutionize Your FB Video Strategy with These Ideas for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-stumble-upon-these-hidden-meme-page-treasures/"><u>[Updated] Stumble Upon These Hidden Meme Page Treasures</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-unveiling-the-most-economical-cloud-stores/"><u>[Updated] Unveiling the Most Economical Cloud Stores</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/0x800705b3-error-code-when-tried-to-update-on-windows-11-solved/"><u>0X800705B3 Error Code When Tried to Update on Windows 11 [Solved]</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-reasons-why-you-should-learn-afrikaans/"><u>10 Reasons Why You Should Learn Afrikaans</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-movie-substitutes-to-explore-top-7-choices/"><u>2024 Approved Movie Substitutes to Explore - Top 7 Choices</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-snappy-narratives-on-the-social-scene/"><u>In 2024, Snappy Narratives on the Social Scene</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-unlock-fb-lite-content-discover-the-best-video-downloader-apps/"><u>In 2024, Unlock FB Lite Content Discover the Best Video Downloader Apps</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/navigating-webcam-features-on-apples-macbook/"><u>Navigating Webcam Features on Apple's MacBook</u></a></li>
+<li><a href="https://ai-voice.techidaily.com/top-ai-rap-voice-generators-upgrade-your-rap/"><u>Top AI Rap Voice Generators Upgrade Your Rap</u></a></li>
+</ul></div>
 

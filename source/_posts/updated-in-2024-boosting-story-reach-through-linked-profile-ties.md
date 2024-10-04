@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Boosting Story Reach Through Linked Profile Ties"
-date: 2024-08-29T05:11:58.036Z
-updated: 2024-08-30T05:11:58.036Z
+date: 2024-10-03T16:34:33.378Z
+updated: 2024-10-04T19:36:36.258Z
 tags:
   - ai video
   - ai facebook
@@ -51,15 +51,19 @@ Note: Before we share the steps that you need to follow, please keep in mind tha
 
 ![create Facebook Page story](https://images.wondershare.com/filmora/article-images/create-story-on-facebook-page.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2:** You need to type the website name and, on the top, you will see the link icon. Once you are ready with the website name, click on the link icon. Now can choose some buttons based on what kind of link you have shared. For example, shop now, book now, call now, and so on.
 
 ![add link to Facebook Page story](https://images.wondershare.com/filmora/article-images/add-link-to-facebook-story.jpg)
 
 And that’s it; your story will be added to Facebook Story.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ## Part 3: How to Add Link to Facebook Story Using WhatsApp?
 
 Facebook acquired WhatsApp in February 2014, and since both the apps are connected with each other, you can easily cross-post your WhatsApp status on the Facebook Story page. WhatsApp status feature is the same as Facebook story. It stays for 24 hours.
@@ -71,8 +75,12 @@ Facebook acquired WhatsApp in February 2014, and since both the apps are connect
 ![add WhatsApp status](https://images.wondershare.com/filmora/article-images/add-whatsapp-status.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 **Step 3:** On your status page, you can add the link you want people to see. Now, share the link. Once done, right below your My Status, you will see an option “Share to Facebook Story.” To cross-post your WhatsApp status with the link, please click on “Share to Facebook Story.”
 
 ![share WhatsApp status to facebook story](https://images.wondershare.com/filmora/article-images/share-whatsapp-status-to-facebook-story.jpg)
@@ -93,6 +101,13 @@ You will be redirected to the Facebook app. There you will be asked if you want 
 
 ![share youtube video to facebook  story ](https://images.wondershare.com/filmora/article-images/share-youtube-video-link-to-facebook-story.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 And you will see the Story with YouTube video link at the top of your Story section.
 
 ## Part 5: How to Add A Swipe Up Link on Facebook Story?
@@ -105,20 +120,34 @@ Facebook stories offer another feature, which is known as the Swipe Up Link. On 
 
 ![add swipe up button to Facebook story](https://images.wondershare.com/filmora/article-images/add-swipe-up-button-facebook-story.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 3:** On your story page, you see a link icon. Click on that, and you will be able to add the link you want to add to the story. Choose any of the buttons, and the link will now be ready.
 
 ![add link to swipe up button to Facebook story](https://images.wondershare.com/filmora/article-images/add-link-to-swipe-up-button-facebook-story.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Please note that the swipe option will be visible to your audience only after you have added the link.
 
 ![Filmora logo](https://images.wondershare.com/filmora/logo_icon/wondershare-filmora-logo-horizontal.png) ![filmora product interface](https://images.wondershare.com/filmora/images/common/filmora-product-banner.png)
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Social Media Video Maker and Editor
 
 * Merge your photos into a video with simple clicks.
@@ -136,12 +165,6 @@ For macOS 10.12 or later
 
 ![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg)Secure Download
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 So, that’s it. These are some ways to **add a link to** your **Facebook story.** We hope this article has been helpful to you. Leverage this feature if you are a business page or an influencer and want more people to engage with your website and your brand.
@@ -149,15 +172,17 @@ So, that’s it. These are some ways to **add a link to** your **Facebook story.
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -165,3 +190,24 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-precision-photography-and-videography-prime-lens-excellence-in-4k/"><u>[New] 2024 Approved Precision Photography & Videography Prime Lens Excellence in 4K</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-best-webcams-elevating-podcast-aesthetics/"><u>[New] Best Webcams Elevating Podcast Aesthetics</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-explore-these-8-sizzling-social-media-sensations-on-fb-for-2024/"><u>[New] Explore These 8 Sizzling Social Media Sensations on FB for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-guidelines-for-responsible-content-disclosure-in-online-spaces-like-fb/"><u>[New] In 2024, Guidelines for Responsible Content Disclosure in Online Spaces Like FB</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-quick-guide-streamlining-video-calls-on-xbox-one/"><u>[New] In 2024, Quick Guide Streamlining Video Calls on Xbox One</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-integrating-facebook-video-into-home-screen-apps-for-2024/"><u>[New] Integrating Facebook Video Into Home Screen Apps for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-chucklechain-master-the-art-of-memes-at-home/"><u>[Updated] ChuckleChain Master the Art of Memes at Home</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-screentogif-facebook-mobile-video-for-2024/"><u>[Updated] ScreenToGif Facebook Mobile Video for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-deciphering-numbers-an-introduction-to-facebook-insight/"><u>2024 Approved Deciphering Numbers An Introduction to Facebook Insight</u></a></li>
+<li><a href="https://driver-download.techidaily.com/amd-ryzen-5-2600-graphics-driver-download-fast-and-simple-steps/"><u>AMD Ryzen 5 2600 Graphics Driver Download: Fast and Simple Steps</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/cross-platform-guide-extracting-facebook-video-content/"><u>Cross-Platform Guide Extracting Facebook Video Content</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/discover-the-ultimate-list-18-premier-freeware-video-compressors-for-pc-and-mac/"><u>Discover the Ultimate List: 18 Premier Freeware Video Compressors for PC and Mac</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/elevate-your-graphics-experience-nvidia-geforce-rtx-3090-drivers-for-windows-legacy-versions-10-8-and-7/"><u>Elevate Your Graphics Experience: NVIDIA GeForce RTX 3090 Drivers for Windows Legacy Versions (10, 8 & 7)</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-remove-google-frp-lock-on-realme-narzo-n53-by-drfone-android-unlock-remove-google-frp/"><u>How to remove Google FRP Lock on Realme Narzo N53</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-call-history-on-motorola-edge-40-by-fonelab-android-recover-call-logs/"><u>How to restore wiped call history on Motorola Edge 40?</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/top-picks-free-fb-to-mp4-file-transformers/"><u>Top Picks Free FB to MP4 File Transformers</u></a></li>
+</ul></div>
+

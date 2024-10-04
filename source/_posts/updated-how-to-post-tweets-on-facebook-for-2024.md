@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Post Tweets on Facebook for 2024"
-date: 2024-09-21T19:41:19.395Z
-updated: 2024-09-23T03:46:06.349Z
+date: 2024-09-27T21:55:38.166Z
+updated: 2024-10-04T18:44:25.455Z
 tags:
   - ai video
   - ai facebook
@@ -30,10 +30,10 @@ thumbnail: https://thmb.techidaily.com/d4a38ebeef7fcde8439a2a50391d7bd9b46cb2287
  In today's fast paced life, it's time-consuming to manage multiple accounts on different social media platforms manually. Fortunately, you can set your Twitter account and sync it with Facebook to kill two birds with a single stone. You can post Tweets to Facebook automatically as updates, sparing your personal intervention. Automatic posting of Tweets on Facebook ensures your friends on both platforms get your updates without the extra work.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148636/16836" target="_top" id="2148636">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148636" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148636/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Post Tweets to Facebook – Step by Step guide
@@ -46,38 +46,39 @@ thumbnail: https://thmb.techidaily.com/d4a38ebeef7fcde8439a2a50391d7bd9b46cb2287
 
 ![post tweet on facebook 1](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 1. Once you login to your Twitter account, tap on your profile picture on the top right corner of the screen, next to the ‘Tweet' tab.
 2. Now, from the dropdown list shown to you, click ‘Settings and privacy' and then open the ‘Apps' tab from the left panel.
 
 ![post tweet on facebook 2](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 1. Now, hit the ‘Connect to Facebook' option under Applications. You will be prompted with a popup to log in, in case you haven't logged in to Facebook on the same browser. Enter the details and log in.
 
 ![post tweet on facebook 3](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-3.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1542129">
-					<video width="864" height="1152" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 1. Upon being prompted for permission from Twitter to access your Facebook information, click ‘Continue as \[Facebook Profile/user name\]' to continue.
 
 ![post tweet on facebook 4](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151872/7443" target="_top" id="2151872">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151872" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151872/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 1. Now you need to configure the ‘Select the privacy settings' to decide who is going to receive your Twitter updates on Facebook. When you post Tweets to Facebook, by default your friends will get to see them.
 2. Now, you need to tap ‘OK' and finish the process. The Tweets and Retweets will be posted to your Facebook with your Twitter username, though the replies for the Tweets won't be posted in Facebook.
@@ -192,13 +193,6 @@ thumbnail: https://thmb.techidaily.com/d4a38ebeef7fcde8439a2a50391d7bd9b46cb2287
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -212,5 +206,24 @@ Follow @Liza Brown
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-from-capture-to-share-the-art-of-live-360-broadcasting-on-fb/"><u>[New] 2024 Approved From Capture to Share The Art of Live 360 Broadcasting on FB</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-lyrics-notes-and-beats-fb-style/"><u>[New] 2024 Approved Lyrics, Notes, and Beats - FB Style</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-easeus-tech-diverse-viewpoints-for-2024/"><u>[New] EaseUS Tech, Diverse Viewpoints for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-frameworks-for-dynamic-fb-video-marketing/"><u>[New] In 2024, Frameworks for Dynamic FB Video Marketing</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-maximizing-facebook-fame-8-premier-apps-for-like-boosting/"><u>[New] In 2024, Maximizing Facebook Fame 8 Premier Apps for Like Boosting</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-revisit-and-refine-your-past-editing-fbs-look-back-videos/"><u>[New] In 2024, Revisit and Refine Your Past Editing FB's Look Back Videos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-primes-peak-performers-highest-tweets-and-viewing-numbers/"><u>[Updated] In 2024, Prime’s Peak Performers Highest Tweets & Viewing Numbers</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-mastering-knowledge-acquisition-beyond-virtual-videos/"><u>[Updated] Mastering Knowledge Acquisition Beyond Virtual Videos</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-harmonizing-visual-narratives-with-live-sounds/"><u>2024 Approved Harmonizing Visual Narratives with Live Sounds</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/binge-worthy-vids-the-most-shared-content-on-fb-featured-here/"><u>Binge-Worthy Vids! The Most Shared Content on FB Featured Here</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/direct-link-to-download-focusrites-scarlett-2i2-drivers-on-windows-systems/"><u>Direct Link to Download Focusrite's Scarlett 2I2 Drivers on Windows Systems</u></a></li>
+<li><a href="https://win-blog.techidaily.com/expert-advice-on-starting-call-of-duty-black-ops-4-when-it-fails-to-load-initially/"><u>Expert Advice on Starting Call of Duty Black Ops 4 When It Fails to Load Initially</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-gopro-expertise-unleashed-livestreams-directed-at-periscope-and-facebook/"><u>In 2024, Gopro Expertise Unleashed Livestreams Directed at Periscope & Facebook</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/maximizing-iphones-capabilities-for-stunning-landscape-pics-for-2024/"><u>Maximizing iPhone's Capabilities for Stunning Landscape Pics for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/physical-prowess-meets-online-opinions/"><u>Physical Prowess Meets Online Opinions</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/twitter-videography-made-simple-a-step-by-step-handbook-for-seamless-video-shares/"><u>Twitter Videography Made Simple: A Step-by-Step Handbook for Seamless Video Shares</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/upgraded-msi-motherboards-now-adheres-to-intels-official-power-specs-with-i9-cpus-to-tackle-crash-concerns-as-intel-probes-further/"><u>Upgraded MSI Motherboards: Now Adheres to Intel's Official Power Specs with I9 CPUs to Tackle Crash Concerns as Intel Probes Further</u></a></li>
+</ul></div>
 
