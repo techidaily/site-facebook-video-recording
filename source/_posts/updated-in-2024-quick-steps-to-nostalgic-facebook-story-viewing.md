@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Quick Steps to Nostalgic Facebook Story Viewing"
-date: 2024-10-01T17:34:11.188Z
-updated: 2024-10-04T17:33:05.199Z
+date: 2024-10-03T18:55:16.417Z
+updated: 2024-10-10T01:07:32.259Z
 tags:
   - ai video
   - ai facebook
@@ -57,22 +57,21 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 
 ![facebook story archive](https://images.wondershare.com/filmora/article-images/2021/facebook-story-archive.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 4:** After this, you would be shown all the stories sequentially in the Story Archives section.
 
 Thus how to view old stories on Facebook desktop is very easy with above above-mentioned easy steps.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: How to Watch Old Stories on Facebook on your Mobile?
@@ -87,16 +86,16 @@ You can find and see the old stories on Facebook with the help of the archived s
 
 ![watch old stories facebook](https://images.wondershare.com/filmora/article-images/2021/watch-old-stories-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 4:** Scroll towards the right and select on Story Archives tab.
 
 ![story archive facebook mobile](https://images.wondershare.com/filmora/article-images/2021/story-archive-facebook-mobile.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 5:** Now you would get to see all the old stories you have created sequentially from newest to oldest order.
 
@@ -111,10 +110,16 @@ The only chance is that if your friend has uploaded those stories on highlights 
 ![see friends old fb story](https://images.wondershare.com/filmora/article-images/2021/see-friends-old-fb-story.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1770526">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 An old highlighted story shared by your friend would appear on your friend’s profile below the Friends section and above create post option as Story Highlights.
@@ -171,6 +176,13 @@ Happy editing!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -186,24 +198,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-boosting-your-browser-lightning-speed-profile-hunts/"><u>[New] In 2024, Boosting Your Browser Lightning Speed Profile Hunts</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-instantaneously-showcasing-archived-video-sessions-via-facebook-live/"><u>[New] In 2024, Instantaneously Showcasing Archived Video Sessions via Facebook Live</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-scan-for-collective-shared-content-on-messenger/"><u>[New] Scan for Collective Shared Content on Messenger</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-smart-compilation-best-6-fb-lite-videos-for-2024/"><u>[Updated] Smart Compilation Best 6 FB Lite Videos for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-enhance-your-fb-with-iphonesandroids-favorite-tunes/"><u>2024 Approved Enhance Your FB with iPhones/Androids' Favorite Tunes</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-immediate-fixes-s-facebook-password-woes/"><u>2024 Approved Immediate Fixes 'S Facebook Password Woes</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-leading-tools-top-6-fb-lite-video-extractors/"><u>2024 Approved Leading Tools TOP 6 FB Lite Video Extractors</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-mastery-guide-swiftly-switching-facebook-profile-pictures/"><u>2024 Approved Mastery Guide Swiftly Switching Facebook Profile Pictures</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/1725284739613-dvd/"><u>最新の無料DVDコピーツールで成功する手引き:問題解決と製品レビュー</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/comprehensively-understanding-hands-directive-controls-for-2024/"><u>Comprehensively Understanding Hands' Directive Controls for 2024</u></a></li>
-<li><a href="https://win-studio.techidaily.com/dual-video-display-top-6-methods-for-simultaneous-playback-on-desktops-and-smartphones/"><u>Dual Video Display: Top 6 Methods for Simultaneous Playback on Desktops & Smartphones</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-pause-life360-location-sharing-for-nokia-c32-drfone-by-drfone-virtual-android/"><u>How To Pause Life360 Location Sharing For Nokia C32 | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-reset-your-honor-magic-v2-lock-screen-password-by-drfone-android/"><u>How to Reset your Honor Magic V2 Lock Screen Password</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-contacts-files-from-c53-by-fonelab-android-recover-contacts/"><u>How To Restore Missing Contacts Files from C53.</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-frp-from-motorola-g24-power-by-drfone-android/"><u>In 2024, How to Bypass FRP from Motorola G24 Power?</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/in-2024-subtlety-in-sound-decreasing-decibels-in-logic-pro-projects/"><u>In 2024, Subtlety in Sound Decreasing Decibels in Logic Pro Projects</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/recommended-best-applications-for-mirroring-your-vivo-y200e-5g-screen-drfone-by-drfone-android/"><u>Recommended Best Applications for Mirroring Your Vivo Y200e 5G Screen | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/social-simulacrum-sketches-designing-distorted-digital-selves-for-2024/"><u>Social Simulacrum Sketches Designing Distorted Digital Selves for 2024</u></a></li>
-<li><a href="https://win11.techidaily.com/solutions-for-missing-banner-icons/"><u>Solutions for Missing Banner Icons</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-how-to-optimize-facebook-seo-with-10-surefire-ways/"><u>[New] 2024 Approved How to Optimize Facebook SEO with 10 Surefire Ways</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-taking-your-tweets-public-on-facebook/"><u>[New] 2024 Approved Taking Your Tweets Public on Facebook</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-the-leading-edge-in-online-advertising-fb-insights/"><u>[New] 2024 Approved The Leading Edge in Online Advertising FB Insights</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-capitalizing-on-hairstyle-demonstrations-for-2024/"><u>[New] Capitalizing on Hairstyle Demonstrations for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-discover-whats-hot-and-why-todays-top-8-videos/"><u>[Updated] Discover What’s Hot and Why Today’s Top 8 Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-seamless-techniques-for-swift-removal-of-your-youtube-comments/"><u>[Updated] In 2024, Seamless Techniques for Swift Removal of Your Youtube Comments</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578913208-how-to-say-thank-you-in-30-different-languages/"><u>How To Say Thank You In 30 Different Languages</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-different-methods-to-unlock-your-iphone-15-drfone-by-drfone-ios/"><u>In 2024, Different Methods To Unlock Your iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-metaverse-explorers-best-virtual-reality-list/"><u>In 2024, Metaverse Explorers Best Virtual Reality List</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-professional-videographers-choice-for-screen-recordings/"><u>In 2024, Professional Videographer's Choice for Screen Recordings</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-why-is-my-social-media-not-showing-suggested-youtube-videos/"><u>In 2024, Why Is My Social Media Not Showing Suggested YouTube Videos?</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/keyboard-shortcuts-that-power-up-win11/"><u>Keyboard Shortcuts That Power Up Win11</u></a></li>
+<li><a href="https://games-able.techidaily.com/premium-game-screens-165hz-performance/"><u>Premium Game Screens - 165Hz Performance</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/recording-facebook-video-calls-4-methods/"><u>Recording Facebook Video Calls [4 Methods]</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/the-role-of-lighting-in-professional-youtube-content-creation-for-2024/"><u>The Role of Lighting in Professional YouTube Content Creation for 2024</u></a></li>
 </ul></div>
 

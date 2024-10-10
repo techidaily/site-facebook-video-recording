@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Aesthetic Video Upgrade  Implement LC Overlay & Black Bars on Facebook\""
-date: 2024-09-30T17:22:43.056Z
-updated: 2024-10-04T19:17:45.032Z
+date: 2024-10-03T16:48:33.154Z
+updated: 2024-10-09T21:52:20.110Z
 tags:
   - ai video
   - ai facebook
@@ -37,19 +37,6 @@ Want to have a try? Come on!
 
 A square video in a **1:1 aspect ratio** is preferred by Facebook. There are varieties of video editing apps available in the market that allows you to create a square video and add a letterbox on it. But most of them have a complicated interface and you might need to watch a lot of video tutorials to make head and tail of it. If you want to add such a letterbox for your Facebook video, Wondershare Filmora may be a good choice for you. Currently, Filmora offers two ways to add a letterbox for your square Facebook video.
 
-<!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Method 1: Make a Letterbox by Project Ratio Mismatch
 
 This method is suitable for users whose source videos are not in square format (1:1). It is a simple method in which the aspect ratios of the source and project videos are compared. In this method, a letterbox will be created automatically when there is a mismatch between the aspect ratio of the original video and the project you are creating using the Filmora application. Let us see how this can be done:
@@ -58,20 +45,34 @@ This method is suitable for users whose source videos are not in square format (
 
 ![start-filmora9](https://images.wondershare.com/filmora/article-images/start-filmora9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * 2\. Go to **File**\-**Import Media** and import the source file to the Media library (let’s say it’s 1920\*1080 at 16:9)
 
 ![import-sample-video](https://images.wondershare.com/filmora/article-images/import-sample-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * 3\. Drag and drop the source video to the timeline, and a black letterbox will be created automatically in the preview window, cause the source file didn’t match the 1:1 ratio you set for the project
 
 ![automatic-letterbox](https://images.wondershare.com/filmora/article-images/automatic-letterbox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * 4\. Add a subtitle under **Titles** tab to the letterbox at the top and bottom and custom the texts you want.
 
@@ -85,16 +86,16 @@ And you can also go to the **Elements** tab, and add some creative elements such
 
 ![filmora9-export-panel](https://images.wondershare.com/filmora/article-images/filmora9-export-panel.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * 6\. Upload the exported square video to Facebook, and show how it looks like on Facebook.
 
 ![post-on-facebook](https://images.wondershare.com/filmora/article-images/post-on-facebook.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047346/19272" target="_top" id="2047346">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047346" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047346/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Method 2: Create a Letterbox by Adding Text Shapes
 
@@ -108,28 +109,28 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 
 ![no-letterbox](https://images.wondershare.com/filmora/article-images/no-letterbox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * 3\. To create a letterbox, choose the option **Titles**. Now you will be shown a variety of subtitles and credit styles
 * 4\. Select **Subtitles**, then add a subtitle style that has a black background to your video, such as Subtitle 1,2,3, etc.
 
 ![add-doll-subtitle](https://images.wondershare.com/filmora/article-images/add-doll-subtitle.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * 5\. You will see that the subtitle appears on the video in real time. Here you can adjust the width and height of the subtitle. Make it so that that black bar covers the lower end of the video completely and delete the text
 
 ![custom-letterbox](https://images.wondershare.com/filmora/article-images/custom-letterbox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * 6\. Drag and drop the subtitle again from the Titles-Subtitles option. This time for the top section of the video
 
@@ -139,22 +140,15 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 
 ![get-both-letterbox](https://images.wondershare.com/filmora/article-images/get-both-letterbox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * 8\. Export the video to your computer or phone in mp4, then upload it to Facebook, and finally, you will see the magic!
 
 ![post-my-video](https://images.wondershare.com/filmora/article-images/post-my-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## To Sum up
@@ -180,15 +174,21 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-step-by-step-for-classic-film-aesthetics/"><u>[New] 2024 Approved Step-by-Step for Classic Film Aesthetics</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-transform-your-iphone-into-a-content-powerhouse-with-best-fb-video-downloaders-for-ios/"><u>[New] 2024 Approved Transform Your iPhone Into a Content Powerhouse with Best FB Video Downloaders for iOS</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-unveiling-the-secrets-to-effective-fb-video-advertising-with-best-practices/"><u>[New] 2024 Approved Unveiling the Secrets to Effective FB Video Advertising with Best Practices</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-filmoras-prime-selective-screen-change-list/"><u>[Updated] Filmora's Prime Selective Screen Change List</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-avoid-being-disconnected-key-steps-for-fb-freedom/"><u>[Updated] In 2024, Avoid Being Disconnected Key Steps for FB Freedom</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-pioneers-in-the-realm-of-vr-viewing/"><u>[Updated] In 2024, Pioneers in the Realm of VR Viewing</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-decoding-inverse-image-retrieval-for-social-networks-focusing-on-fb/"><u>2024 Approved Decoding Inverse Image Retrieval for Social Networks, Focusing on FB</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-tackling-photo-app-errors-in-windows-11/"><u>2024 Approved Tackling Photo App Errors in Windows 11</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/how-to-repair-inaccessible-boot-device-blue-screen-error-on-windows-10-with-illustrative-images/"><u>How to Repair 'Inaccessible Boot Device' Blue Screen Error on Windows 10 with Illustrative Images</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-elevate-fb-ad-revenue-mastery-of-animation-for-higher-roi/"><u>In 2024, Elevate FB Ad Revenue Mastery of Animation for Higher ROI</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-eliminating-half-muted-facebook-gaming-videos-2023-fixes/"><u>[New] 2024 Approved Eliminating Half-Muted Facebook Gaming Videos (2023 Fixes)</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-dodge-disruptive-fb-video-promotions/"><u>[New] Dodge Disruptive FB Video Promotions</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-maximizing-earning-potential-with-strategic-facebook-video-ads/"><u>[New] Maximizing Earning Potential with Strategic Facebook Video Ads</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-the-art-of-spinning-photos-iphone-videography-tips/"><u>[New] The Art of Spinning Photos IPhone Videography Tips</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-aural-tales-the-best-of-radio-plays/"><u>[Updated] 2024 Approved Aural Tales The Best of Radio Plays</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-giggle-generator-for-imgur-for-2024/"><u>[Updated] Giggle Generator for Imgur for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-diy-4k-edits-assembling-a-powerhouse-pc-for-high-res-video/"><u>[Updated] In 2024, DIY 4K Edits Assembling a Powerhouse PC for High-Res Video</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-perfecting-your-hulu-capture-pc-macios-android-tips-for-2024/"><u>[Updated] Perfecting Your Hulu Capture PC, Mac/iOS, Android Tips for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2023-insights-how-to-hunt-down-cool-vids-on-fb-for-2024/"><u>2023 Insights How to Hunt Down Cool Vids on FB for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/5-prime-fb-video-extractor-guide/"><u>5 Prime FB Video Extractor Guide</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/audio-awakens-effortless-fixes-to-reignite-sounds-in-windows-11/"><u>Audio Awakens: Effortless Fixes to Reignite Sounds in Windows 11</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-track-imei-number-of-vivo-x90s-through-google-earth-by-drfone-android/"><u>In 2024, How To Track IMEI Number Of Vivo X90S Through Google Earth?</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/maximize-performance-with-cooler-master-superior-heat-dissipation-of-30plusw-for-high-demand-systems/"><u>Maximize Performance with Cooler Master - Superior Heat Dissipation of 30([+W for High-Demand Systems</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/maximizing-clarity-4-steps-to-perfectly-capture-fb-video-calls-for-2024/"><u>Maximizing Clarity 4 Steps to Perfectly Capture FB Video Calls for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/no-more-fluctuating-sounds-resolving-bluetooth-audio-problems-in-windows/"><u>No More Fluctuating Sounds: Resolving Bluetooth Audio Problems in Windows</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/places-to-go-the-best-online-hubs-for-text-effects-for-2024/"><u>Places to Go The Best Online Hubs for Text Effects for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Dive Deep  Accessing Facebook's Story Vault\""
-date: 2024-10-01T21:52:02.936Z
-updated: 2024-10-04T21:39:51.114Z
+date: 2024-10-04T22:38:49.303Z
+updated: 2024-10-10T06:10:57.879Z
 tags:
   - ai video
   - ai facebook
@@ -53,6 +53,13 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 
 ![facebook old stories more](https://images.wondershare.com/filmora/article-images/2021/facebook-old-stories-more.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 3:** Now just tap on the “Story Archive” option from the list.
 
 ![facebook story archive](https://images.wondershare.com/filmora/article-images/2021/facebook-story-archive.jpg)
@@ -89,22 +96,15 @@ The only chance is that if your friend has uploaded those stories on highlights 
 
 ![see friends old fb story](https://images.wondershare.com/filmora/article-images/2021/see-friends-old-fb-story.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 An old highlighted story shared by your friend would appear on your friend’s profile below the Friends section and above create post option as Story Highlights.
 
 So for the above discussed all ways the only must thing is to setting archive on which would allow you to re-watch stories again and solve your doubt of how to view old stories on Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 5: How to Create Facebook Videos with Ease?
@@ -114,6 +114,13 @@ If you think that to create amazing videos for Facebook, you need to be a profes
 To attract more audience and gain more likes, comments all you need is a smart [video editor](https://tools.techidaily.com/wondershare/filmora/download/) like a Wondershare Filmora. It is one of the most effective video editing tools that help you edit your elements quickly and easily upload over Facebook.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Features:**
 
@@ -141,13 +148,6 @@ You can crop, trim, cut, split, and merge your video in a few clicks in Wondersh
 
 Also, you can add various text effects and add Lower 3rds and subtitles. It has nearly 300 filters, overlays, and elements embedded in Filmora that you can use for your Facebook video and make it look amazing.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Export and Share
 
 Once you are done with the video editing you need to do is to export and publish it on Facebook. You need to click on Export and you would get few saving options. You can save it to your smartphone or in .mp4 format and upload it to Facebook later. Wondershare Filmora let you share your video to platforms such YouTube, Vimeo, or burn it to the DVD collection.
@@ -165,10 +165,10 @@ Happy editing!
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -186,24 +186,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-choose-your-view-facebook-video-aspect-ratio-for-2024/"><u>[New] Choose Your View Facebook Video Aspect Ratio for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-echoing-social-engagement-transferring-tiktok-videos-on-facebook-for-2024/"><u>[New] Echoing Social Engagement Transferring TikTok Videos on Facebook for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-essential-tips-for-zooming-on-snapchat-shots-for-2024/"><u>[New] Essential Tips for Zooming on Snapchat Shots for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/76263904-new-in-2024-revolutionize-your-branding-50-free-youtube-banners-inside/"><u>[New] In 2024, Revolutionize Your Branding - 50 Free YouTube Banners Inside!</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-top-underground-sources-for-smart-fb-memes-for-2024/"><u>[New] Top Underground Sources for Smart FB Memes for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-web-accessory-fb-stories-keeper/"><u>[New] Web Accessory FB Stories Keeper</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-engaging-creativity-crafting-compelling-facebook-ads/"><u>[Updated] In 2024, Engaging Creativity Crafting Compelling Facebook Ads</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-how-to-create-captivating-videos-an-introduction-to-fb-reels/"><u>[Updated] In 2024, How to Create Captivating Videos An Introduction to FB Reels</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-master-the-art-of-backup-phones-camera-roll-upload-to-social-apps/"><u>[Updated] In 2024, Master the Art of Backup Phone's Camera Roll Upload to Social Apps</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-quest-conquerors-best-of-the-role-playing-worlds-for-2024/"><u>[Updated] Quest Conquerors Best of the Role-Playing Worlds for 2024</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/banishing-sound-bugs-from-your-virtual-realm-of-new-world/"><u>Banishing Sound Bugs From Your Virtual Realm of 'New World'</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/building-brand-loyalty-crafting-striking-fb-videos-for-2024/"><u>Building Brand Loyalty Crafting Striking FB Videos for 2024</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/download-and-install-usb-30-compatible-drivers-for-windows-systems/"><u>Download and Install USB 3.0 Compatible Drivers for Windows Systems</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/how-to-share-tiktok-videos-to-facebook-for-2024/"><u>How to Share TikTok Videos to Facebook for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-stream-anything-from-gionee-f3-pro-to-apple-tv-drfone-by-drfone-android/"><u>In 2024, How To Stream Anything From Gionee F3 Pro to Apple TV | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-navigating-video-visibility-barriers-in-social-networking/"><u>In 2024, Navigating Video Visibility Barriers in Social Networking</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/step-by-step-guide-toggling-onoff-screen-keyboard-feature-on-windows-10/"><u>Step-by-Step Guide: Toggling On/Off Screen Keyboard Feature on Windows 10</u></a></li>
-<li><a href="https://facebook.techidaily.com/streamlining-conversations-a-guide-to-facebooks-advanced-moderation-tools/"><u>Streamlining Conversations: A Guide to Facebook's Advanced Moderation Tools</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/webcam-filming-made-professional-in-no-time/"><u>Webcam Filming Made Professional in No Time</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-crafting-irresistible-profile-videos/"><u>[New] 2024 Approved Crafting Irresistible Profile Videos</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-the-entrepreneurs-lifeline-critical-items-every-startup-needs-right-now/"><u>[New] 2024 Approved The Entrepreneur's Lifeline Critical Items Every Startup Needs Right Now</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-accelerated-mp4-to-facebook-video-conversion/"><u>[New] Accelerated MP4-to-Facebook Video Conversion</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-privacy-first-reader-of-facebook-snapshots/"><u>[New] Privacy-First Reader of Facebook Snapshots</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nlock-creative-power-of-youtube-themes/"><u>[New] Unlock Creative Power of YouTube Themes</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-unveiling-the-potential-of-dual-screen-broadcasting-in-facebook-lives/"><u>[New] Unveiling the Potential of Dual-Screen Broadcasting in Facebook Lives</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-cyberspace-companion-fb-stories-saver/"><u>[Updated] In 2024, Cyberspace Companion FB Stories Saver</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-step-by-step-guide-to-kinemasters-mastery-plus-10-superior-editing-counterparts/"><u>[Updated] Step-by-Step Guide to KineMaster's Mastery + 10 Superior Editing Counterparts</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-web-based-fb-music-extractor-for-2024/"><u>[Updated] Web-Based FB Music Extractor for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-2023-insights-how-to-hunt-down-cool-vids-on-fb/"><u>2024 Approved 2023 Insights How to Hunt Down Cool Vids on FB</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-m1-powered-macbook-air-a-new-era-for-editors/"><u>2024 Approved M1-Powered MacBook Air A New Era for Editors?</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/a-deep-dive-into-luts-for-image-enhancement-for-2024/"><u>A Deep Dive Into LUTs for Image Enhancement for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/crafting-mood-and-atmosphere-through-post-color-tweaks/"><u>Crafting Mood and Atmosphere Through Post-Color Tweaks</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/does-edge-40-has-native-hevc-support-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Does Edge 40 has native HEVC support?</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/elite-screenwriting-circle/"><u>Elite Screenwriting Circle</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/facebook-live-video-downloaders-how-to-download-live-videos-for-2024/"><u>Facebook Live Video Downloaders | How to Download Live Videos for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/get-your-new-samsung-galaxy-book-4-now-unlock-exclusive-discounts-with-trade-in-offers-and-bonuses/"><u>Get Your New Samsung Galaxy Book 4 Now - Unlock Exclusive Discounts with Trade-In Offers and Bonuses!</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/professional-editors-guide-fcps-top-10-plugins/"><u>Professional Editor’s Guide FCP's Top 10 Plugins</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unexpected-invaders-attack-pc-a-gamers-battle-against-fire-ant-infestation-eating-thermal-pads/"><u>Unexpected Invaders Attack PC: A Gamer's Battle Against Fire Ant Infestation Eating Thermal Pads</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] Taking Your Tweets Public on Facebook for 2024"
-date: 2024-09-29T16:14:16.634Z
-updated: 2024-10-04T19:45:33.426Z
+date: 2024-10-03T04:28:52.531Z
+updated: 2024-10-10T04:31:26.514Z
 tags:
   - ai video
   - ai facebook
@@ -29,19 +29,6 @@ thumbnail: https://thmb.techidaily.com/678fddf7ae4566a62c5d9f963bb3c78467acea0fb
 
  In today's fast paced life, it's time-consuming to manage multiple accounts on different social media platforms manually. Fortunately, you can set your Twitter account and sync it with Facebook to kill two birds with a single stone. You can post Tweets to Facebook automatically as updates, sparing your personal intervention. Automatic posting of Tweets on Facebook ensures your friends on both platforms get your updates without the extra work.
 
-<!-- affiliate ads begin -->
-<span id="1304647">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Post Tweets to Facebook – Step by Step guide
 
  Let's learn how to use Twitter with Facebook and be able to post Tweets to Facebook –
@@ -53,10 +40,10 @@ thumbnail: https://thmb.techidaily.com/678fddf7ae4566a62c5d9f963bb3c78467acea0fb
 ![post tweet on facebook 1](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 1. Once you login to your Twitter account, tap on your profile picture on the top right corner of the screen, next to the ‘Tweet' tab.
@@ -65,16 +52,16 @@ thumbnail: https://thmb.techidaily.com/678fddf7ae4566a62c5d9f963bb3c78467acea0fb
 ![post tweet on facebook 2](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-2.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1982462">
+<span id="1983475">
 					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 1. Now, hit the ‘Connect to Facebook' option under Applications. You will be prompted with a popup to log in, in case you haven't logged in to Facebook on the same browser. Enter the details and log in.
@@ -86,10 +73,16 @@ thumbnail: https://thmb.techidaily.com/678fddf7ae4566a62c5d9f963bb3c78467acea0fb
 ![post tweet on facebook 4](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982596">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 1. Now you need to configure the ‘Select the privacy settings' to decide who is going to receive your Twitter updates on Facebook. When you post Tweets to Facebook, by default your friends will get to see them.
@@ -205,6 +198,13 @@ thumbnail: https://thmb.techidaily.com/678fddf7ae4566a62c5d9f963bb3c78467acea0fb
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -220,16 +220,18 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-ad-innovations-what-to-expect-from-facebook-for-2024/"><u>[New] Ad Innovations What to Expect From Facebook for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-fb-live-streaming-to-perfect-mp3-format-2023-converter/"><u>[New] FB Live Streaming to Perfect MP3 Format - 2023 Converter</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-precision-techniques-for-capturing-the-essence-of-moments-with-gopro/"><u>[Updated] 2024 Approved Precision Techniques for Capturing the Essence of Moments with GoPro</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-panopticon-perspective-analysis/"><u>[Updated] Panopticon Perspective Analysis</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-social-media-influencers-secret-creating-captivating-facebook-biographies-for-2024/"><u>[Updated] Social Media Influencers' Secret Creating Captivating Facebook Biographies for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-breaking-into-the-world-of-social-broadcasts-and-roku/"><u>2024 Approved Breaking Into the World of Social Broadcasts & Roku</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/8-best-apps-for-screen-mirroring-xiaomi-13t-pro-pc-drfone-by-drfone-android/"><u>8 Best Apps for Screen Mirroring Xiaomi 13T Pro PC | Dr.fone</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/fixing-launch-problems-with-mass-effect-legendary-edition-solutions-unveiled/"><u>Fixing Launch Problems with Mass Effect Legendary Edition - Solutions Unveiled!</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-the-instagram-videographers-manual-enhancing-quality-and-creativity/"><u>In 2024, The Instagram Videographer's Manual Enhancing Quality and Creativity</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/rootjunky-apk-to-bypass-google-frp-lock-for-samsung-galaxy-s24-by-drfone-android/"><u>Rootjunky APK To Bypass Google FRP Lock For Samsung Galaxy S24</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/unnoticed-consumers-of-fb-stories-for-2024/"><u>Unnoticed Consumers of Fb Stories for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-music-infused-video-tutorials-for-enhanced-social-media-presence-fb/"><u>[New] 2024 Approved Music-Infused Video Tutorials for Enhanced Social Media Presence (FB)</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-aural-adventures-next-gen-devices-for-2024/"><u>[New] Aural Adventures Next-Gen Devices for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-navigating-immediate-account-suspension-due-to-copyright-violations-for-2024/"><u>[New] Navigating Immediate Account Suspension Due to Copyright Violations for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-ultimate-guide-to-managing-fast-forward-functions/"><u>[New] The Ultimate Guide to Managing Fast Forward Functions</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-navigating-watermark-implementation-for-social-posts/"><u>[Updated] 2024 Approved Navigating Watermark Implementation for Social Posts</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-strategic-approaches-to-share-ppt-powerfully-in-google-meet/"><u>[Updated] 2024 Approved Strategic Approaches to Share PPT Powerfully in Google Meet</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/best-hidden-downloaders-1-8-unveiled/"><u>Best Hidden Downloaders - #1-8 Unveiled</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-samsung-galaxy-watch-examination-brilliantly-crafted-on-the-surface-and-within/"><u>Comprehensive Samsung Galaxy Watch Examination - Brilliantly Crafted on the Surface & Within</u></a></li>
+<li><a href="https://program-issues.techidaily.com/fixing-the-blackout-6-rapid-solutions-for-your-non-functional-oculus-link/"><u>Fixing the Blackout: 6 Rapid Solutions for Your Non-Functional Oculus Link</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-activate-and-use-life360-ghost-mode-on-realme-12plus-5g-drfone-by-drfone-virtual-android/"><u>How To Activate and Use Life360 Ghost Mode On Realme 12+ 5G | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-soft-reset-xiaomi-redmi-a2plus-phone-drfone-by-drfone-reset-android-reset-android/"><u>How to Soft Reset Xiaomi Redmi A2+ phone? | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-top-5-best-screens-for-playstation-5-gamers/"><u>In 2024, TOP 5 Best Screens for PlayStation 5 Gamers</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-gopro-quik-on-pc-how-to-use-it-and-explore-other-options/"><u>Updated In 2024, GoPro Quik on PC How to Use It and Explore Other Options</u></a></li>
 </ul></div>
 

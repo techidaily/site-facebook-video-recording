@@ -1,7 +1,7 @@
 ---
 title: "\"Recollection Runway  Your Easy Path to Story Archives\""
-date: 2024-09-27T17:17:45.976Z
-updated: 2024-10-04T17:12:51.680Z
+date: 2024-10-09T06:34:35.635Z
+updated: 2024-10-10T05:40:08.089Z
 tags:
   - ai video
   - ai facebook
@@ -53,6 +53,19 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 
 ![facebook old stories more](https://images.wondershare.com/filmora/article-images/2021/facebook-old-stories-more.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 3:** Now just tap on the “Story Archive” option from the list.
 
 ![facebook story archive](https://images.wondershare.com/filmora/article-images/2021/facebook-story-archive.jpg)
@@ -60,13 +73,6 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 **Step 4:** After this, you would be shown all the stories sequentially in the Story Archives section.
 
 Thus how to view old stories on Facebook desktop is very easy with above above-mentioned easy steps.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: How to Watch Old Stories on Facebook on your Mobile?
 
@@ -79,6 +85,13 @@ You can find and see the old stories on Facebook with the help of the archived s
 **Step 3:** Then Select “Archive” from the given options.
 
 ![watch old stories facebook](https://images.wondershare.com/filmora/article-images/2021/watch-old-stories-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 4:** Scroll towards the right and select on Story Archives tab.
 
@@ -96,13 +109,6 @@ The only chance is that if your friend has uploaded those stories on highlights 
 
 ![see friends old fb story](https://images.wondershare.com/filmora/article-images/2021/see-friends-old-fb-story.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 An old highlighted story shared by your friend would appear on your friend’s profile below the Friends section and above create post option as Story Highlights.
 
 So for the above discussed all ways the only must thing is to setting archive on which would allow you to re-watch stories again and solve your doubt of how to view old stories on Facebook.
@@ -116,10 +122,10 @@ To attract more audience and gain more likes, comments all you need is a smart [
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
+  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Features:**
@@ -165,10 +171,10 @@ Happy editing!
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -186,17 +192,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2-ways-to-add-a-letterbox-for-facebook-videos/"><u>[New] 2 Ways to Add a Letterbox for Facebook Videos</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-bypassing-errors-in-facebook-story-postings-and-viewing/"><u>[New] Bypassing Errors in Facebook Story Postings & Viewing</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-logic-pro-techniques-for-fading-out-sounds/"><u>[New] Logic Pro Techniques for Fading Out Sounds</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-boosting-roi-in-fb-ads-through-animation-techniques/"><u>[Updated] 2024 Approved Boosting ROI in FB Ads Through Animation Techniques</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-smart-choices-top-5-web-videography-tools/"><u>[Updated] 2024 Approved Smart Choices Top 5 Web Videography Tools</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/updated-chill-vibes-at-the-beijing-winter-olympics-2022/"><u>[Updated] Chill Vibes at the Beijing Winter Olympics 2022</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-endless-broadcast-flow-mastering-the-art-of-fixing-livestream-pauses/"><u>2024 Approved Endless Broadcast Flow Mastering the Art of Fixing Livestream Pauses</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/experiencing-the-future-with-m1-chip-in-depth-review-and-analysis-of-the-2cuyangaple-macbook-pro-13-2020/"><u>Experiencing the Future with M1 Chip: In-Depth Review and Analysis of the 2Cuyangaple MacBook Pro 13'' (2020)</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-samsung-galaxy-a15-5g-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Samsung Galaxy A15 5G Location without Installing Software? | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/the-art-of-connection-4-ways-to-tie-in-your-fb-story/"><u>The Art of Connection 4 Ways to Tie in Your Fb Story</u></a></li>
-<li><a href="https://ai-video-editing.techidaily.com/troubleshooting-tips-overcoming-errors-in-hearts-of-iron-4/"><u>Troubleshooting Tips: Overcoming Errors in Hearts of Iron 4</u></a></li>
-<li><a href="https://win-info.techidaily.com/upcoming-revolutionary-windows-on-arm-applications-why-you-cant-ignore-them/"><u>Upcoming Revolutionary Windows on ARM Applications: Why You Can't Ignore Them!</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-covertly-engage-with-fb-live-feeds/"><u>[New] 2024 Approved Covertly Engage with FB Live Feeds</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-fb-profile-snap-intro-dimensions-file-type-duration/"><u>[New] 2024 Approved FB Profile Snap Intro Dimensions, File Type, Duration</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-unlock-the-secrets-achieving-facebooks-prestige-marker/"><u>[New] 2024 Approved Unlock the Secrets Achieving Facebook's Prestige Marker</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-beginners-pathway-to-livestreaming-on-facebook-and-mobile-devices/"><u>[Updated] In 2024, Beginner's Pathway to Livestreaming on Facebook and Mobile Devices</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-harmonizing-film-teasers-with-music-selections/"><u>[Updated] In 2024, Harmonizing Film Teasers with Music Selections</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-top-20-strategies-for-boosting-fb-ads-via-video-content-for-2024/"><u>[Updated] Top 20 Strategies for Boosting FB Ads via Video Content for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/elevate-your-fb-chronicles-with-complimentary-extension-tools-for-2024/"><u>Elevate Your FB Chronicles with Complimentary Extension Tools for 2024</u></a></li>
+<li><a href="https://os-tips.techidaily.com/enhance-your-iphones-readability-with-simple-font-customization-techniques/"><u>Enhance Your iPhone's Readability with Simple Font Customization Techniques</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/movaviwebp-n/"><u>MovaviによるオンラインWebP画像変換サービス – 完全無料提�nグ!</u></a></li>
+<li><a href="https://extra-information.techidaily.com/next-gen-gpus-for-crystal-clear-4k/"><u>Next-Gen GPUs for Crystal Clear 4K</u></a></li>
+<li><a href="https://app-tips.techidaily.com/revolutionizing-ux-with-xr-digital-twins-and-spatial-tech-a-comprehensive-industry-handbook-zdnet-insights/"><u>Revolutionizing UX with XR, Digital Twins & Spatial Tech: A Comprehensive Industry Handbook | ZDNet Insights</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/steps-for-capturing-hd-content-on-fb/"><u>Steps for Capturing HD Content on FB</u></a></li>
+<li><a href="https://windows11.techidaily.com/unleash-faster-system-restoration-via-customized-troubleshooter-keys/"><u>Unleash Faster System Restoration via Customized Troubleshooter Keys</u></a></li>
 </ul></div>
 

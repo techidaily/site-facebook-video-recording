@@ -1,7 +1,7 @@
 ---
 title: "[New] How to Unlink Lively Logos From Your Profile (Mobile/PC)"
-date: 2024-10-02T18:15:12.440Z
-updated: 2024-10-04T22:04:11.754Z
+date: 2024-10-08T00:13:13.263Z
+updated: 2024-10-10T02:03:01.371Z
 tags:
   - ai video
   - ai facebook
@@ -63,10 +63,10 @@ Let's begin with the mobile Facebook application:
 **Step 4:** Finally, click on the Delete option again, and you are done. This Facebook story is removed.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
+  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How to Delete A Story from Facebook Story Archive?
@@ -80,10 +80,10 @@ If it is already enabled, follow these steps to delete the archived Facebook sto
 ![delete Facebook Story from desktop](https://images.wondershare.com/filmora/article-images/facebook-story-archive.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 2**: Now, select the Story Archive option that you see on the top. This will show all the archived stories. Next, choose a story that you want to remove permanently. The story will appear. Click on the three dots, and then click on the delete option.
@@ -105,10 +105,10 @@ Facebook stories don't only appear on your Facebook home page; they also appear 
 ![delete Facebook Story from messager](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-messager.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: How to Control Who Can View Your Facebook Stories?
@@ -123,13 +123,6 @@ You can make your stories visible to your friends, customize the viewers, or kee
 
 ![  Facebook Story privacy  ](https://images.wondershare.com/filmora/article-images/facebook-story-privacy.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 5: How to Hide Facebook Story from Specific People?
 
 Facebook has made sharing stories easy because of the multiple features it offers. Apart from controlling the story, you can even choose to hide the story from specific people. To do that, here's what you need to do.
@@ -141,10 +134,10 @@ Facebook has made sharing stories easy because of the multiple features it offer
 **Step 2:** You will be shown the complete list of people you are connected with on Facebook. Select the people you don't want to share your stories with, and then click on done.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 6: How to Delete Someone Else's Story on Your Facebook?
@@ -161,6 +154,13 @@ Facebook stories are a great way to let people know what you are up to. It's sho
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -176,20 +176,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-refining-your-digital-footprint-editing-the-look-back-feature/"><u>[New] 2024 Approved Refining Your Digital Footprint Editing the Look Back Feature</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-how-to-share-videos-to-instagram/"><u>[Updated] 2024 Approved How to Share Videos to Instagram?</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-steps-for-successful-extraction-of-fb-content/"><u>[Updated] In 2024, Steps for Successful Extraction of FB Content</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-unlock-social-data-with-top-free-facebook-downloaders-for-2024/"><u>[Updated] Unlock Social Data with Top Free Facebook Downloaders for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-unlocking-the-secrets-to-collecting-fb-gifs-a-comprehensive-manual/"><u>[Updated] Unlocking the Secrets to Collecting FB GIFs A Comprehensive Manual</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/expert-tips-on-producing-high-quality-facebook-video/"><u>Expert Tips on Producing High-Quality Facebook Video</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/fixing-wlanapidll-errors-in-windows-tips-and-tricks/"><u>Fixing WLANAPI.DLL Errors in Windows: Tips and Tricks</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/forgot-locked-apple-iphone-12-password-learn-the-best-methods-to-unlock-drfone-by-drfone-ios/"><u>Forgot Locked Apple iPhone 12 Password? Learn the Best Methods To Unlock | Dr.fone</u></a></li>
-<li><a href="https://windows11.techidaily.com/how-to-enable-or-disable-the-smartscreen-filter-in-windows-10-and-11/"><u>How to Enable or Disable the SmartScreen Filter in Windows 10 & 11</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-from-confinement-to-comedy-selecting-lighthearted-fb-incarceration-moments/"><u>In 2024, From Confinement to Comedy Selecting Lighthearted FB Incarceration Moments</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-honor-magic-6-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Honor Magic 6 Pro | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-factory-reset-ipad-or-apple-iphone-12-mini-without-icloud-password-or-apple-id-by-drfone-ios/"><u>In 2024, How to Factory Reset iPad or Apple iPhone 12 mini without iCloud Password or Apple ID?</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/mline-your-strategy-with-aspect-ratio-mastery-on-youtube/"><u>Streamline Your Strategy with Aspect Ratio Mastery on YouTube</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-itel-p40plus-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Itel P40+ | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/turbocharge-your-steam-experience-halting-abrupt-downloads/"><u>Turbocharge Your Steam Experience: Halting Abrupt Downloads</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-innovative-acoustic-link-for-speakers/"><u>[New] Innovative Acoustic Link for Speakers</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-insights-into-procuring-freeness-in-frame-vids/"><u>[New] Insights Into Procuring Freeness in Frame Vids</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-unleash-your-ugc-making-memes-and-marks-on-fb-for-2024/"><u>[New] Unleash Your UGC Making Memes and Marks on FB for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-expert-tips-to-enhance-your-live-fb-broadcast-quality-pcmac/"><u>[Updated] 2024 Approved Expert Tips to Enhance Your Live FB Broadcast Quality (PC/Mac)</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-maximizing-facebook-fame-8-premier-apps-for-like-boosting-for-2024/"><u>[Updated] Maximizing Facebook Fame 8 Premier Apps for Like Boosting for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-quantum-hdr-phenomenon-in-digital-photography/"><u>[Updated] Quantum HDR Phenomenon in Digital Photography</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-the-art-of-directly-posting-tiktok-videos-on-facebook-for-2024/"><u>[Updated] The Art of Directly Posting TikTok Videos on Facebook for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/best-of-the-best-20-hilarious-incarceration-posts-to-brighten-your-digital-world-for-2024/"><u>Best of the Best - 20 Hilarious Incarceration Posts to Brighten Your Digital World for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/downloading-samfw-frp-tool-30-for-nubia-z50s-pro-by-drfone-android/"><u>Downloading SamFw FRP Tool 3.0 for Nubia Z50S Pro</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-motorola-edge-40-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Motorola Edge 40 without Losing Data | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-apple-iphone-14-online-without-jailbreak-by-drfone-ios/"><u>How to Unlock SIM Card on Apple iPhone 14 online without jailbreak</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-fb-audio-clip-converter-direct-to-mp3-mode/"><u>In 2024, FB Audio Clip Converter Direct to MP3 Mode</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Honor X7b? | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/perfectly-emulated-sony-ps3-titles-top-5-windows-tools-for-2024/"><u>Perfectly Emulated Sony PS3 Titles Top 5 Windows Tools for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/quick-fixes-how-to-screen-record-your-google-chats-for-2024/"><u>Quick Fixes How to Screen Record Your GooGle Chats for 2024</u></a></li>
 </ul></div>
 
