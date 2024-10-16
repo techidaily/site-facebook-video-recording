@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Effortlessly Traverse Facebook’s Past Posts"
-date: 2024-08-24T07:08:29.218Z
-updated: 2024-08-25T07:08:29.218Z
+date: 2024-10-09T01:04:08.816Z
+updated: 2024-10-16T05:08:48.170Z
 tags:
   - ai video
   - ai facebook
@@ -43,6 +43,13 @@ Facebook stories are a short generated collection of photos and videos that the 
 
 You can share the content on Facebook stories, which will appear at the top of the Facebook news feed. Also, if you are confused about how to view old stories on Facebook, users need to Tap on friends’ circle at the top area of the application, and while watching the story, one could also reply with a direct message feature.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to See Old Facebook Stories on Desktop?
 
 Are you looking at how to see old stories on Facebook desktop? Let’s look at each step in detail:
@@ -53,6 +60,13 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 
 ![facebook old stories more](https://images.wondershare.com/filmora/article-images/2021/facebook-old-stories-more.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 3:** Now just tap on the “Story Archive” option from the list.
 
 ![facebook story archive](https://images.wondershare.com/filmora/article-images/2021/facebook-story-archive.jpg)
@@ -61,9 +75,6 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 
 Thus how to view old stories on Facebook desktop is very easy with above above-mentioned easy steps.
 
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
 ## Part 3: How to Watch Old Stories on Facebook on your Mobile?
 
 You can find and see the old stories on Facebook with the help of the archived section. Here following are the easy steps you could follow:
@@ -77,15 +88,16 @@ You can find and see the old stories on Facebook with the help of the archived s
 ![watch old stories facebook](https://images.wondershare.com/filmora/article-images/2021/watch-old-stories-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 **Step 4:** Scroll towards the right and select on Story Archives tab.
 
 ![story archive facebook mobile](https://images.wondershare.com/filmora/article-images/2021/story-archive-facebook-mobile.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 **Step 5:** Now you would get to see all the old stories you have created sequentially from newest to oldest order.
 
 We assure you that with the above effective and easy steps your doubt of how to see old stories on Facebook would be solved.
@@ -102,9 +114,6 @@ An old highlighted story shared by your friend would appear on your friend’s p
 
 So for the above discussed all ways the only must thing is to setting archive on which would allow you to re-watch stories again and solve your doubt of how to view old stories on Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 5: How to Create Facebook Videos with Ease?
 
 If you think that to create amazing videos for Facebook, you need to be a professional then let me tell you that it is not at all necessary. But yes you need to be aware of the right video editing software to help you with and solve your need to create a stunning video.
@@ -113,9 +122,6 @@ To attract more audience and gain more likes, comments all you need is a smart [
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
-<!-- affiliate ads end -->
 **Features:**
 
 4K Resolution Editing Support
@@ -143,8 +149,12 @@ You can crop, trim, cut, split, and merge your video in a few clicks in Wondersh
 Also, you can add various text effects and add Lower 3rds and subtitles. It has nearly 300 filters, overlays, and elements embedded in Filmora that you can use for your Facebook video and make it look amazing.
 
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Export and Share
 
 Once you are done with the video editing you need to do is to export and publish it on Facebook. You need to click on Export and you would get few saving options. You can save it to your smartphone or in .mp4 format and upload it to Facebook later. Wondershare Filmora let you share your video to platforms such YouTube, Vimeo, or burn it to the DVD collection.
@@ -167,11 +177,29 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-download-any-song-on-fb-for-free/"><u>[New] Download Any Song on FB for Free</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-enhancing-visibility-key-steps-in-social-media-video-marketing/"><u>[New] Enhancing Visibility Key Steps in Social Media Video Marketing</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-accessing-global-events-facebook-live-on-roku-devices/"><u>[New] In 2024, Accessing Global Events Facebook Live on Roku Devices</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-digital-defense-winning-the-hack-war-for-2024/"><u>[Updated] Digital Defense Winning the Hack War for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-a-complete-guide-to-downloading-and-backup-of-instagram-vids-on-pcmacos/"><u>[Updated] In 2024, A Complete Guide to Downloading & Backup of Instagram Vids on PC/macOS</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-violation-woes-abrupt-creative-cut-off/"><u>[Updated] In 2024, Violation Woes Abrupt Creative Cut-Off</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-ultimate-highlight-hits-ios-and-android-instagram-covers-apps/"><u>[Updated] Ultimate Highlight Hits IOS & Android Instagram Covers Apps</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-unveiling-the-power-of-three-tiers-in-crafting-fb-ad-engaging-messages-for-2024/"><u>[Updated] Unveiling the Power of Three Tiers in Crafting FB Ad Engaging Messages for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-elevate-narrative-flow-expert-tips-on-using-jump-cuts/"><u>2024 Approved Elevate Narrative Flow Expert Tips on Using Jump Cuts</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/all-you-need-to-know-about-mega-greninja-for-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Realme 12 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-decoding-the-meaning-and-usage-facebooks-icon-in-chat/"><u>In 2024, Decoding the Meaning and Usage Facebook's Icon in Chat</u></a></li>
+<li><a href="https://techtrends.techidaily.com/iphone-evolution-check-assessing-the-new-features-of-iphone-16-pro-versus-iphone-14-pro-worth-your-investment/"><u>IPhone Evolution Check: Assessing the New Features of iPhone 16 Pro Versus iPhone 14 Pro - Worth Your Investment?</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/loongson-unveils-the-power-of-its-newest-16-core-3c-paralleling-intels-ice-lake-16-core-chip/"><u>Loongson Unveils the Power of Its Newest 16-Core 3C, Paralleling Intel's Ice Lake 16-Core Chip</u></a></li>
+<li><a href="https://common-error.techidaily.com/1723208085477-steam-store-loading-problems-heres-how-to-fix-them-easily/"><u>Steam Store Loading Problems? Here's How to Fix Them Easily!</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/update-your-tp-link-network-card-to-work-perfectly-on-windows-11-8-or-7-download-here/"><u>Update Your TP-Link Network Card to Work Perfectly on Windows 11, 8 or 7 - Download Here</u></a></li>
+</ul></div>
+

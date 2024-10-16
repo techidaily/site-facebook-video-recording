@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Innovative Facebook Enhancement  Using Letterbox Technique\""
-date: 2024-08-24T07:05:28.681Z
-updated: 2024-08-25T07:05:28.681Z
+date: 2024-10-14T11:05:35.620Z
+updated: 2024-10-16T12:04:16.797Z
 tags:
   - ai video
   - ai facebook
@@ -45,6 +45,13 @@ This method is suitable for users whose source videos are not in square format (
 
 ![start-filmora9](https://images.wondershare.com/filmora/article-images/start-filmora9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * 2\. Go to **File**\-**Import Media** and import the source file to the Media library (let’s say it’s 1920\*1080 at 16:9)
 
 ![import-sample-video](https://images.wondershare.com/filmora/article-images/import-sample-video.jpg)
@@ -52,6 +59,13 @@ This method is suitable for users whose source videos are not in square format (
 * 3\. Drag and drop the source video to the timeline, and a black letterbox will be created automatically in the preview window, cause the source file didn’t match the 1:1 ratio you set for the project
 
 ![automatic-letterbox](https://images.wondershare.com/filmora/article-images/automatic-letterbox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * 4\. Add a subtitle under **Titles** tab to the letterbox at the top and bottom and custom the texts you want.
 
@@ -65,13 +79,24 @@ And you can also go to the **Elements** tab, and add some creative elements such
 
 ![filmora9-export-panel](https://images.wondershare.com/filmora/article-images/filmora9-export-panel.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * 6\. Upload the exported square video to Facebook, and show how it looks like on Facebook.
 
 ![post-on-facebook](https://images.wondershare.com/filmora/article-images/post-on-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Method 2: Create a Letterbox by Adding Text Shapes
 
 This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). Let us see the steps below:
@@ -89,30 +114,32 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 
 ![add-doll-subtitle](https://images.wondershare.com/filmora/article-images/add-doll-subtitle.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
-<!-- affiliate ads end -->
 * 5\. You will see that the subtitle appears on the video in real time. Here you can adjust the width and height of the subtitle. Make it so that that black bar covers the lower end of the video completely and delete the text
 
 ![custom-letterbox](https://images.wondershare.com/filmora/article-images/custom-letterbox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 * 6\. Drag and drop the subtitle again from the Titles-Subtitles option. This time for the top section of the video
 
 ![add-subtitle-again](https://images.wondershare.com/filmora/article-images/add-subtitle-again.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
-<!-- affiliate ads end -->
 * 7\. You can input your own texts in the box or delete the text as you want, and you will be left with a video that has black bars on the top and bottom
 
 ![get-both-letterbox](https://images.wondershare.com/filmora/article-images/get-both-letterbox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 * 8\. Export the video to your computer or phone in mp4, then upload it to Facebook, and finally, you will see the magic!
 
 ![post-my-video](https://images.wondershare.com/filmora/article-images/post-my-video.jpg)
@@ -126,16 +153,23 @@ Adding a letterbox, then designing your own texts, elements and filters will bri
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
+<span id="1374819">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -143,3 +177,25 @@ Follow @Liza Brown
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-facebooks-viral-content-wave-leading-videos-of-2023/"><u>[New] 2024 Approved Facebook's Viral Content Wave - Leading Videos of 2023</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-facebooks-2023-video-innovations-embracing-the-short-form-approach-for-2024/"><u>[New] Facebook’s 2023 Video Innovations Embracing the Short-Form Approach for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-direct-download-and-conversion-best-youtube-to-mp3-software/"><u>[New] In 2024, Direct Download & Conversion Best YouTube to MP3 Software</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-navigating-brand-growth-with-youtubes-essential-top-5-video-marketing-techniques/"><u>[New] In 2024, Navigating Brand Growth with YouTube's Essential #Top 5 Video Marketing Techniques</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-conquering-facebook-audiences-live-stream-excellence-with-wirecast/"><u>[Updated] 2024 Approved Conquering Facebook Audiences Live Stream Excellence with Wirecast</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-directly-viewing-facebook-videos-on-your-apple-tv-setup/"><u>[Updated] Directly Viewing Facebook Videos on Your Apple TV Setup</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-eradicate-commercial-breaks-in-facebook-videos-for-2024/"><u>[Updated] Eradicate Commercial Breaks in Facebook Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-get-high-quality-audiovideo-convert-facebooks-hd-content-into-mp4/"><u>[Updated] In 2024, Get High-Quality Audio/Video Convert Facebook's HD Content Into MP4</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-supercharge-collaboration-essential-facebook-planners-decoded/"><u>2024 Approved Supercharge Collaboration Essential Facebook Planners Decoded</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/7-best-video-joiners-with-no-watermark-or-logo-for-2024/"><u>7 Best Video Joiners with No Watermark or Logo for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/boosting-bank-balance-effective-tactics-for-mobile-video-money-making-for-2024/"><u>Boosting Bank Balance Effective Tactics for Mobile Video Money-Making for 2024</u></a></li>
+<li><a href="https://discover-alternatives.techidaily.com/cookiebot-driven-performance-boost-your-sites-efficiency/"><u>Cookiebot-Driven Performance: Boost Your Site's Efficiency</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/einfache-iphone-auf-pc-transfer-musiktone-ohne-schwierigkeiten/"><u>Einfache iPhone Auf PC Transfer – Musiktöne Ohne Schwierigkeiten!</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-leading-6-social-media-channels-fostering-business-innovation/"><u>In 2024, Leading 6 Social Media Channels Fostering Business Innovation</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-leveraging-youtubes-cc-options-for-video-production/"><u>In 2024, Leveraging YouTube's CC Options for Video Production</u></a></li>
+<li><a href="https://app-tips.techidaily.com/the-complexities-of-implementing-generative-ai-in-corporations-revealed-by-deloitte-survey-zdnet/"><u>The Complexities of Implementing Generative AI in Corporations Revealed by Deloitte Survey | ZDNET</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/unlocking-online-potential-essential-fb-advice-for-businesses/"><u>Unlocking Online Potential Essential FB Advice for Businesses</u></a></li>
+</ul></div>
+

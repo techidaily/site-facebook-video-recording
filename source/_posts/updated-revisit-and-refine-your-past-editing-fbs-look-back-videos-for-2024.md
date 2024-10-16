@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Revisit and Refine Your Past  Editing FB's Look Back Videos for 2024\""
-date: 2024-10-02T16:37:31.143Z
-updated: 2024-10-04T17:14:03.280Z
+date: 2024-10-15T00:50:56.395Z
+updated: 2024-10-16T12:36:06.693Z
 tags:
   - ai video
   - ai facebook
@@ -48,13 +48,6 @@ thumbnail: https://thmb.techidaily.com/3b4f38d4b261acb2c277f07ba409b2b6a3f82798b
 * Enables you to upload the edit Look Back Video to Facebook instantly.
 * Burn Look Back video to a DVD as a special gift.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Easily Edit Facebook Look Back Video with Filmora
 
 #### 1. Download and import your Look Back video
@@ -63,11 +56,25 @@ thumbnail: https://thmb.techidaily.com/3b4f38d4b261acb2c277f07ba409b2b6a3f82798b
 
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/video-editor-interface.jpg "edit look back video")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 2. Add texts to the Look Back video
 
  To share the unforgettable moments in Look Back video, adding texts is a good idea. To do this, switch to Text tab and you'll see various texts templates on the left panel. Choose your favorite one and place it on the Timeline. Then the text thumbnail with a leading letter "T" will appear on the timeline. Double click it to type your texts in the box and select the font, color, animation, etc. Hit "Return" to confirm the settings and go back to the primary window.
 
 ![edit look back video](https://images.wondershare.com/topic/video-editing/add-titles.jpg "edit look back video")
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 3. Edit the audio of Look Back video
 
@@ -77,31 +84,11 @@ thumbnail: https://thmb.techidaily.com/3b4f38d4b261acb2c277f07ba409b2b6a3f82798b
 
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/audio-detach.jpg "edit look back video")
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### 4. Add more effects to your Look Back video
 
  Wondershare Filmora (originally Wondershare Video Editor) can help you make your video wonderful and special by applying various elements. To apply some advanced effects, right click the video and select the "Power Tool" option from the pops up menu, or hit the "Power Tool" button above the timeline to enter the Power Tool window. Here you are provided tilt shift, mosaic, face off and jump cut at beats.
 
 ![add ](https://images.wondershare.com/images/multimedia/video-editor/tilt-shift-1.jpg "add ")
-
-<!-- affiliate ads begin -->
-<span id="1982570">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -116,13 +103,26 @@ thumbnail: https://thmb.techidaily.com/3b4f38d4b261acb2c277f07ba409b2b6a3f82798b
 
 ![edit facebook look back video](https://images.wondershare.com/filmora/article-images/export-output.jpg "edit facebook look back video")
 
+<!-- affiliate ads begin -->
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -140,16 +140,19 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-the-ultimate-pathway-to-saving-social-media-gifs-on-different-devices-for-2024/"><u>[New] The Ultimate Pathway to Saving Social Media GIFs on Different Devices for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-upgrade-to-high-quality-video-streaming-on-facebook/"><u>[New] Upgrade to High-Quality Video Streaming on Facebook</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-a-step-by-step-pathway-to-messaging-media-download-for-2024/"><u>[Updated] A Step-by-Step Pathway to Messaging Media Download for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-clear-screens-crystal-vision-tips-for-blurry-social-media-content/"><u>[Updated] In 2024, Clear Screens, Crystal Vision Tips for Blurry Social Media Content</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-mastering-visual-storytelling-planning-strategy-on-instavideo/"><u>[Updated] In 2024, Mastering Visual Storytelling Planning Strategy on InstaVideo</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-top-tier-tools-transforming-remote-discussions/"><u>[Updated] Top-Tier Tools Transforming Remote Discussions</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-boost-your-e-commerce-strategy-with-these-top-15-fb-analyzers/"><u>2024 Approved Boost Your E-Commerce Strategy with These Top 15 FB Analyzers</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/detailed-screencasting-techniques-systematic-approach-for-2024/"><u>Detailed Screencasting Techniques Systematic Approach for 2024</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-fix-unresponsive-phone-touchscreen-of-xiaomi-redmi-note-12t-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Phone Touchscreen Of Xiaomi Redmi Note 12T Pro | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-how-to-download-c-span-videos-for-free/"><u>In 2024, How to Download C-Span Videos for Free</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-oppo-k11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Oppo K11 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-boost-creativity-and-engagement-10-best-sources-of-free-slide-show-patterns/"><u>[New] Boost Creativity and Engagement - 10 Best Sources of Free Slide Show Patterns</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-core-framework-principles-for-engaging-online-promotions-for-2024/"><u>[New] Core Framework Principles for Engaging Online Promotions for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-how-to-record-ps4-with-obs-for-2024/"><u>[New] How To Record PS4 with OBS for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-recmaster-pro-in-depth-analysis-of-the-latest-release/"><u>[New] Recmaster Pro In-Depth Analysis of the Latest Release</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-essential-webinar-tools-roundup/"><u>[Updated] In 2024, Essential Webinar Tools Roundup</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-watching-social-network-vids-through-the-television-glass/"><u>[Updated] Watching Social Network Vids Through the Television Glass?</u></a></li>
+<li><a href="https://android-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-realme-gt-neo-5-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Realme GT Neo 5</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-a-complete-guide-on-how-to-capture-and-store-fbs-graphic-delights-effortlessly/"><u>In 2024, A Complete Guide on How to Capture and Store FB's Graphic Delights Effortlessly</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-dissection-of-fb-video-dimensions/"><u>In 2024, Dissection of FB Video Dimensions</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-top-10-undiscovered-memelists-on-facebook/"><u>In 2024, Top 10 Undiscovered Memelists on Facebook</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/traversing-the-terrain-of-facebooks-video-hub-for-2024/"><u>Traversing the Terrain of Facebook’s Video Hub for 2024</u></a></li>
+<li><a href="https://win-ratings.techidaily.com/two-effective-methods-converting-swf-files-into-html-format-both-online-and-offline/"><u>Two Effective Methods: Converting SWF Files Into HTML Format, Both Online & Offline</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-easy-steps-to-make-a-talking-avatar-with-ai-from-any-photos/"><u>Updated 2024 Approved Easy Steps to Make a Talking Avatar with AI From Any Photos</u></a></li>
+<li><a href="https://win-answers.techidaily.com/1723011670518-xbox-one-users-netflix-is-now-functional-after-fixes/"><u>Xbox One Users: Netflix Is Now Functional After Fixes</u></a></li>
 </ul></div>
 

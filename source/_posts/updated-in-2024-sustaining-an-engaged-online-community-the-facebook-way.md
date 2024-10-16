@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Sustaining an Engaged Online Community  The Facebook Way\""
-date: 2024-10-08T19:13:06.686Z
-updated: 2024-10-09T19:10:05.936Z
+date: 2024-10-11T12:48:03.234Z
+updated: 2024-10-16T12:23:31.546Z
 tags:
   - ai video
   - ai facebook
@@ -57,237 +57,23 @@ Once you schedule a live video, two posts will be generated automatically. This 
 
 ![how to schedule facebook live](https://images.wondershare.com/filmora/article-images/2021/go-live-on-facebook-page-2.jpeg)
 
-## Part 2: How to Go Live on Facebook Business Page?
-
-To ensure better connectivity and interaction with your followers, you may also require to go live through your Facebook business page. In that case, we will mention two ways to do so. While the first method involves live streaming through a Facebook mobile app, the second one includes live streaming through PC. Let's check out both the process in detail:
-
-### Through Facebook Mobile App
-
-Make sure you have downloaded the Facebook page mobile application to go live through your phone. For that, you can go to the App Store and search for the Facebook mobile application. Then, download and install the app.
-
-* Go to the Business page and click on Publish. This is more or less similar to how you update your status.
-* In doing so, the post window will launch. Look at the "Live Video" option situated at the bottom side. You can recognize it with the red camera icon.
-* Once the Facebook permission prompts (for camera and microphone) appear, click on OK.
-* As soon as the "Tap to add a description…," prompt appears, enter a detailed description. It should feature the information your audience expects from the live video.
-* Now, click on the "Go Live" button (red color camera icon). It's situated at the bottom side of the screen. This will initiate your live stream.
-
-![through facebook mobile app](https://images.wondershare.com/filmora/article-images/2021/go-live-on-facebook-page-3.jpeg)
-
-### Through PC
-
-You can also upload live streams on a profile, page, or group through your PC. Keep note that all the live videos on Facebook pages are public. This means anyone can visit your page and see the content. Here's how you can go live on the Facebook Business page through your PC
-
-* First of all, go to your News Feed. On the left menu, click on Pages.
-* Go to the page where you want to upload the live video and click on Live. It's situated next to the Create option.
-* Now, choose how you want to set up your live video. You can click on "Use Stream Keys" located beside the term "Get Started" (if you want the same). Select the Camera option to use a web camera for your live streaming.
-
-![through pc](https://images.wondershare.com/filmora/article-images/2021/go-live-on-facebook-page-4.jpeg)
-
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
-  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-* In the left menu, confirm if you want to Go Live now or Schedule a video for some other time.
-* Make sure to input a description and title to the live video. If you want, you can check in to any location. You can also add any feeling or activity.
-* On the bottom left side, click on the Go live option. That's it! By following these steps, you can upload a live video on the Facebook business page through your PC.
-
-## Part 3: How to Go Live in a Facebook Group?
-
-Other than that, you can go live in Facebook groups too. It's an outstanding way to share the contents of any domain with a community of people with the same interest. Not only does it intrigue the group members, but it also attracts other followers or joinees to the group. Here, we will mention the process of going live in a Facebook group both through the Facebook mobile application and PC.
-
-### Through Facebook Mobile Application
-
-At first, we will discuss the process of going live in a Facebook group through the Facebook mobile application. As mobile phones have become common, this is one of the most used methods for streaming live videos. Make sure to follow the below steps to go live in a Facebook group through a mobile application.
-
-* Start by tapping on the top right side of your News Feed. Now, go to the Groups section and then tap on the "Your Groups" option.
-* From there, choose the group where you want to go live. If you cannot see the Groups, tap on See more.
-* Now, tap on the Live button. Make sure to enter the video description and input any effects (if you want to).
-* After that, tap on the "Start Live Video" option. Make sure to familiarise yourself with the policies of Facebook before the streaming.
-
-It's possible to face a situation where you are unable to see the live option on your group. This can happen if the admin does not permit such posts in the group. However, if you are the group admin, permit the live option on your page.
-
-### Through PC
-
-While Facebook mobile application is a popular medium to go live on Facebook groups, PCs are no exception. If you are an admin, there are chances that you are using Facebook through the system. To go live on a group through PC, follow the steps given below
-
-* Go to your News Feed and look for an option called "Groups." They are situated on the left menu.
-* Now, choose the group where you want to live stream your video. From there, click on the "What's on your mind?" option. Then, click on the "Live Video" button.
-
-![live in facebook group](https://images.wondershare.com/filmora/article-images/2021/go-live-on-facebook-page-5.jpeg)
-
-* You will get two options within the left menu, i.e., Go Live Now and Schedule Live Video Event. While the former ensures immediate streaming, the latter is for future streaming. Make sure to enter the time and date if you want your video to go live later.
-* Make sure to enter the title and description into your live post. If you want, you can tag friends or members. You can also check in to the location or add any activity/feeling.
-* On the bottom left side, click on the Go Live button.
-
-Overall, that's the process of how you can go live in the Facebook group through PC. If you are streaming gameplay, you can also tag a particular game title. For that, within the left menu scroll to the Gaming. Now, search for a game title and choose them as per your choice. Make sure to read all the policies and then move forward with the process.
-
-If you’re planning to make live any pre-recorded video, you can create impressive videos using video editors. [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is one such cool video editor using which you can create impressive videos for Facebook live. You can add a lot of interesting affects and features to make your videos engaging.
-
-## To Conclude
-
-So, that's the process of how you can create a live stream on Facebook. Pretty easy, right? Being a common social media platform, Facebook live stream ensures your content spreads to a full-fledged audience. No other source is as interactive as compared to live streaming. The best part about live video is that it suits all content types. So, whether you are an individual or brand, it's going to work for you both ways. Hopefully, this guide helps you with live video streaming on Facebook.
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-In today's time, live streaming has become quite popular for gamers and influencers. The reason behind it can be high interaction and engagement. One of the primary platforms to live stream your content is through Facebook.
-
-It's easy, quick, and connects with a mass of followers. However, if you do not know the process of how to go live on the Facebook page, then stay put. As in this guide, we will mention the correct steps. So, let's begin:
-
-![how to go live on facebook](https://images.wondershare.com/filmora/article-images/2021/go-live-on-facebook-page-1.jpeg)
-
-#### In this article
-
-Part 1: [How to Schedule a Facebook Live?](#step1)
-
-Part 2: [How to Go Live on Facebook Business Page?](#step2)
-
-Part 3: [How to Go Live in a Facebook Group?](#step3)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-## Part 1: How to Schedule a Facebook Live?
-
-Scheduling a live video is where you plan a live stream on a particular time slot. Keep note that live video scheduling is only possible through a PC. You will also have to use the Google Chrome web browser for the same. Now that you know the pre-requisites, let's comprehend the process in detail.
-
-* To schedule a live video, click on the "What's on your mind?" option. It's situated just above the News Feed.
-* Following that, click on the Live video option.
-* Now, click on the "Schedule live video event" option. It's present in the left column.
-* Within the left column, choose the location where you want to stream your live video. You will get options like timeline, page, or group. If you want to upload a live video on your timeline, select the same. Likewise, for a group or page, select the options accordingly.
-* Assign a name to the event. Also, choose other details like the date and time for your live streaming. After that, select the privacy setting for your live stream.
-* Click on Next. To add pictures to your live video announcement, click on "Upload Cover Photo" or "Choose illustration". Likewise, a default image will be selected if you do not want a special picture as your cover photo.
-* Once done, click on the Create Event button. This is present on the bottom side of the left corner. Your live stream will be scheduled.
-
-Once you schedule a live video, two posts will be generated automatically. This includes an announcement post and the live video post. The announcement post features all the information of the upcoming live stream. On the other hand, the live video post ensures that a live post is shared as per the scheduled date and time.
-
-![how to schedule facebook live](https://images.wondershare.com/filmora/article-images/2021/go-live-on-facebook-page-2.jpeg)
 
 ## Part 2: How to Go Live on Facebook Business Page?
 
 To ensure better connectivity and interaction with your followers, you may also require to go live through your Facebook business page. In that case, we will mention two ways to do so. While the first method involves live streaming through a Facebook mobile app, the second one includes live streaming through PC. Let's check out both the process in detail:
 
-### Through Facebook Mobile App
-
-Make sure you have downloaded the Facebook page mobile application to go live through your phone. For that, you can go to the App Store and search for the Facebook mobile application. Then, download and install the app.
-
-* Go to the Business page and click on Publish. This is more or less similar to how you update your status.
-* In doing so, the post window will launch. Look at the "Live Video" option situated at the bottom side. You can recognize it with the red camera icon.
-* Once the Facebook permission prompts (for camera and microphone) appear, click on OK.
-* As soon as the "Tap to add a description…," prompt appears, enter a detailed description. It should feature the information your audience expects from the live video.
-* Now, click on the "Go Live" button (red color camera icon). It's situated at the bottom side of the screen. This will initiate your live stream.
-
-![through facebook mobile app](https://images.wondershare.com/filmora/article-images/2021/go-live-on-facebook-page-3.jpeg)
-
-### Through PC
-
-You can also upload live streams on a profile, page, or group through your PC. Keep note that all the live videos on Facebook pages are public. This means anyone can visit your page and see the content. Here's how you can go live on the Facebook Business page through your PC
-
-* First of all, go to your News Feed. On the left menu, click on Pages.
-* Go to the page where you want to upload the live video and click on Live. It's situated next to the Create option.
-* Now, choose how you want to set up your live video. You can click on "Use Stream Keys" located beside the term "Get Started" (if you want the same). Select the Camera option to use a web camera for your live streaming.
-
-![through pc](https://images.wondershare.com/filmora/article-images/2021/go-live-on-facebook-page-4.jpeg)
-
-* In the left menu, confirm if you want to Go Live now or Schedule a video for some other time.
-* Make sure to input a description and title to the live video. If you want, you can check in to any location. You can also add any feeling or activity.
-* On the bottom left side, click on the Go live option. That's it! By following these steps, you can upload a live video on the Facebook business page through your PC.
-
-## Part 3: How to Go Live in a Facebook Group?
-
-Other than that, you can go live in Facebook groups too. It's an outstanding way to share the contents of any domain with a community of people with the same interest. Not only does it intrigue the group members, but it also attracts other followers or joinees to the group. Here, we will mention the process of going live in a Facebook group both through the Facebook mobile application and PC.
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037346/7443" target="_top" id="2037346">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037346" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037346/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-### Through Facebook Mobile Application
-
-At first, we will discuss the process of going live in a Facebook group through the Facebook mobile application. As mobile phones have become common, this is one of the most used methods for streaming live videos. Make sure to follow the below steps to go live in a Facebook group through a mobile application.
-
-* Start by tapping on the top right side of your News Feed. Now, go to the Groups section and then tap on the "Your Groups" option.
-* From there, choose the group where you want to go live. If you cannot see the Groups, tap on See more.
-* Now, tap on the Live button. Make sure to enter the video description and input any effects (if you want to).
-* After that, tap on the "Start Live Video" option. Make sure to familiarise yourself with the policies of Facebook before the streaming.
-
-It's possible to face a situation where you are unable to see the live option on your group. This can happen if the admin does not permit such posts in the group. However, if you are the group admin, permit the live option on your page.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-### Through PC
-
-While Facebook mobile application is a popular medium to go live on Facebook groups, PCs are no exception. If you are an admin, there are chances that you are using Facebook through the system. To go live on a group through PC, follow the steps given below
-
-* Go to your News Feed and look for an option called "Groups." They are situated on the left menu.
-* Now, choose the group where you want to live stream your video. From there, click on the "What's on your mind?" option. Then, click on the "Live Video" button.
-
-![live in facebook group](https://images.wondershare.com/filmora/article-images/2021/go-live-on-facebook-page-5.jpeg)
-
-* You will get two options within the left menu, i.e., Go Live Now and Schedule Live Video Event. While the former ensures immediate streaming, the latter is for future streaming. Make sure to enter the time and date if you want your video to go live later.
-* Make sure to enter the title and description into your live post. If you want, you can tag friends or members. You can also check in to the location or add any activity/feeling.
-* On the bottom left side, click on the Go Live button.
-
-Overall, that's the process of how you can go live in the Facebook group through PC. If you are streaming gameplay, you can also tag a particular game title. For that, within the left menu scroll to the Gaming. Now, search for a game title and choose them as per your choice. Make sure to read all the policies and then move forward with the process.
-
-If you’re planning to make live any pre-recorded video, you can create impressive videos using video editors. [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is one such cool video editor using which you can create impressive videos for Facebook live. You can add a lot of interesting affects and features to make your videos engaging.
-
-## To Conclude
-
-So, that's the process of how you can create a live stream on Facebook. Pretty easy, right? Being a common social media platform, Facebook live stream ensures your content spreads to a full-fledged audience. No other source is as interactive as compared to live streaming. The best part about live video is that it suits all content types. So, whether you are an individual or brand, it's going to work for you both ways. Hopefully, this guide helps you with live video streaming on Facebook.
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-In today's time, live streaming has become quite popular for gamers and influencers. The reason behind it can be high interaction and engagement. One of the primary platforms to live stream your content is through Facebook.
-
-It's easy, quick, and connects with a mass of followers. However, if you do not know the process of how to go live on the Facebook page, then stay put. As in this guide, we will mention the correct steps. So, let's begin:
-
-![how to go live on facebook](https://images.wondershare.com/filmora/article-images/2021/go-live-on-facebook-page-1.jpeg)
-
-#### In this article
-
-Part 1: [How to Schedule a Facebook Live?](#step1)
-
-Part 2: [How to Go Live on Facebook Business Page?](#step2)
-
-Part 3: [How to Go Live in a Facebook Group?](#step3)
-
-## Part 1: How to Schedule a Facebook Live?
-
-Scheduling a live video is where you plan a live stream on a particular time slot. Keep note that live video scheduling is only possible through a PC. You will also have to use the Google Chrome web browser for the same. Now that you know the pre-requisites, let's comprehend the process in detail.
-
-* To schedule a live video, click on the "What's on your mind?" option. It's situated just above the News Feed.
-* Following that, click on the Live video option.
-* Now, click on the "Schedule live video event" option. It's present in the left column.
-* Within the left column, choose the location where you want to stream your live video. You will get options like timeline, page, or group. If you want to upload a live video on your timeline, select the same. Likewise, for a group or page, select the options accordingly.
-* Assign a name to the event. Also, choose other details like the date and time for your live streaming. After that, select the privacy setting for your live stream.
-* Click on Next. To add pictures to your live video announcement, click on "Upload Cover Photo" or "Choose illustration". Likewise, a default image will be selected if you do not want a special picture as your cover photo.
-* Once done, click on the Create Event button. This is present on the bottom side of the left corner. Your live stream will be scheduled.
-
-Once you schedule a live video, two posts will be generated automatically. This includes an announcement post and the live video post. The announcement post features all the information of the upcoming live stream. On the other hand, the live video post ensures that a live post is shared as per the scheduled date and time.
-
-![how to schedule facebook live](https://images.wondershare.com/filmora/article-images/2021/go-live-on-facebook-page-2.jpeg)
-
-## Part 2: How to Go Live on Facebook Business Page?
-
-To ensure better connectivity and interaction with your followers, you may also require to go live through your Facebook business page. In that case, we will mention two ways to do so. While the first method involves live streaming through a Facebook mobile app, the second one includes live streaming through PC. Let's check out both the process in detail:
 
 ### Through Facebook Mobile App
 
@@ -361,13 +147,6 @@ It's easy, quick, and connects with a mass of followers. However, if you do not 
 
 ![how to go live on facebook](https://images.wondershare.com/filmora/article-images/2021/go-live-on-facebook-page-1.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### In this article
 
 Part 1: [How to Schedule a Facebook Live?](#step1)
@@ -375,6 +154,13 @@ Part 1: [How to Schedule a Facebook Live?](#step1)
 Part 2: [How to Go Live on Facebook Business Page?](#step2)
 
 Part 3: [How to Go Live in a Facebook Group?](#step3)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 1: How to Schedule a Facebook Live?
 
@@ -392,13 +178,6 @@ Once you schedule a live video, two posts will be generated automatically. This 
 
 ![how to schedule facebook live](https://images.wondershare.com/filmora/article-images/2021/go-live-on-facebook-page-2.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How to Go Live on Facebook Business Page?
 
 To ensure better connectivity and interaction with your followers, you may also require to go live through your Facebook business page. In that case, we will mention two ways to do so. While the first method involves live streaming through a Facebook mobile app, the second one includes live streaming through PC. Let's check out both the process in detail:
@@ -415,12 +194,126 @@ Make sure you have downloaded the Facebook page mobile application to go live th
 
 ![through facebook mobile app](https://images.wondershare.com/filmora/article-images/2021/go-live-on-facebook-page-3.jpeg)
 
+### Through PC
+
+You can also upload live streams on a profile, page, or group through your PC. Keep note that all the live videos on Facebook pages are public. This means anyone can visit your page and see the content. Here's how you can go live on the Facebook Business page through your PC
+
+* First of all, go to your News Feed. On the left menu, click on Pages.
+* Go to the page where you want to upload the live video and click on Live. It's situated next to the Create option.
+* Now, choose how you want to set up your live video. You can click on "Use Stream Keys" located beside the term "Get Started" (if you want the same). Select the Camera option to use a web camera for your live streaming.
+
+![through pc](https://images.wondershare.com/filmora/article-images/2021/go-live-on-facebook-page-4.jpeg)
+
+* In the left menu, confirm if you want to Go Live now or Schedule a video for some other time.
+* Make sure to input a description and title to the live video. If you want, you can check in to any location. You can also add any feeling or activity.
+* On the bottom left side, click on the Go live option. That's it! By following these steps, you can upload a live video on the Facebook business page through your PC.
+
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+## Part 3: How to Go Live in a Facebook Group?
+
+Other than that, you can go live in Facebook groups too. It's an outstanding way to share the contents of any domain with a community of people with the same interest. Not only does it intrigue the group members, but it also attracts other followers or joinees to the group. Here, we will mention the process of going live in a Facebook group both through the Facebook mobile application and PC.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+### Through Facebook Mobile Application
+
+At first, we will discuss the process of going live in a Facebook group through the Facebook mobile application. As mobile phones have become common, this is one of the most used methods for streaming live videos. Make sure to follow the below steps to go live in a Facebook group through a mobile application.
+
+* Start by tapping on the top right side of your News Feed. Now, go to the Groups section and then tap on the "Your Groups" option.
+* From there, choose the group where you want to go live. If you cannot see the Groups, tap on See more.
+* Now, tap on the Live button. Make sure to enter the video description and input any effects (if you want to).
+* After that, tap on the "Start Live Video" option. Make sure to familiarise yourself with the policies of Facebook before the streaming.
+
+It's possible to face a situation where you are unable to see the live option on your group. This can happen if the admin does not permit such posts in the group. However, if you are the group admin, permit the live option on your page.
+
+### Through PC
+
+While Facebook mobile application is a popular medium to go live on Facebook groups, PCs are no exception. If you are an admin, there are chances that you are using Facebook through the system. To go live on a group through PC, follow the steps given below
+
+* Go to your News Feed and look for an option called "Groups." They are situated on the left menu.
+* Now, choose the group where you want to live stream your video. From there, click on the "What's on your mind?" option. Then, click on the "Live Video" button.
+
+![live in facebook group](https://images.wondershare.com/filmora/article-images/2021/go-live-on-facebook-page-5.jpeg)
+
+* You will get two options within the left menu, i.e., Go Live Now and Schedule Live Video Event. While the former ensures immediate streaming, the latter is for future streaming. Make sure to enter the time and date if you want your video to go live later.
+* Make sure to enter the title and description into your live post. If you want, you can tag friends or members. You can also check in to the location or add any activity/feeling.
+* On the bottom left side, click on the Go Live button.
+
+Overall, that's the process of how you can go live in the Facebook group through PC. If you are streaming gameplay, you can also tag a particular game title. For that, within the left menu scroll to the Gaming. Now, search for a game title and choose them as per your choice. Make sure to read all the policies and then move forward with the process.
+
+If you’re planning to make live any pre-recorded video, you can create impressive videos using video editors. [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is one such cool video editor using which you can create impressive videos for Facebook live. You can add a lot of interesting affects and features to make your videos engaging.
+
+## To Conclude
+
+So, that's the process of how you can create a live stream on Facebook. Pretty easy, right? Being a common social media platform, Facebook live stream ensures your content spreads to a full-fledged audience. No other source is as interactive as compared to live streaming. The best part about live video is that it suits all content types. So, whether you are an individual or brand, it's going to work for you both ways. Hopefully, this guide helps you with live video streaming on Facebook.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+In today's time, live streaming has become quite popular for gamers and influencers. The reason behind it can be high interaction and engagement. One of the primary platforms to live stream your content is through Facebook.
+
+It's easy, quick, and connects with a mass of followers. However, if you do not know the process of how to go live on the Facebook page, then stay put. As in this guide, we will mention the correct steps. So, let's begin:
+
+![how to go live on facebook](https://images.wondershare.com/filmora/article-images/2021/go-live-on-facebook-page-1.jpeg)
+
+#### In this article
+
+Part 1: [How to Schedule a Facebook Live?](#step1)
+
+Part 2: [How to Go Live on Facebook Business Page?](#step2)
+
+Part 3: [How to Go Live in a Facebook Group?](#step3)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## Part 1: How to Schedule a Facebook Live?
+
+Scheduling a live video is where you plan a live stream on a particular time slot. Keep note that live video scheduling is only possible through a PC. You will also have to use the Google Chrome web browser for the same. Now that you know the pre-requisites, let's comprehend the process in detail.
+
+* To schedule a live video, click on the "What's on your mind?" option. It's situated just above the News Feed.
+* Following that, click on the Live video option.
+* Now, click on the "Schedule live video event" option. It's present in the left column.
+* Within the left column, choose the location where you want to stream your live video. You will get options like timeline, page, or group. If you want to upload a live video on your timeline, select the same. Likewise, for a group or page, select the options accordingly.
+* Assign a name to the event. Also, choose other details like the date and time for your live streaming. After that, select the privacy setting for your live stream.
+* Click on Next. To add pictures to your live video announcement, click on "Upload Cover Photo" or "Choose illustration". Likewise, a default image will be selected if you do not want a special picture as your cover photo.
+* Once done, click on the Create Event button. This is present on the bottom side of the left corner. Your live stream will be scheduled.
+
+Once you schedule a live video, two posts will be generated automatically. This includes an announcement post and the live video post. The announcement post features all the information of the upcoming live stream. On the other hand, the live video post ensures that a live post is shared as per the scheduled date and time.
+
+![how to schedule facebook live](https://images.wondershare.com/filmora/article-images/2021/go-live-on-facebook-page-2.jpeg)
+
+## Part 2: How to Go Live on Facebook Business Page?
+
+To ensure better connectivity and interaction with your followers, you may also require to go live through your Facebook business page. In that case, we will mention two ways to do so. While the first method involves live streaming through a Facebook mobile app, the second one includes live streaming through PC. Let's check out both the process in detail:
+
+### Through Facebook Mobile App
+
+Make sure you have downloaded the Facebook page mobile application to go live through your phone. For that, you can go to the App Store and search for the Facebook mobile application. Then, download and install the app.
+
+* Go to the Business page and click on Publish. This is more or less similar to how you update your status.
+* In doing so, the post window will launch. Look at the "Live Video" option situated at the bottom side. You can recognize it with the red camera icon.
+* Once the Facebook permission prompts (for camera and microphone) appear, click on OK.
+* As soon as the "Tap to add a description…," prompt appears, enter a detailed description. It should feature the information your audience expects from the live video.
+* Now, click on the "Go Live" button (red color camera icon). It's situated at the bottom side of the screen. This will initiate your live stream.
+
+![through facebook mobile app](https://images.wondershare.com/filmora/article-images/2021/go-live-on-facebook-page-3.jpeg)
 
 ### Through PC
 
@@ -451,12 +344,119 @@ At first, we will discuss the process of going live in a Facebook group through 
 
 It's possible to face a situation where you are unable to see the live option on your group. This can happen if the admin does not permit such posts in the group. However, if you are the group admin, permit the live option on your page.
 
+### Through PC
+
+While Facebook mobile application is a popular medium to go live on Facebook groups, PCs are no exception. If you are an admin, there are chances that you are using Facebook through the system. To go live on a group through PC, follow the steps given below
+
+* Go to your News Feed and look for an option called "Groups." They are situated on the left menu.
+* Now, choose the group where you want to live stream your video. From there, click on the "What's on your mind?" option. Then, click on the "Live Video" button.
+
+![live in facebook group](https://images.wondershare.com/filmora/article-images/2021/go-live-on-facebook-page-5.jpeg)
+
+* You will get two options within the left menu, i.e., Go Live Now and Schedule Live Video Event. While the former ensures immediate streaming, the latter is for future streaming. Make sure to enter the time and date if you want your video to go live later.
+* Make sure to enter the title and description into your live post. If you want, you can tag friends or members. You can also check in to the location or add any activity/feeling.
+* On the bottom left side, click on the Go Live button.
+
+Overall, that's the process of how you can go live in the Facebook group through PC. If you are streaming gameplay, you can also tag a particular game title. For that, within the left menu scroll to the Gaming. Now, search for a game title and choose them as per your choice. Make sure to read all the policies and then move forward with the process.
+
+If you’re planning to make live any pre-recorded video, you can create impressive videos using video editors. [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is one such cool video editor using which you can create impressive videos for Facebook live. You can add a lot of interesting affects and features to make your videos engaging.
+
+## To Conclude
+
+So, that's the process of how you can create a live stream on Facebook. Pretty easy, right? Being a common social media platform, Facebook live stream ensures your content spreads to a full-fledged audience. No other source is as interactive as compared to live streaming. The best part about live video is that it suits all content types. So, whether you are an individual or brand, it's going to work for you both ways. Hopefully, this guide helps you with live video streaming on Facebook.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+In today's time, live streaming has become quite popular for gamers and influencers. The reason behind it can be high interaction and engagement. One of the primary platforms to live stream your content is through Facebook.
+
+It's easy, quick, and connects with a mass of followers. However, if you do not know the process of how to go live on the Facebook page, then stay put. As in this guide, we will mention the correct steps. So, let's begin:
+
+![how to go live on facebook](https://images.wondershare.com/filmora/article-images/2021/go-live-on-facebook-page-1.jpeg)
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+#### In this article
+
+Part 1: [How to Schedule a Facebook Live?](#step1)
+
+Part 2: [How to Go Live on Facebook Business Page?](#step2)
+
+Part 3: [How to Go Live in a Facebook Group?](#step3)
+
+## Part 1: How to Schedule a Facebook Live?
+
+Scheduling a live video is where you plan a live stream on a particular time slot. Keep note that live video scheduling is only possible through a PC. You will also have to use the Google Chrome web browser for the same. Now that you know the pre-requisites, let's comprehend the process in detail.
+
+* To schedule a live video, click on the "What's on your mind?" option. It's situated just above the News Feed.
+* Following that, click on the Live video option.
+* Now, click on the "Schedule live video event" option. It's present in the left column.
+* Within the left column, choose the location where you want to stream your live video. You will get options like timeline, page, or group. If you want to upload a live video on your timeline, select the same. Likewise, for a group or page, select the options accordingly.
+* Assign a name to the event. Also, choose other details like the date and time for your live streaming. After that, select the privacy setting for your live stream.
+* Click on Next. To add pictures to your live video announcement, click on "Upload Cover Photo" or "Choose illustration". Likewise, a default image will be selected if you do not want a special picture as your cover photo.
+* Once done, click on the Create Event button. This is present on the bottom side of the left corner. Your live stream will be scheduled.
+
+Once you schedule a live video, two posts will be generated automatically. This includes an announcement post and the live video post. The announcement post features all the information of the upcoming live stream. On the other hand, the live video post ensures that a live post is shared as per the scheduled date and time.
+
+![how to schedule facebook live](https://images.wondershare.com/filmora/article-images/2021/go-live-on-facebook-page-2.jpeg)
+
+## Part 2: How to Go Live on Facebook Business Page?
+
+To ensure better connectivity and interaction with your followers, you may also require to go live through your Facebook business page. In that case, we will mention two ways to do so. While the first method involves live streaming through a Facebook mobile app, the second one includes live streaming through PC. Let's check out both the process in detail:
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+### Through Facebook Mobile App
+
+Make sure you have downloaded the Facebook page mobile application to go live through your phone. For that, you can go to the App Store and search for the Facebook mobile application. Then, download and install the app.
+
+* Go to the Business page and click on Publish. This is more or less similar to how you update your status.
+* In doing so, the post window will launch. Look at the "Live Video" option situated at the bottom side. You can recognize it with the red camera icon.
+* Once the Facebook permission prompts (for camera and microphone) appear, click on OK.
+* As soon as the "Tap to add a description…," prompt appears, enter a detailed description. It should feature the information your audience expects from the live video.
+* Now, click on the "Go Live" button (red color camera icon). It's situated at the bottom side of the screen. This will initiate your live stream.
+
+![through facebook mobile app](https://images.wondershare.com/filmora/article-images/2021/go-live-on-facebook-page-3.jpeg)
+
+### Through PC
+
+You can also upload live streams on a profile, page, or group through your PC. Keep note that all the live videos on Facebook pages are public. This means anyone can visit your page and see the content. Here's how you can go live on the Facebook Business page through your PC
+
+* First of all, go to your News Feed. On the left menu, click on Pages.
+* Go to the page where you want to upload the live video and click on Live. It's situated next to the Create option.
+* Now, choose how you want to set up your live video. You can click on "Use Stream Keys" located beside the term "Get Started" (if you want the same). Select the Camera option to use a web camera for your live streaming.
+
+![through pc](https://images.wondershare.com/filmora/article-images/2021/go-live-on-facebook-page-4.jpeg)
+
+* In the left menu, confirm if you want to Go Live now or Schedule a video for some other time.
+* Make sure to input a description and title to the live video. If you want, you can check in to any location. You can also add any feeling or activity.
+* On the bottom left side, click on the Go live option. That's it! By following these steps, you can upload a live video on the Facebook business page through your PC.
+
+## Part 3: How to Go Live in a Facebook Group?
+
+Other than that, you can go live in Facebook groups too. It's an outstanding way to share the contents of any domain with a community of people with the same interest. Not only does it intrigue the group members, but it also attracts other followers or joinees to the group. Here, we will mention the process of going live in a Facebook group both through the Facebook mobile application and PC.
+
+### Through Facebook Mobile Application
+
+At first, we will discuss the process of going live in a Facebook group through the Facebook mobile application. As mobile phones have become common, this is one of the most used methods for streaming live videos. Make sure to follow the below steps to go live in a Facebook group through a mobile application.
+
+* Start by tapping on the top right side of your News Feed. Now, go to the Groups section and then tap on the "Your Groups" option.
+* From there, choose the group where you want to go live. If you cannot see the Groups, tap on See more.
+* Now, tap on the Live button. Make sure to enter the video description and input any effects (if you want to).
+* After that, tap on the "Start Live Video" option. Make sure to familiarise yourself with the policies of Facebook before the streaming.
+
+It's possible to face a situation where you are unable to see the live option on your group. This can happen if the admin does not permit such posts in the group. However, if you are the group admin, permit the live option on your page.
 
 ### Through PC
 
@@ -502,22 +502,20 @@ So, that's the process of how you can create a live stream on Facebook. Pretty e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-quora-poster-sizing-instructions/"><u>[New] 2024 Approved Quora Poster Sizing Instructions</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-elevate-your-video-game-the-best-of-8-mirrorless-cams-for-2024/"><u>[New] Elevate Your Video Game The Best of 8 Mirrorless Cams for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-fb-video-downloader-extraordinaire-mp4-transformation-for-2024/"><u>[New] FB Video Downloader Extraordinaire - MP4 Transformation for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-find-hidden-watch-tile-artwork/"><u>[New] In 2024, Find Hidden Watch Tile Artwork</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-how-to-easily-create-captions-and-subtitles-for-facebook-videos/"><u>[New] In 2024, How to Easily Create Captions and Subtitles for Facebook Videos</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-the-3-elemental-strategies-for-writing-effective-social-media-promotions-for-2024/"><u>[New] The 3 Elemental Strategies for Writing Effective Social Media Promotions for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-can-i-browse-through-my-contacts-shared-material-in-messaging-for-2024/"><u>[Updated] Can I Browse Through My Contacts' Shared Material in Messaging for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-mastering-srt-a-thorough-exploration-of-its-essence/"><u>2024 Approved Mastering SRT A Thorough Exploration of Its Essence</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-unseen-reader-fb-moments-watcher/"><u>2024 Approved Unseen Reader FB Moments Watcher</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/3-solutions-to-find-your-vivo-y27s-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>3 Solutions to Find Your Vivo Y27s Current Location of a Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-samsung-galaxy-m14-5g-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Samsung Galaxy M14 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-filmmaking-basics-top-action-cameras-reviewed-in-23/"><u>In 2024, Filmmaking Basics Top Action Cameras Reviewed in '23</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-can-google-pixel-foldmirror-share-to-pc-drfone-by-drfone-android/"><u>In 2024, How Can Google Pixel FoldMirror Share to PC? | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/music-video-madness-top-10-on-social-sphere/"><u>Music Video Madness Top 10 on Social Sphere</u></a></li>
-<li><a href="https://fox-that.techidaily.com/the-essential-guide-to-activating-and-utilizing-iphones-dfui-mode-insights-and-instructions/"><u>The Essential Guide to Activating & Utilizing iPhone's DFUI Mode: Insights & Instructions</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/transforming-youtube-sounds-into-high-quality-wav-files-for-2024/"><u>Transforming YouTube Sounds Into High-Quality WAV Files for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/tricks-for-faster-instagram-video-views/"><u>Tricks for Faster Instagram Video Views</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-mi-drone-4k-flight-insights-and-features/"><u>[New] 2024 Approved Mi Drone 4K Flight Insights & Features</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-quick-recording-trick-webcam-plus-display-on-the-fly/"><u>[New] Quick Recording Trick Webcam + Display on the Fly</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-unveiling-the-concealed-cause-for-non-video-alerts-on-fb/"><u>[New] Unveiling the Concealed Cause for Non-Video Alerts on FB</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-elevate-your-social-presence-proven-methods-for-fb-fan-expansion/"><u>[Updated] 2024 Approved Elevate Your Social Presence Proven Methods for FB Fan Expansion</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-master-the-art-of-transferring-fb-vids-to-mp3-files/"><u>[Updated] 2024 Approved Master the Art of Transferring Fb Vids to MP3 Files</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-unlock-the-potential-of-your-online-social-presence/"><u>[Updated] Unlock the Potential of Your Online Social Presence</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-troubleshooting-receiving-yourself-in-a-facebook-live/"><u>2024 Approved Troubleshooting Receiving Yourself in a Facebook Live</u></a></li>
+<li><a href="https://howto.techidaily.com/authentication-error-occurred-on-infinix-smart-8-hd-here-are-10-proven-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Authentication Error Occurred on Infinix Smart 8 HD? Here Are 10 Proven Fixes | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/best-practices-for-engaging-with-facebook-live-content-for-2024/"><u>Best Practices for Engaging with Facebook Live Content for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/beware-no-official-chatgpt-app-for-windows-avoid-the-fake-versions/"><u>Beware: No Official ChatGPT App for Windows – Avoid the Fake Versions!</u></a></li>
+<li><a href="https://fox-metric.techidaily.com/exploring-the-world-of-icom-type-libraries-the-ultimate-resource-optimization-toolkit/"><u>Exploring the World of ICOM Type Libraries: The Ultimate Resource Optimization Toolkit</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/hot-on-demand-top-selling-iphone-16-variants-and-average-delivery-times-revealed-insights-for-tech-enthusiasts/"><u>Hot on Demand: Top Selling iPhone 16 Variants & Average Delivery Times Revealed – Insights for Tech Enthusiasts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-buy-subscribers-wisely-watch-your-numbers-soar/"><u>In 2024, Buy Subscribers Wisely, Watch Your Numbers Soar!</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-tips-for-overcoming-d3derr-not-available-issues/"><u>Troubleshooting Tips for Overcoming 'D3DERR Not Available' Issues</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/3gpp-wmv-movavi/"><u>오늘날의 가장 최신 방법: 웹 블로그에서 자원 없이 3GPP WMV 비디오 변환 – Movavi</u></a></li>
 </ul></div>
 

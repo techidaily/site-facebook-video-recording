@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Perfect Your Social Media History  Looking Back Mastery\""
-date: 2024-08-24T07:08:08.399Z
-updated: 2024-08-25T07:08:08.399Z
+date: 2024-10-10T18:19:20.874Z
+updated: 2024-10-16T12:26:43.439Z
 tags:
   - ai video
   - ai facebook
@@ -56,6 +56,13 @@ thumbnail: https://thmb.techidaily.com/fb708f6b02bb2770894398e8943ab9eb4326fec35
 
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/video-editor-interface.jpg "edit look back video")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 2. Add texts to the Look Back video
 
  To share the unforgettable moments in Look Back video, adding texts is a good idea. To do this, switch to Text tab and you'll see various texts templates on the left panel. Choose your favorite one and place it on the Timeline. Then the text thumbnail with a leading letter "T" will appear on the timeline. Double click it to type your texts in the box and select the font, color, animation, etc. Hit "Return" to confirm the settings and go back to the primary window.
@@ -70,6 +77,19 @@ thumbnail: https://thmb.techidaily.com/fb708f6b02bb2770894398e8943ab9eb4326fec35
 
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/audio-detach.jpg "edit look back video")
 
+<!-- affiliate ads begin -->
+<span id="1993645">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 4. Add more effects to your Look Back video
 
  Wondershare Filmora (originally Wondershare Video Editor) can help you make your video wonderful and special by applying various elements. To apply some advanced effects, right click the video and select the "Power Tool" option from the pops up menu, or hit the "Power Tool" button above the timeline to enter the Power Tool window. Here you are provided tilt shift, mosaic, face off and jump cut at beats.
@@ -77,6 +97,13 @@ thumbnail: https://thmb.techidaily.com/fb708f6b02bb2770894398e8943ab9eb4326fec35
 ![add ](https://images.wondershare.com/images/multimedia/video-editor/tilt-shift-1.jpg "add ")
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 5. Save or share the edited Look Back video
 
@@ -91,13 +118,18 @@ thumbnail: https://thmb.techidaily.com/fb708f6b02bb2770894398e8943ab9eb4326fec35
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -105,6 +137,23 @@ Follow @Liza Brown
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-understanding-why-youre-not-seen/"><u>[New] 2024 Approved Understanding Why You're Not Seen</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-8-tips-to-create-attractive-instagram-unboxing-reels-for-2024/"><u>[New] 8 Tips to Create Attractive Instagram Unboxing Reels for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-ace-list-of-low-cost-youtube-caption-tools-for-2024/"><u>[New] Ace List of Low-Cost YouTube Caption Tools for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-engage-efficiently-leading-insta-filters-for-2024/"><u>[New] Engage Efficiently Leading Insta Filters for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-fix-playback-glitches-with-facebook-videos-android/"><u>[New] Fix Playback Glitches with Facebook Videos (Android)</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-mobile-mastery-the-leading-app-list-for-popularity-growth/"><u>[New] In 2024, Mobile Mastery The Leading App List for Popularity Growth</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-transforming-vision-into-action-building-a-successful-fb-reel-channel/"><u>[New] In 2024, Transforming Vision Into Action Building a Successful FB Reel Channel</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-demystifying-trillers-unique-approach-to-video-content/"><u>[Updated] 2024 Approved Demystifying Triller's Unique Approach to Video Content</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-elevate-your-engagement-top-10-video-response-insights/"><u>[Updated] In 2024, Elevate Your Engagement Top 10 Video Response Insights</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-mastering-the-art-of-making-dormant-facebook-vids-pop-up-again-for-2024/"><u>[Updated] Mastering the Art of Making Dormant Facebook Vids Pop Up Again for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-television-transformation-via-social-media-platforms-like-fb-live/"><u>[Updated] Television Transformation via Social Media Platforms Like FB Live</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/a-glimpse-into-future-facebook-ad-tactics-for-24-for-2024/"><u>A Glimpse Into Future-Facebook Ad Tactics for '24 for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/cost-free-chromebook-video-capturing-leaders/"><u>Cost-Free Chromebook Video Capturing Leaders</u></a></li>
+<li><a href="https://win-dash.techidaily.com/easy-install-updated-epson-l3110-driver-software-for-modern-microsoft-systems-win7-win11/"><u>Easy Install: Updated Epson L3110 Driver Software for Modern Microsoft Systems (Win7-Win11)</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/swiftly-upgrade-your-videos-with-professional-level-fb-subtitle-making/"><u>Swiftly Upgrade Your Videos with Professional-Level FB Subtitle Making</u></a></li>
+</ul></div>
+
