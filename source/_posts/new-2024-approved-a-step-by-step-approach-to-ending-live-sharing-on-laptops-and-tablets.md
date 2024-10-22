@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  A Step-by-Step Approach to Ending Live Sharing on Laptops and Tablets\""
-date: 2024-10-13T08:42:59.399Z
-updated: 2024-10-16T08:27:54.489Z
+date: 2024-10-16T01:40:35.588Z
+updated: 2024-10-21T23:30:16.253Z
 tags:
   - ai video
   - ai facebook
@@ -62,13 +62,6 @@ Let's begin with the mobile Facebook application:
 
 **Step 4:** Finally, click on the Delete option again, and you are done. This Facebook story is removed.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How to Delete A Story from Facebook Story Archive?
 
 After your story vanishes from the Story section after 24 hours, they remain stored in the Story Achieve. But this feature has to stay enabled to store your stories in the Story Achieve. This way, you can control which stories you will like to save and which ones you will want to delete completely. To enable Story Archive, go to your Facebook profile and click on the three dots. You need to click on the settings option; after that, you need to select the gear icon. Once done, just toggle the save to archive option, and it will be enabled.
@@ -79,9 +72,23 @@ If it is already enabled, follow these steps to delete the archived Facebook sto
 
 ![delete Facebook Story from desktop](https://images.wondershare.com/filmora/article-images/facebook-story-archive.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2**: Now, select the Story Archive option that you see on the top. This will show all the archived stories. Next, choose a story that you want to remove permanently. The story will appear. Click on the three dots, and then click on the delete option.
 
 ![delete Facebook Story from archive](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-archive.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 This is how you will remove the stories from Facebook archived.
 
@@ -98,17 +105,10 @@ Facebook stories don't only appear on your Facebook home page; they also appear 
 ![delete Facebook Story from messager](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-messager.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
-  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: How to Control Who Can View Your Facebook Stories?
@@ -119,23 +119,16 @@ You can make your stories visible to your friends, customize the viewers, or kee
 
 ![  Facebook Story privacy option](https://images.wondershare.com/filmora/article-images/facebook-story-privacy-option.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2:** Now, the privacy setting page will let you choose from- public, friends, and custom. You can hide your story from a few people as well. Choose the one that meets your requirement. Then, go back and share the story.
 
 ![  Facebook Story privacy  ](https://images.wondershare.com/filmora/article-images/facebook-story-privacy.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
-  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 5: How to Hide Facebook Story from Specific People?
 
@@ -146,6 +139,13 @@ Facebook has made sharing stories easy because of the multiple features it offer
 ![  Facebook Story hide from specific person  ](https://images.wondershare.com/filmora/article-images/hide-facebook-story-from-specific-people.jpg)
 
 **Step 2:** You will be shown the complete list of people you are connected with on Facebook. Select the people you don't want to share your stories with, and then click on done.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 6: How to Delete Someone Else's Story on Your Facebook?
 
@@ -176,18 +176,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-ensuring-total-sound-from-partially-muted-fb-media/"><u>[New] Ensuring Total Sound From Partially Muted FB Media</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-mastering-video-backgrounds-teammeeting-blurring-guide/"><u>[New] Mastering Video Backgrounds TeamMeeting Blurring Guide</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-socialnet-movie-replayer/"><u>[New] SocialNet Movie Replayer</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-youtube-video-dimension-standards/"><u>[Updated] 2024 Approved YouTube Video Dimension Standards</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-alternative-cinema-highlights-audiences/"><u>[Updated] Alternative Cinema Highlights Audiences</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-live-video-on-fb-audience-focused-guide/"><u>[Updated] Live Video on FB Audience-Focused Guide</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-stepwise-guide-to-windows-11-sound-capture-setup-for-2024/"><u>[Updated] Stepwise Guide to Windows 11 Sound Capture Setup for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-unveil-facebook-friends-8-seamless-downloads/"><u>[Updated] Unveil Facebook Friends 8 Seamless Downloads</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/get-facebook-links-no-cash-required/"><u>Get Facebook Links, No Cash Required</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-easily-unlock-your-realme-11x-5g-device-sim-by-drfone-android/"><u>In 2024, Easily Unlock Your Realme 11X 5G Device SIM</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-cards-of-realme-gt-neo-5-without-puk-codes-by-drfone-android/"><u>In 2024, How To Unlock SIM Cards Of Realme GT Neo 5 Without PUK Codes</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/top-6-appsservices-to-trace-any-apple-iphone-8-location-by-mobile-number-drfone-by-drfone-virtual-ios/"><u>Top 6 Apps/Services to Trace Any Apple iPhone 8 Location By Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/top-7-ways-chatgpt-can-enhance-medical-guidance/"><u>Top 7 Ways ChatGPT Can Enhance Medical Guidance</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-igtv-masterpieces-top-editing-software-showcased/"><u>[New] 2024 Approved IGTV Masterpieces Top Editing Software Showcased</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-optimizing-ppt-presentations-across-devices-for-google-meet/"><u>[New] 2024 Approved Optimizing PPT Presentations Across Devices for Google Meet</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-iphone-plus-android-tutorial-screen-recording-google-meets/"><u>[New] In 2024, IPhone + Android Tutorial Screen Recording Google Meets</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-unlocking-video-creation-with-aiseesofts-capture-capabilities/"><u>[Updated] 2024 Approved Unlocking Video Creation with Aiseesoft's Capture Capabilities</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-affordable-mcb-theme-images-for-channels-for-2024/"><u>[Updated] Affordable MCB Theme Images for Channels for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-undead-uprising-top-8-unleashed-in-video-game-realm-for-2024/"><u>[Updated] Undead Uprising - Top 8 Unleashed in Video Game Realm for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-engage-audience-directly-from-xbox-with-fb-live/"><u>2024 Approved Engage Audience Directly From Xbox with FB Live</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-how-to-create-compelling-content-for-facebook-reels/"><u>2024 Approved How to Create Compelling Content for Facebook Reels</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-share-tunes-mp3-from-fb/"><u>2024 Approved Share Tunes MP3 From FB</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-the-path-to-pinpointing-your-liked-content-on-facebook/"><u>2024 Approved The Path to Pinpointing Your Liked Content on Facebook</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-wirecast-techniques-for-captivating-facebook-viewers/"><u>2024 Approved Wirecast Techniques for Captivating Facebook Viewers</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/can-chatgpt-enhance-its-responses-by-engaging-in-real-time-user-discussions/"><u>Can ChatGPT Enhance Its Responses by Engaging in Real-Time User Discussions?</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/facebooks-best-picture-enhancers-top-11-tools-ranked-for-2024/"><u>Facebook's Best Picture Enhancers Top 11 Tools Ranked for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/o-download-part-of-youtube-video/"><u>How to Download Part of YouTube Video?</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-effortlessly-capture-and-archive-your-favorite-fb-story-moments/"><u>In 2024, Effortlessly Capture and Archive Your Favorite FB Story Moments</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-nokia-c300-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Nokia C300 | Dr.fone</u></a></li>
 </ul></div>
 

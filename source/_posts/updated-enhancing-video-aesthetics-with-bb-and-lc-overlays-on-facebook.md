@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Enhancing Video Aesthetics with BB and LC Overlays on Facebook"
-date: 2024-10-11T04:59:43.244Z
-updated: 2024-10-16T00:59:05.323Z
+date: 2024-10-17T04:22:37.335Z
+updated: 2024-10-21T19:05:20.141Z
 tags:
   - ai video
   - ai facebook
@@ -49,16 +49,16 @@ This method is suitable for users whose source videos are not in square format (
 
 ![import-sample-video](https://images.wondershare.com/filmora/article-images/import-sample-video.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * 3\. Drag and drop the source video to the timeline, and a black letterbox will be created automatically in the preview window, cause the source file didn’t match the 1:1 ratio you set for the project
 
 ![automatic-letterbox](https://images.wondershare.com/filmora/article-images/automatic-letterbox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * 4\. Add a subtitle under **Titles** tab to the letterbox at the top and bottom and custom the texts you want.
 
@@ -72,15 +72,22 @@ And you can also go to the **Elements** tab, and add some creative elements such
 
 ![filmora9-export-panel](https://images.wondershare.com/filmora/article-images/filmora9-export-panel.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * 6\. Upload the exported square video to Facebook, and show how it looks like on Facebook.
 
 ![post-on-facebook](https://images.wondershare.com/filmora/article-images/post-on-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Method 2: Create a Letterbox by Adding Text Shapes
@@ -92,22 +99,15 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 ![import-square-video](https://images.wondershare.com/filmora/article-images/import-square-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
+  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * 2\. Then drag and drop your source video to the timeline. No black bars will appear automatically like in Method 1
 
 ![no-letterbox](https://images.wondershare.com/filmora/article-images/no-letterbox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * 3\. To create a letterbox, choose the option **Titles**. Now you will be shown a variety of subtitles and credit styles
 * 4\. Select **Subtitles**, then add a subtitle style that has a black background to your video, such as Subtitle 1,2,3, etc.
@@ -118,21 +118,22 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 
 ![custom-letterbox](https://images.wondershare.com/filmora/article-images/custom-letterbox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * 6\. Drag and drop the subtitle again from the Titles-Subtitles option. This time for the top section of the video
 
 ![add-subtitle-again](https://images.wondershare.com/filmora/article-images/add-subtitle-again.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="864" height="1296" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * 7\. You can input your own texts in the box or delete the text as you want, and you will be left with a video that has black bars on the top and bottom
@@ -143,27 +144,20 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 
 ![post-my-video](https://images.wondershare.com/filmora/article-images/post-my-video.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## To Sum up
 
 Adding a letterbox, then designing your own texts, elements and filters will bring great creativity to your video on Facebook. Creativity will connect people and you will create your own magic! Filmora now offers 2 effective ways to add a letterbox to any videos and a variety of attractive filters, overlays, and elements. This is why we recommend you all to try and use Filmora for all your editing needs. Here you go!
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
 
@@ -180,20 +174,20 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-sophisticated-screenshot-options-for-gamers/"><u>[New] 2024 Approved Sophisticated Screenshot Options for Gamers</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-breaking-barriers-making-your-post-a-sensation-on-fb/"><u>[New] In 2024, Breaking Barriers Making Your Post a Sensation on FB</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-how-to-prevent-fbs-video-ad-pop-ups/"><u>[Updated] 2024 Approved How to Prevent FB's Video Ad Pop-Ups</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-ultimate-fb-media-downloader-optimized-for-firefox-use/"><u>[Updated] 2024 Approved Ultimate FB Media Downloader Optimized for Firefox Use</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-bridging-fb-videos-to-home-screens-a-prospect-for-2024/"><u>[Updated] Bridging FB Videos to Home Screens A Prospect for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-evaluating-ffmpeg-for-pure-audio-recapture-for-2024/"><u>[Updated] Evaluating FFmpeg for Pure Audio Recapture for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-stability-essentials-for-online-videography/"><u>2024 Approved Stability Essentials for Online Videography</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/can-t-view-mov-movies-content-on-13t-pro-by-aiseesoft-video-converter-play-mov-on-android/"><u>Can’t view MOV movies content on 13T Pro</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/crafting-compelling-ad-messages-a-3-phase-copywriting-guide-for-2024/"><u>Crafting Compelling Ad Messages A 3 Phase Copywriting Guide for 2024</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-music-from-oppo-a58-4g-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Music from Oppo A58 4G to iPod | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-7-phone-number-locators-to-track-poco-c55-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Phone Number Locators To Track Poco C55 Location | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/mastering-fb-live-4-key-recording-techniques/"><u>Mastering FB Live 4 Key Recording Techniques</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/streamline-your-social-media-video-sharing-with-fb-tech-for-pcandroid/"><u>Streamline Your Social Media Video Sharing with FB Tech for PC/Android</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/unleash-zooms-full-potential-with-essential-3-methods-for-2024/"><u>Unleash Zoom's Full Potential with Essential 3 Methods for 2024</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/why-giving-ratings-matters-the-3-key-advantages-for-your-favorite-series/"><u>Why Giving Ratings Matters: The 3 Key Advantages for Your Favorite Series</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-expert-level-mp4-integrator-with-fb-compatibility/"><u>[New] In 2024, Expert-Level MP4 Integrator with FB Compatibility</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-request-for-access-to-entirety-of-shared-media-on-digital-chats-for-2024/"><u>[New] Request for Access to Entirety of Shared Media on Digital Chats for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-unleash-your-stream-potential-on-youtube-with-just-a-handful-of-followers/"><u>[New] Unleash Your Stream Potential on YouTube with Just a Handful of Followers</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-2024-approved-elite-ai-companions-for-chat/"><u>[Updated] 2024 Approved Elite AI Companions for Chat</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-navigating-picture-in-picture-on-safaris-ecosystem/"><u>[Updated] 2024 Approved Navigating Picture-in-Picture on Safari's Ecosystem</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-advanced-screenshot-options-for-windows-users/"><u>[Updated] In 2024, Advanced Screenshot Options for Windows Users</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-connect-tv-audiences-with-creative-fb-livestream-strategies/"><u>[Updated] In 2024, Connect TV Audiences with Creative FB Livestream Strategies</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-navigating-to-past-facebook-stories-a-step-by-step-mobile-and-laptop-guide-for-2024/"><u>[Updated] Navigating to Past Facebook Stories A Step-by-Step Mobile & Laptop Guide for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-share-a-world-view-iphone-360-film-techniques/"><u>[Updated] Share a World View IPhone 360 Film Techniques</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-unveiling-the-steps-for-instant-video-playback-from-youtube-to-facebook-pages/"><u>[Updated] Unveiling the Steps for Instant Video Playback From Youtube to Facebook Pages</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-compre-written-analysis-hero4-black-operations/"><u>2024 Approved Compre Written Analysis Hero4 Black Operations</u></a></li>
+<li><a href="https://driver-download.techidaily.com/free-download-corsair-icue-software-for-windows-11-and-10-install-guides/"><u>Free Download: Corsair iCUE Software for Windows 11 & 10 - Install Guides</u></a></li>
+<li><a href="https://win-dash.techidaily.com/how-to-find-download-and-update-elan-smbus-driver-on-windows-efficiently/"><u>How to Find, Download and Update ELAN SMBus Driver on Windows Efficiently</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/lighten-your-sentence-with-satire-ranking-funniest-facebook-detentions/"><u>Lighten Your Sentence with Satire Ranking Funniest Facebook Detentions</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-efficient-route-or-a-security-minefield-debating-facebooks-role-in-multi-app-access/"><u>The Efficient Route or a Security Minefield? Debating Facebook's Role in Multi-App Access</u></a></li>
 </ul></div>
 

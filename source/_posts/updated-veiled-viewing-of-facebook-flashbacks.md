@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Veiled Viewing of Facebook Flashbacks"
-date: 2024-08-24T07:04:17.482Z
-updated: 2024-08-25T07:04:17.482Z
+date: 2024-10-19T16:23:14.526Z
+updated: 2024-10-21T16:57:49.861Z
 tags:
   - ai video
   - ai facebook
@@ -61,9 +61,6 @@ Just like you can upload something on your story for others to see, you can also
 
 ## Part 1: How to View Someone's Facebook Story Anonymously? \[ 4 Ways\]
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
-<!-- affiliate ads end -->
 ### Method 1: Turn on the Airplane Mode
 
 When you turn on the airplane mode of your device, your phone will no longer be connected to the internet. So, what happens is that when the Airplane Mode is enabled, and you check a story, Facebook will fail to register your account as one of the **Facebook story viewers.** This is a pretty easy technique. Here's how you need to apply this method.
@@ -76,10 +73,6 @@ When you turn on the airplane mode of your device, your phone will no longer be 
 
 Once you are done, force close the Facebook application so that it doesn't run in the background when you disable the Airplane Mode. Because if you do that, your name can get registered. So, close the app completely. Please note that when the Airplane mode is on, some stories will not load. To watch them, you need to turn on and off the airplane mode again.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ### Method 2: Half Swipe
 
 As the name suggests, rather than watching the entire story, you need to stop watching it halfway through. The only apparent disadvantage of this method is you won't be able to see the whole story. The step that you will have to follow will be similar to watching a story normally. Follow these steps:
@@ -90,6 +83,19 @@ As the name suggests, rather than watching the entire story, you need to stop wa
 
 **Step 3:** Quickly swipe right or left and make sure the story doesn't end. This way, Facebook won't register you.
 
+<!-- affiliate ads begin -->
+<span id="2135471">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Method 3: Block Them
 
 This is another method to stop appearing as one of the viewers. This method will let you view the whole story; however, since it involves blocking the user, they will be removed from your friend list completely. So, try it if only you are fine with removing that person from your friends' list. Here's how to follow this method:
@@ -97,6 +103,13 @@ This is another method to stop appearing as one of the viewers. This method will
 **Step 1:** Go to your Facebook account and log in, and then **c**lick on the story that you want to see.
 
 **Step 2:** Once done, block the person. If you want, you can unblock them after 24 hours.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Method 4: Deactivate your Facebook Account to View Story Anonymously
 
@@ -110,26 +123,31 @@ For the last resort, you can deactivate your account and reactivate it after a w
 
 ![deactivate FB account to View Facebok Story anonymously](https://images.wondershare.com/filmora/article-images/deactivate-facebook-account.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
-<!-- affiliate ads end -->
 Once 24 hours is over, you can log in to reactive your account.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2: How Do I See Someone's Story on Facebook?
 
 There are three easy ways to see someone's story on Facebook. One way is to use the web browser of your pc or Mac, the second is exploring Facebook stories on Facebook Messenger, and the third is by using the Facebook mobile app. We will discuss these three methods below.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Method 1: View Facebook Stories through the Website Browser
 
 **Step 1:** Use any of the browsers on your computer and visit Facebook.Log in, and the home page will be displayed. On the top, you will see the stories.
 
 **Step 2:** Click on any of the stories to view them.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Method 2: View Facebook Story Through Facebook Messenger
 
@@ -140,8 +158,12 @@ There are three easy ways to see someone's story on Facebook. One way is to use 
 ![View Facebok Story via Messenger](https://images.wondershare.com/filmora/article-images/view-facebook-story-messenger.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Method 3: Open Facebook Mobile App to View Stories
 
 **Step 1:** Launch the Facebook mobile application. You will be directly taken to the home page. On top, you will see the story section.
@@ -149,6 +171,13 @@ There are three easy ways to see someone's story on Facebook. One way is to use 
 **Step 2:** Please click on any of the stories that you want to see.
 
 ![View Facebok Story on mobile](https://images.wondershare.com/filmora/article-images/view-facebook-story-mobile-app.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: How to Check Facebook Story Views?
 
@@ -160,14 +189,8 @@ Facebook allows you to check who viewed your stories. This is known as **Faceboo
 
 ![View who have seen my Facebok Story  ](https://images.wondershare.com/filmora/article-images/check-who-viewed-facebook-story.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->
 Now, you can see the list of people's names who have seen your story. This step will remain the same for both computer and mobile app users.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 4: FAQs About Viewing Facebook Story
 
 1. **Can I see who viewed my Facebook story if we aren't friends?**
@@ -202,11 +225,27 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-the-insiders-method-becoming-a-pro-at-fb-live-streaming/"><u>[New] The Insider's Method Becoming a Pro at FB Live Streaming</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-the-ultimate-tweet-to-facebook-manual-for-2024/"><u>[New] The Ultimate Tweet-to-Facebook Manual for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-essential-tactics-for-adding-vimeo-clips-to-powerpoint-slides-for-2024/"><u>[Updated] Essential Tactics for Adding Vimeo Clips to PowerPoint Slides for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-how-to-autoplay-youtube-videos-on-facebook-for-2024/"><u>[Updated] How to Autoplay Youtube Videos on Facebook for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-locate-and-watch-vintage-facebook-moments-for-2024/"><u>[Updated] Locate and Watch Vintage Facebook Moments for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-share-tunes-mp3-from-fb-for-2024/"><u>[Updated] Share Tunes MP3 From FB for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-testimonial-videos-the-social-proof-powerhouse/"><u>[Updated] Testimonial Videos The Social Proof Powerhouse</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-pro-level-iphone-photo-techniques-identifying-ideal-perspectives/"><u>2024 Approved Pro-Level iPhone Photo Techniques Identifying Ideal Perspectives</u></a></li>
+<li><a href="https://article-tips.techidaily.com/comprehensive-look-at-lg-bp350-display-specifications/"><u>Comprehensive Look at LG BP350 Display Specifications</u></a></li>
+<li><a href="https://extra-support.techidaily.com/link-audio-clips-to-powerpoint-slides-for-2024/"><u>Link Audio Clips to PowerPoint Slides for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/recording-webinars-on-a-budget-friendly-platform/"><u>Recording Webinars on a Budget-Friendly Platform</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/streaming-success-enter-the-500-sub-club-for-profit-for-2024/"><u>Streaming Success Enter the 500-Sub Club for Profit for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/unlocking-money-potential-a-beginners-guide-on-periscope/"><u>Unlocking Money Potential A Beginner's Guide on Periscope</u></a></li>
+</ul></div>
+

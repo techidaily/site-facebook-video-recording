@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, A Step-by-Step Approach to Ending Live Sharing on Laptops and Tablets\""
-date: 2024-08-24T06:56:39.214Z
-updated: 2024-08-25T06:56:39.214Z
+date: 2024-10-19T02:58:17.518Z
+updated: 2024-10-21T17:08:53.582Z
 tags:
   - ai video
   - ai facebook
@@ -91,8 +91,12 @@ Facebook stories don't only appear on your Facebook home page; they also appear 
 ![delete Facebook Story from messager](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-messager.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 4: How to Control Who Can View Your Facebook Stories?
 
 You can make your stories visible to your friends, customize the viewers, or keep them public. Facebook allows you to control how and with whom you want to share your stories with.
@@ -101,20 +105,30 @@ You can make your stories visible to your friends, customize the viewers, or kee
 
 ![  Facebook Story privacy option](https://images.wondershare.com/filmora/article-images/facebook-story-privacy-option.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2:** Now, the privacy setting page will let you choose from- public, friends, and custom. You can hide your story from a few people as well. Choose the one that meets your requirement. Then, go back and share the story.
 
 ![  Facebook Story privacy  ](https://images.wondershare.com/filmora/article-images/facebook-story-privacy.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<a href="https://laganoo.pxf.io/c/5597632/1528681/16446" target="_top" id="1528681">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528681" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528681/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
+
 ## Part 5: How to Hide Facebook Story from Specific People?
 
 Facebook has made sharing stories easy because of the multiple features it offers. Apart from controlling the story, you can even choose to hide the story from specific people. To do that, here's what you need to do.
@@ -124,13 +138,21 @@ Facebook has made sharing stories easy because of the multiple features it offer
 ![  Facebook Story hide from specific person  ](https://images.wondershare.com/filmora/article-images/hide-facebook-story-from-specific-people.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 **Step 2:** You will be shown the complete list of people you are connected with on Facebook. Select the people you don't want to share your stories with, and then click on done.
 
 <!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 6: How to Delete Someone Else's Story on Your Facebook?
 
 If you don't want to see someone else’s story, then you can mute their stories. Once you do that, their stories will no longer appear on your News Feed. Here are the steps to follow:
@@ -145,16 +167,11 @@ Facebook stories are a great way to let people know what you are up to. It's sho
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -162,3 +179,23 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-experts-choice-the-10-best-movie-making-cameras/"><u>[New] Expert's Choice The 10 Best Movie Making Cameras</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-stepwise-approach-to-adding-video-tracks-to-your-youtube-playlists/"><u>[New] Stepwise Approach to Adding Video Tracks to Your YouTube Playlists</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-get-tech-savvy-expert-guide-for-mac-screen-recording-via-shortcuts/"><u>2024 Approved Get Tech-Savvy Expert Guide for Mac Screen Recording via Shortcuts</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-recover-elusive-facebook-watch-video-icon/"><u>2024 Approved Recover Elusive Facebook Watch Video Icon</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-step-by-step-filming-and-editing-your-first-reel-on-facebook/"><u>2024 Approved Step-by-Step Filming and Editing Your First Reel on Facebook</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-streamlining-facebook-content-for-tv-platforms/"><u>2024 Approved Streamlining Facebook Content for TV Platforms</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-the-fast-lane-to-excellent-captioning-a-guide-to-impressive-fb-media-posts/"><u>2024 Approved The Fast Lane to Excellent Captioning A Guide to Impressive FB Media Posts</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-unpacking-the-limitations-of-video-sharing-in-facebooks-community/"><u>2024 Approved Unpacking the Limitations of Video Sharing in Facebook's Community</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/facebooks-best-friend-on-mobile-top-10-android-extractor-apps-overview-for-2024/"><u>Facebook's Best Friend on Mobile Top 10 Android Extractor Apps Overview for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/grau-gmbhs-comprehensive-guide-to-professional-video-repair-techniques-and-tools/"><u>Grau GmbH's Comprehensive Guide to Professional Video Repair Techniques and Tools</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/how-to-amplify-facebook-stories-with-music-elements-for-2024/"><u>How to Amplify Facebook Stories with Music Elements for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-3-effective-methods-to-fake-gps-location-on-android-for-your-vivo-s17-drfone-by-drfone-virtual/"><u>In 2024, 3 Effective Methods to Fake GPS location on Android For your Vivo S17 | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-gaomon-pd1560-digital-art-pad-evaluation-the-ideal-stylus-monitor/"><u>In-Depth Gaomon PD1560 Digital Art Pad Evaluation: The Ideal Stylus Monitor</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/merging-markets-youtube-and-brand-collaboration-concepts-for-2024/"><u>Merging Markets YouTube and Brand Collaboration Concepts for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ct-pixels-selecting-best-cameras-for-yt-for-2024/"><u>Perfect Pixels Selecting Best Cameras For YT for 2024</u></a></li>
+</ul></div>
+

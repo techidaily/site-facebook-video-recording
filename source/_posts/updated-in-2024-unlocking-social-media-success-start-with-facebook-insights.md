@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Unlocking Social Media Success  Start with Facebook Insights\""
-date: 2024-10-11T17:22:38.714Z
-updated: 2024-10-15T19:25:01.873Z
+date: 2024-10-16T20:36:59.764Z
+updated: 2024-10-21T20:46:41.633Z
 tags:
   - ai video
   - ai facebook
@@ -41,13 +41,6 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
 
  But, you need to remain updated and in the loop with the regular and fresh developments taking place on your page every now and then.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: Where to Find Facebook Insights
 
  To find out the audience demographic, audience’s response, and page performance on Facebook, [you need to check the Facebook page insights](https://www.facebook.com/help/268680253165747?helpref=search&sr=1&query=insights). It shows you past two years data. The demographic data like the gender, location or age is only available when the data reaches 100 or more traffic on the Page Insight page. The community pages insight is not shown.
@@ -63,23 +56,17 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
 ![insights overview](https://images.wondershare.com/filmora/article-images/insights-overview.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036481/19272" target="_top" id="2036481">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036481" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036481/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<span id="1983584">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. Page Likes
@@ -105,10 +92,10 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
 ![insights post reach](https://images.wondershare.com/filmora/article-images/insights-post-reach.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. Post Promotion
@@ -126,6 +113,13 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
  The Top Videos section shows you the top 5 videos posted by you with more than 3 seconds views. This helps you to analyse the type of video preferred by your audiences.
 
 ![insights video analytics](https://images.wondershare.com/filmora/article-images/insights-video-analytics.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 6\. People Analytics
 
@@ -145,14 +139,14 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -169,22 +163,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-lessons.techidaily.com/new-best-performers-top-10-innovative-4k-mirrorless-models/"><u>[New] Best Performers Top 10 Innovative 4K Mirrorless Models</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-quickfacebookvidextractor-pro/"><u>[New] QuickFacebookVidExtractor Pro</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-addressing-ios-and-android-issues-with-fb-messages-video-sharing/"><u>[Updated] Addressing iOS and Android Issues with FB Message's Video Sharing</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-enhancing-chrome-performance-for-hd-facebook-content/"><u>[Updated] Enhancing Chrome Performance for HD Facebook Content</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-resolving-partially-silenced-facebook-media/"><u>[Updated] In 2024, Resolving Partially Silenced Facebook Media</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-the-2023-shift-in-facebooks-video-presentation-style/"><u>[Updated] In 2024, The 2023 Shift in Facebook’s Video Presentation Style</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-the-complete-angle-manipulation-handbook-for-youtube-videos/"><u>[Updated] In 2024, The Complete Angle Manipulation Handbook for YouTube Videos</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-the-free-guide-to-conducting-flawless-google-meet-sessions-for-2024/"><u>[Updated] The Free Guide to Conducting Flawless Google Meet Sessions for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-tilling-through-time-top-farmer-games-evolutions/"><u>[Updated] Tilling Through Time Top Farmer Games Evolutions</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-effortlessly-access-fb-beats/"><u>2024 Approved Effortlessly Access FB Beats</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-the-comprerancial-guide-to-building-an-influential-online-following/"><u>2024 Approved The Comprerancial Guide to Building an Influential Online Following</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-from-darkness-to-daylight-funniest-incarcerated-facebook-friends-quotes/"><u>In 2024, From Darkness to Daylight Funniest Incarcerated Facebook Friends Quotes</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-google-chrome-from-tracking-your-location-on-samsung-galaxy-f54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Google Chrome from Tracking Your Location On Samsung Galaxy F54 5G? | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-integrated-sound-and-vision-workspace/"><u>In 2024, Integrated Sound & Vision Workspace</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/troubleshooting-youtube-understanding-common-connection-issues/"><u>Troubleshooting YouTube: Understanding Common Connection Issues</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/tune-into-unparalleled-music-video-watching-best-android-vids-for-you/"><u>Tune Into Unparalleled Music Video Watching Best Android Vids for You</u></a></li>
-<li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-vivo-y56-5g-drfone-by-drfone-virtual-android/"><u>What are Location Permissions Life360 On Vivo Y56 5G? | Dr.fone</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-optimal-tools-to-convert-and-tweet-videos/"><u>[New] 2024 Approved Optimal Tools to Convert and Tweet Videos</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-windowsmac-securely-download-facebook-media/"><u>[New] 2024 Approved Windows/Mac Securely Download Facebook Media</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-maximizing-your-channels-earnings-a-guide-to-creating-impactful-trailers/"><u>[New] In 2024, Maximizing Your Channel's Earnings A Guide to Creating Impactful Trailers</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-syncing-sound-and-visuals-a-movie-maker-technique-for-2024/"><u>[New] Syncing Sound and Visuals A Movie Maker Technique for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-crafting-your-online-identity-a-facebook-tutorial/"><u>[Updated] 2024 Approved Crafting Your Online Identity A Facebook Tutorial</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-discover-top-emulated-psp-classics-on-ios/"><u>[Updated] 2024 Approved Discover Top Emulated PSP Classics on iOS</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-unite-gamers-and-followers-xboxfb-livestream-guide/"><u>[Updated] 2024 Approved Unite Gamers & Followers Xbox/FB Livestream Guide</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-clear-facebook-broadcast-laptops-and-phones-included/"><u>[Updated] In 2024, Clear Facebook Broadcast Laptops and Phones Included</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-dissecting-popularity-ten-facts-about-reels-unmasked/"><u>[Updated] In 2024, Dissecting Popularity Ten Facts About Reels, Unmasked</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-integrating-your-vimeo-videos-into-instagram-for-2024/"><u>[Updated] Integrating Your Vimeo Videos Into Instagram for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-with-location-spoofer-on-htc-u23-pro-drfone-by-drfone-virtual-android/"><u>How To Simulate GPS Movement With Location Spoofer On HTC U23 Pro? | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/overcoming-elevated-permission-issues-for-task-execution-on-windows-11-10-and-7/"><u>Overcoming Elevated Permission Issues for Task Execution on Windows 11, 10 and 7</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/ranking-the-top-8-apps-to-increase-popularity-on-facebook/"><u>Ranking the Top 8 Apps to Increase Popularity on Facebook</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/revolutionize-your-sales-approach-with-the-best-15-social-media-analyzers-for-2024/"><u>Revolutionize Your Sales Approach with the Best 15 Social Media Analyzers for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/strategies-to-combat-the-impact-of-new-facebook-algorithms-for-2024/"><u>Strategies to Combat the Impact of New Facebook Algorithms for 2024</u></a></li>
 </ul></div>
 

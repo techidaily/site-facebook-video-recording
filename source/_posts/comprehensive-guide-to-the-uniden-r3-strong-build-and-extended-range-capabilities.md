@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Guide to the Uniden R3: Strong Build & Extended Range Capabilities"
-date: 2024-10-15T11:58:42.609Z
-updated: 2024-10-15T22:39:24.767Z
+date: 2024-10-15T18:56:57.935Z
+updated: 2024-10-21T17:10:53.331Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive Guide to the Uniden R3: Strong Build & Extended Range Capabilities"
@@ -77,6 +77,19 @@ Lifewire / Kelsey Simon
 
 ![Rayman Legends](https://www.lifewire.com/thmb/-Un250xgOCxgaGgFeykC6pihaaU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/RaymanLegends_20190118212347-5c8ffe8d46e0fb0001f8d0cc.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1975562">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
 
 ## **Gameplay: What this is really about**
@@ -93,6 +106,13 @@ Lifewire / Kelsey Simon
 
 ![Rayman Legends](https://www.lifewire.com/thmb/oJz1vIp26cdVH1115RCHTapRpTE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/RaymanLegends_20190118215643-5c8ffe7346e0fb000146adbb.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
+  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
 
  When you’ve reached a certain number of Lums, you’ll be able to unlock new heroes, which there is no shortage of. The levels grow gradually more complex as you progress, and while we admit that most levels weren’t too difficult, a few at the end of the game will be challenging for even well-practiced players.
@@ -103,29 +123,22 @@ Lifewire / Kelsey Simon
 
  The Challenges mode, which we mentioned earlier, is where you can attempt weekly challenges, earn rewards, and get your username on the leaderboards. The last feature―our favorite―is the ability to unlock levels from Rayman Origins, the game that came before Rayman Legends. It’s like you’re getting two games for the price of one.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Graphics: Cartoony but appropriate**
 
  Rayman Legends has a unique look, which is represented fairly well by its bright and eye-catching cover. It doesn’t attempt to be realistic but embraces cartoon-like graphics, with goofy characters and villains mildly reminiscent of real-life creatures. In the level titled Toad Story, you’ll come across screaming toad monsters carrying swords and shields.
 
 ![Rayman Legends](https://www.lifewire.com/thmb/ccE0U5KQNuFzIwrnVe2EtwkrG_g=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/RaymanLegends_20190118211106-5c90015f46e0fb000146adbe.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151872/7443" target="_top" id="2151872">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151872" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151872/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
 
  In the Fiesta De Los Muertos level, be prepared to smash brightly colored mariachi skeletons. No matter which level, though, the art style is consistent, and while not traditionally beautiful, it’s enjoyable and fun―a perfect fit for the game.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Audio: A hidden treasure**
 
@@ -134,13 +147,6 @@ Lifewire / Kelsey Simon
  At the end of each level, a special map is unlocked. This map is themed to fit with the level’s design, and each features a specific song. You’ll load in, be told to prepare yourself to run at full speed while jumping and smashing enemies, and then, as you set off, the first notes of the song begin.
 
 ![Rayman Legends](https://www.lifewire.com/thmb/JIMvxIzHzgo1AXBmpTp3LxpzmTQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/RaymanLegends_20190118210656-5c9001cd46e0fb000172f0b1.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -157,10 +163,10 @@ Lifewire / Kelsey Simon
  Sometimes PlayStation will put the item on sale, and you might even be able to get a copy for less than $15.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Competition: More co-op platformers**
@@ -175,18 +181,24 @@ Lifewire / Kelsey Simon
 
  Between the co-op option, the extra levels, the ability to replay Rayman Origins, and all the other things you can unlock from special heroes to scratchers, this game has a lot to offer for gamers of all ages.
 
+<!-- affiliate ads begin -->
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [LEGO Worlds](https://www.lifewire.com/lego-dimensions-review-4686589)
 * [Minecraft](https://www.lifewire.com/minecraft-review-4777049)
 * [Ratchet & Clank](https://www.lifewire.com/ratchet-and-clank-review-4777051)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -216,22 +228,22 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-enhancing-engagement-top-20-best-practices-for-video-ads-on-facebook/"><u>[New] 2024 Approved Enhancing Engagement Top 20 Best Practices for Video Ads on Facebook</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-quality-and-cost-savings-unite-in-best-asmr-mics/"><u>[New] 2024 Approved Quality and Cost Savings Unite in Best ASMR Mics</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-can-you-challenge-facebooks-video-copyright-holdouts-in-2024/"><u>[New] Can You Challenge Facebook’s Video Copyright Holdouts, In 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-get-every-moment-of-fb-lives-top-5-video-capture-apps-for-2024/"><u>[New] Get Every Moment of Fb Lives Top 5 Video Capture Apps for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-clear-cuts-for-chilling-youtube-content-no-more-silent-lapses/"><u>[New] In 2024, Clear Cuts for Chilling YouTube Content – No More Silent Lapses</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-the-music-merger-for-engaging-fb-video-content/"><u>[New] In 2024, The Music Merger for Engaging FB Video Content</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-digital-subtitle-producer/"><u>[Updated] Digital Subtitle Producer</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-deciphering-numbers-an-introduction-to-facebook-insight/"><u>[Updated] In 2024, Deciphering Numbers An Introduction to Facebook Insight</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-facebook-stories-downloader/"><u>[Updated] In 2024, Facebook Stories Downloader</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-unleashing-the-potential-of-srt-files-in-real-time-social-networking/"><u>[Updated] In 2024, Unleashing the Potential of SRT Files in Real-Time Social Networking</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/bridging-gaps-online-effective-techniques-for-screenshare-on-fb-for-2024/"><u>Bridging Gaps Online Effective Techniques for Screenshare on FB for 2024</u></a></li>
-<li><a href="https://review-topics.techidaily.com/does-find-my-friends-work-on-vivo-v30-drfone-by-drfone-virtual-android/"><u>Does find my friends work on Vivo V30 | Dr.fone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/o-craft-eye-catching-youtubes-end-titles-for-2024/"><u>How to Craft Eye-Catching YouTubes End Titles for 2024</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-3-ways-to-track-oneplus-nord-n30-5g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Track OnePlus Nord N30 5G without Them Knowing | Dr.fone</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/ipad-pro-vs-macbook-pro-comparing-features-and-uses/"><u>IPad Pro Vs. MacBook Pro: Comparing Features and Uses</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-free-mov-video-rotation-software-top-picks/"><u>New In 2024, Free MOV Video Rotation Software Top Picks</u></a></li>
-<li><a href="https://howto.techidaily.com/vivo-s17-not-connecting-to-wi-fi-12-quick-ways-to-fix-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Vivo S17 Not Connecting to Wi-Fi? 12 Quick Ways to Fix | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-10-effortless-tips-for-amplifying-video-engagement-on-facebook/"><u>[New] 2024 Approved 10 Effortless Tips for Amplifying Video Engagement on Facebook</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-the-roadmap-for-success-mastering-the-art-of-fb-reel-production/"><u>[New] 2024 Approved The Roadmap for Success Mastering the Art of FB Reel Production</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-accessing-the-archives-of-social-media-history-pc-and-mobile-guide/"><u>[New] Accessing the Archives of Social Media History PC & Mobile Guide</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-how-to-change-facebook-cover-photo/"><u>[New] How to Change Facebook Cover Photo</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-decoding-inverse-image-retrieval-for-social-networks-focusing-on-fb/"><u>[New] In 2024, Decoding Inverse Image Retrieval for Social Networks, Focusing on FB</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-innovative-snapchat-strategies-the-ultimate-list-for-2024/"><u>[New] Innovative Snapchat Strategies The Ultimate List for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-leverage-linked-profiles-to-amplify-fb-stories/"><u>[New] Leverage Linked Profiles to Amplify FB Stories</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/avigating-online-hostility-on-video-platforms/"><u>[New] Navigating Online Hostility on Video Platforms</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-the-complete-breakdown-of-facebooks-changes-for-2024/"><u>[New] The Complete Breakdown of Facebook's Changes for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-transform-your-snaps-the-complete-guide-to-snapchat-editing/"><u>[New] Transform Your Snaps The Complete Guide to Snapchat Editing</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-facebook-cover-video-widthheight-recommendation/"><u>[Updated] 2024 Approved Facebook Cover Video Width/Height Recommendation</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/fixing-missing-cygwin1dll-files-tips-and-techniques-that-work/"><u>Fixing Missing cygwin1.dll Files: Tips and Techniques That Work</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-2-ways-to-monitor-apple-iphone-14-pro-activity-drfone-by-drfone-virtual-ios/"><u>In 2024, 2 Ways to Monitor Apple iPhone 14 Pro Activity | Dr.fone</u></a></li>
+<li><a href="https://win-able.techidaily.com/master-the-art-of-troubleshooting-discord-install-failures-swiftly/"><u>Master the Art of Troubleshooting Discord Install Failures Swiftly</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-the-ultimate-compilation-top-10-audio-processing-mobile-apps-ios-and-android-for-2024/"><u>New The Ultimate Compilation Top 10 Audio Processing Mobile Apps (iOS and Android) for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/top-6-slide-show-creation-apps-on-latest-iphones/"><u>Top 6 Slide Show Creation Apps on Latest iPhones</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/unlocking-the-power-of-smart-lock-a-beginners-guide-for-motorola-moto-g13-users-by-drfone-android/"><u>Unlocking the Power of Smart Lock A Beginners Guide for Motorola Moto G13 Users</u></a></li>
 </ul></div>
 

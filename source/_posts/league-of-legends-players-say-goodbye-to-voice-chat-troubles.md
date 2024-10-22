@@ -1,7 +1,7 @@
 ---
 title: League of Legends Players, Say Goodbye to Voice Chat Troubles!
-date: 2024-08-24T06:58:23.506Z
-updated: 2024-08-25T06:58:23.506Z
+date: 2024-10-14T18:24:10.798Z
+updated: 2024-10-21T21:40:32.611Z
 tags:
   - win11
   - win10
@@ -52,6 +52,13 @@ thumbnail: https://thmb.techidaily.com/04cd06d52399075f11c15c05a13e29b26c1429efb
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Fix 2: Update your audio driver
 
  This problem may occur if you are using the wrong audio driver or it’s out of date. So you should update your audio driver to see if it fixes your problem. If you don’t have the time, patience or skills to update the driver manually, you can do it automatically with **[Driver Easy](https://tools.techidaily.com/drivereasy/download/)**  .
@@ -70,9 +77,6 @@ thumbnail: https://thmb.techidaily.com/04cd06d52399075f11c15c05a13e29b26c1429efb
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/06/image-36.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  You can also do it for free if you like, but it’s partly manual.
 
 4) Restart your computer for the changes to take effect.
@@ -81,9 +85,6 @@ thumbnail: https://thmb.techidaily.com/04cd06d52399075f11c15c05a13e29b26c1429efb
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ### Fix 3: Make sure your microphone is set as default in Windows
 
  Ideally Windows can automatically detect your microphone and set it as the default device every time it’s plugged into. But that’s not always the case and sometimes you’ll have to manually set it as default.[](https://tools.techidaily.com/drivereasy/download/) [](http://twitter.com/home/?status=How%20To%20Fix%20Fortnite%20Sound%20Not%20Working%20-%20https://www.drivereasy.com/knowledge/how-to-fix-fortnite-sound-not-working-on-pc/) **[](https://tools.techidaily.com/drivereasy/download/)**
@@ -95,15 +96,16 @@ Here’s how to do it:
 ![](https://images.drivereasy.com/wp-content/uploads/2019/10/image-239.png)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  4) In **Sound** settings, scroll down to the**Input** section, and in**Choose your input device** , make sure the microphone you are actively using is selected. Then,**test your microphone** by speaking into your mic to see if it ‘hears’ anything. If yes, it means you have configured the microphone properly.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/10/image-242.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
-<!-- affiliate ads end -->
 5) Close the window.
 
 6) Launch Apex Legends to see if the mic not working problem is fixed. If yes, then congrats! If the issue persists, please try**Fix 3** , below.
@@ -124,9 +126,6 @@ Here is how to configure in-game settings:
 
 ![This image has an empty alt attribute; its file name is image-261-1024x700.png](https://images.drivereasy.com/wp-content/uploads/2019/10/image-261-1024x700.png)
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  3) Open Apex Legends, then go to**Settings > AUDIO** and set the **Voice Chat Record Mode** to **Push to Talk** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/10/image-262-1024x576.png)
@@ -138,8 +137,12 @@ Here is how to configure in-game settings:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Fix 5: Install the latest game patch
 
  The developers of Apex Legends, EA, keep releasing game patches to fix bugs. It’s possible that a recent patch has stopped your game from running smoothly, and that a new patch is required for the problem. So it’s recommended that you go to[**EA official website**](https://www.ea.com/games/apex-legends) , check for the latest patch, download and install it. Then check if it fixes the voice chat not working problem.
@@ -149,8 +152,12 @@ Here is how to configure in-game settings:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Fix 6: Reinstall Origin and Apex Legends
 
  If the above steps don’t solve the issue, then it’s likely that the files in Origin or Apex Legends are corrupt. So you can reinstall the client and the game to see if it solves the problem.
@@ -161,9 +168,23 @@ Here are the steps:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/10/image-174.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  2) In the program list, locate **Origin** , then right-click on it and click **Uninstall** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/10/image-175-1024x499.png)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657396/16446" target="_top" id="1657396">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657396" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657396/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  4) Locate **Apex Legends** and uninstall it too.
 
@@ -188,8 +209,6 @@ Here are the steps:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -197,4 +216,16 @@ Here are the steps:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-de-vibratory-techniques-for-drone-video-clarity-for-2024/"><u>[New] De-Vibratory Techniques for Drone Video Clarity for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nlocking-the-full-potential-of-your-youtube-channel-with-right-video-settings/"><u>[New] Unlocking the Full Potential of Your YouTube Channel with Right Video Settings</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-share-wisdom-top-strategies-for-video-sharing-on-instagram/"><u>[Updated] In 2024, Share Wisdom Top Strategies for Video Sharing on Instagram</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-windows-and-mac-friendly-techniques-for-fb-video-download-for-2024/"><u>[Updated] Windows & Mac-Friendly Techniques for FB Video Download for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-broadcast-strategies-share-twitch-videos-on-fb/"><u>2024 Approved Broadcast Strategies Share Twitch Videos on FB</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-mastering-zoom-the-ultimate-guide-to-audio-recording-for-podcasts/"><u>2024 Approved Mastering Zoom The Ultimate Guide to Audio Recording for Podcasts</u></a></li>
+<li><a href="https://win-docs.techidaily.com/comment-resoudre-les-erreurs-lors-du-chargement-du-systeme-windows-11-guide-complet-pour-des-installations-en-douceur/"><u>Comment Résoudre Les Erreurs Lors Du Chargement Du Système Windows 11 ? Guide Complet Pour Des Installations en Douceur</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/critical-review-of-vlcs-capture-tools/"><u>Critical Review of VLC's Capture Tools</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-social-media-blend-easy-twitch-to-facebook-integration/"><u>In 2024, Social Media Blend Easy Twitch to Facebook Integration</u></a></li>
+</ul></div>
 

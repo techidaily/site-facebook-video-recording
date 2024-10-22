@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Mastering FB Video  Quick Subtitle & Caption Creation Guide\""
-date: 2024-08-24T07:03:49.471Z
-updated: 2024-08-25T07:03:49.471Z
+date: 2024-10-15T22:48:17.545Z
+updated: 2024-10-21T22:39:12.221Z
 tags:
   - ai video
   - ai facebook
@@ -64,11 +64,25 @@ It is also possible to delete Facebook video captions with ease. Click the trash
 
 Save all updates when you are satisfied with preview.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Edit Facebook Video Text/Subtitles with Wondershare Filmora
 
 It is convenient to create captions in Facebook with the automatic generate tool or uploading the .SRT file, but if you want your text/subtitle with more cool visual effects, like dialog balloons, headings, we recommend you to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/). You can easily update intro, credit and captions as well as subtitles to your Facebook videos using Wondershare Filmora tool. If you want to make video for business, here comes [Filmora Business](https://tools.techidaily.com/wondershare/filmora/download/). It is a simple to use video editor to make short video on Facebook. You can make amazing Facebook videos. Download it now to have a try!
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Here are few simple to follow steps
 
@@ -95,7 +109,21 @@ Once you have finished the text based editing task then hit the Export option av
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
+  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -103,14 +131,33 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-expert-mp4-to-fb-migration-tool/"><u>[New] Expert MP4 To-FB Migration Tool</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-tackling-photo-mismatch-on-fb-conversation-screen/"><u>[New] In 2024, Tackling Photo Mismatch on FB Conversation Screen</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-step-up-to-the-challenge-full-screen-mastery-for-fb-vids/"><u>[New] Step Up to the Challenge Full-Screen Mastery for FB Vids</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-transform-your-social-media-voice-with-high-def-streams/"><u>[New] Transform Your Social Media Voice with High-Def Streams</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-a-marketer-writes-guide-to-utilizing-hashtags-effectively-on-facebook/"><u>[Updated] 2024 Approved A Marketer' Writes Guide to Utilizing Hashtags Effectively on Facebook</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-bring-back-vanished-watch-icon-to-facebook-for-2024/"><u>[Updated] Bring Back Vanished Watch Icon to Facebook for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-mastering-easy-hdr-a-step-by-step-guide/"><u>[Updated] Mastering Easy HDR A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-nixing-facebook-broadcasts-effortlessly/"><u>[Updated] Nixing Facebook Broadcasts Effortlessly</u></a></li>
+<li><a href="https://howto.techidaily.com/bricked-your-nokia-c12-plus-heres-a-full-solution-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Bricked Your Nokia C12 Plus? Heres A Full Solution | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/experiencing-mistral-ais-le-chat-a-comparison-with-the-renowned-chatgpt/"><u>Experiencing Mistral AI's Le Chat: A Comparison with the Renowned ChatGPT</u></a></li>
+<li><a href="https://common-error.techidaily.com/fixing-the-issue-overcoming-windows-update-error-code-0x8007001f/"><u>Fixing the Issue: Overcoming Windows Update Error Code 0X8007001f</u></a></li>
+<li><a href="https://change-location.techidaily.com/home-button-not-working-on-vivo-v27-pro-here-are-real-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Home Button Not Working on Vivo V27 Pro? Here Are Real Fixes | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/1722900899672-how-students-can-snag-significant-savings-on-dell-products-your-step-by-step-blueprint/"><u>How Students Can Snag Significant Savings on Dell Products - Your Step-by-Step Blueprint</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/leveraging-visuals-for-profile-dominance/"><u>Leveraging Visuals for Profile Dominance</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/next-level-productivity-with-apple-ipad-102-and-its-game-changing-ipados-a-review-for-tech-enthusiasts/"><u>Next Level Productivity with Apple iPad 10.2 and Its Game-Changing iPadOS - A Review for Tech Enthusiasts</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/open-air-fb-audio-downloads-for-2024/"><u>Open Air FB Audio Downloads for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-art-of-delicate-business-messages-powered-by-ai/"><u>The Art of Delicate Business Messages Powered by AI</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/transforming-data-gpt-3s-six-pivotal-roles-for-analysts/"><u>Transforming Data: GPT-3's Six Pivotal Roles for Analysts</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/unveiling-the-mysteries-of-communication-a-deep-dive-into-the-dead-internet-theory/"><u>Unveiling the Mysteries of Communication: A Deep Dive Into the Dead Internet Theory</u></a></li>
+</ul></div>
+

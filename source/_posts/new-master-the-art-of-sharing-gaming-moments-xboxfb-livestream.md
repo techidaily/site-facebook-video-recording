@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Master the Art of Sharing Gaming Moments  Xbox/FB Livestream\""
-date: 2024-08-24T06:58:04.104Z
-updated: 2024-08-25T06:58:04.104Z
+date: 2024-10-15T01:13:15.448Z
+updated: 2024-10-21T21:33:03.267Z
 tags:
   - ai video
   - ai facebook
@@ -50,6 +50,19 @@ b. Now you have to enable your smartglass connection. This can be done only from
 
 ![profiles signed ](https://images.wondershare.com/filmora/article-images/profiles-signed.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2: Connect the Xbox one to the Windows 10 computer**
 
 a. Go to your pc and launch the Xbox application. The Xbox app is going to trace your device in case you are using the same email id. However if you are using another email for your windows pc then you have to go to the Xbox app and fill in the Xbox live credentials.
@@ -60,20 +73,28 @@ c. Your home network is going to be scanned by the Xbox software for any Xbox co
 
 ![Select the name ](https://images.wondershare.com/filmora/article-images/select-the-name.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 d. Once the connection is established the icons would indicate that and you will find new power, streaming and media remote options. You will also be able to remotely control your console. Now the controller and the Click Stream needs to be connected so as to play your Xbox games on your Windows computer.
 
 ![new options ](https://images.wondershare.com/filmora/article-images/new-options.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Method 2:Streaming Xbox to computer with a capture card
 
 You can find many [capture cards](https://www.elgato.com/en/gaming)in the market which would allow you to stream your Xbox onto your computer without altering its quality. HD60 Pro is one of those capture cards which offers perfect streaming and optimum control for an enhanced gaming experience.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Use Wirecast or OBS to stream your desktop to Facebook
 
 Once all is set up you can live stream you desktop screen to facebook, we are not going to give a full introdcution here, you can check _OBS setup here,_ and _Wirecast setup here._
@@ -86,15 +107,6 @@ Once all is set up you can live stream you desktop screen to facebook, we are no
 
 ![OBS ](https://images.wondershare.com/filmora/article-images/obs.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
-
- It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
-
-  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
-
-  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
-<!-- affiliate ads end -->
 [Wirecast](http://www.telestream.net/wirecast/overview.htm) \- would allow you to capture, produce and stream content from a number of input devices including Xbox, iOS cameras, computer etc. The Wirecast Gameshow can be used for streaming high quality computer games in full HD.
 
 **Pros**\- One of the best live streaming software, Wirecast can be used even by novices. This powerful and professional software comes with loads of exciting features
@@ -104,20 +116,19 @@ Once all is set up you can live stream you desktop screen to facebook, we are no
 ![ Wirecast](https://images.wondershare.com/filmora/article-images/wirecast.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -125,3 +136,20 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-free-up-your-time-with-these-5-chrome-plugins-for-fb-video-downloads-for-2024/"><u>[New] Free Up Your Time with These 5 Chrome Plugins for FB Video Downloads for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-leveraging-youtube-and-apple-tv-integration-for-enhanced-fb-video-watching/"><u>[Updated] Leveraging YouTube & Apple TV Integration for Enhanced FB Video Watching</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/all-you-need-to-know-about-mega-greninja-for-infinix-note-30-vip-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Infinix Note 30 VIP | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/comparing-home-theatre-vs-stereo-receivers-understanding-the-key-distinctions/"><u>Comparing Home Theatre Vs. Stereo Receivers: Understanding the Key Distinctions</u></a></li>
+<li><a href="https://games-able.techidaily.com/exploring-the-visionary-realm-xbox-series-x-4k-blu-ray/"><u>Exploring the Visionary Realm - Xbox Series X 4K Blu-Ray</u></a></li>
+<li><a href="https://fox-that.techidaily.com/fix-your-airpods-fast-the-ultimate-guide-to-resolving-sound-issues-and-audio-disruptions/"><u>Fix Your AirPods Fast: The Ultimate Guide to Resolving Sound Issues and Audio Disruptions</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-adding-depth-with-customized-facebook-slideshows/"><u>In 2024, Adding Depth with Customized Facebook Slideshows</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-fix-missing-fb-watch-icon-quick-guide/"><u>In 2024, Fix Missing FB Watch Icon - Quick Guide</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-from-realme-gt-5-240w-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock from Realme GT 5 (240W) Devices</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-life360-from-tracking-you-on-xiaomi-14-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Life360 from Tracking You On Xiaomi 14? | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/my-videos-arent-playing-on-samsung-galaxy-m14-4g-what-can-i-do-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>My Videos Arent Playing on Samsung Galaxy M14 4G – What Can I Do? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/unveiling-hidden-shared-memories-in-messenger/"><u>Unveiling Hidden Shared Memories in Messenger</u></a></li>
+</ul></div>
+

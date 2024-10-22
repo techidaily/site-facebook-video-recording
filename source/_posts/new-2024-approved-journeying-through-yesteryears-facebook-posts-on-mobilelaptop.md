@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Journeying Through Yesteryear's Facebook Posts on Mobile/Laptop\""
-date: 2024-08-24T07:00:27.515Z
-updated: 2024-08-25T07:00:27.515Z
+date: 2024-10-19T21:36:09.477Z
+updated: 2024-10-22T01:25:30.850Z
 tags:
   - ai video
   - ai facebook
@@ -55,6 +55,13 @@ By clicking on the **More option**, you will see a few more options appear. Clic
 
 On the story archive option, you will see three dots on the top right option. It provides you with a choice to save stories or not. You can turn on the save archives option to save every story you post so that you can view it later.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to View Stories on Facebook Desktop?
 
 You can use Facebook on your desktop; it is feasible to use it on a desktop when you are using it for professional purposes such as blogging or business. It is possible to view old Facebook stories through desktop also; here is how:
@@ -69,9 +76,6 @@ Once you click on the story archive, all your **old stories** will appear in seq
 
 **Note:** You can only view stories through the above process if you have turned on your story archive option. Click on settings to turn it on or off as per your choice.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
-<!-- affiliate ads end -->
 ## Part 3: How to View A Friend’s Old Facebook Story?
 
 It is nearly impossible to view your friend’s story once it has disappeared. You cannot watch the stories even if they are achieved. However, there is one way to view old stories of your friends. Here is how:
@@ -91,8 +95,12 @@ People make a **series of highlights** and name them accordingly. If the story i
 **Note:** A person or a user has to click on the star highlight sign to save stories for the future. If they do not select the highlight option, stories will disappear after 24 hours, and there is no way to view them in the future. Hence, this option is only applicable when a user has saved their stories for public view.
 
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 4: How to Save Posts from Your Stories Archive to Your Device?
 
 We tend not to save stories to our devices when clicking them directly from the Facebook app. However, you can save a post to your device from the stories archive using simple steps. Let's see how to do it:
@@ -110,8 +118,12 @@ After visiting the story archive, click on the story you wish to save. Click on 
 After you click three dots, you will see a save and delete photo option. Click on the **save option** to download it to your device.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
+  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 5: How to See Old Stories on a Facebook Business Page?
 
 Facebook business pages help in enhancing business significantly, primarily if you use story features for customer interaction. If you want to keep track of old stories, you can use the following method:
@@ -135,15 +147,23 @@ Facebook is an excellent platform to interact with your audience, and the story 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1912746">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -151,3 +171,25 @@ Follow @Liza Brown
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-decoding-facebooks-automatic-video-advancements/"><u>[New] 2024 Approved Decoding Facebook's Automatic Video Advancements</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-professional-photography-meets-social-media-dslr-and-computer-syncopation/"><u>[New] 2024 Approved Professional Photography Meets Social Media DSLR and Computer Syncopation</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-capture-every-word-4-tips-for-fb-video-transcripts/"><u>[New] In 2024, Capture Every Word 4 Tips for FB Video Transcripts</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-digital-audio-mastery-fb-video-conversion-wizardry/"><u>[New] In 2024, Digital Audio Mastery FB Video Conversion Wizardry</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-mastering-facebook-hashtags-for-strategic-marketing/"><u>[New] Mastering Facebook Hashtags for Strategic Marketing</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-soloists-path-to-trending-podcasts/"><u>[New] The Soloist's Path to Trending Podcasts</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-the-ultimate-laptop-and-mobile-roadmap-for-old-facebook-stories-for-2024/"><u>[New] The Ultimate Laptop & Mobile Roadmap for Old Facebook Stories for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-unveiling-the-process-for-achieving-facebooks-trusted-marker-for-2024/"><u>[New] Unveiling the Process for Achieving Facebook's Trusted Marker for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-exclusive-review-top-6-screen-recorders-for-mac/"><u>[Updated] 2024 Approved Exclusive Review Top 6 Screen Recorders for Mac</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-compose-cover-videos-for-friends-facebooks/"><u>[Updated] In 2024, Compose Cover Videos for Friends' Facebooks</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/how-to-fix-audio-video-delay-in-vlc-media-player-stellar/"><u>How to Fix Audio Video Delay in VLC Media Player - Stellar</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/how-to-get-and-install-updated-drivers-for-your-hp-officejet-pro-e8610-on-windows-systems/"><u>How to Get and Install Updated Drivers for Your HP Officejet Pro E8610 on Windows Systems</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-wipe-iphone-xs-max-data-permanently-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Wipe iPhone XS Max Data Permanently? | Stellar</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-asus-rog-phone-7-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Asus ROG Phone 7 | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-sync-up-songs-and-screenshots-on-snapchat/"><u>In 2024, Sync-Up Songs and Screenshots on Snapchat</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Realme Narzo N55 | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/winx-media-software-top-tier-virtual-help-desk-for-dvd-extraction-and-video-editing-solutions/"><u>WinX Media Software: Top-Tier Virtual Help Desk for DVD Extraction & Video Editing Solutions</u></a></li>
+</ul></div>
+

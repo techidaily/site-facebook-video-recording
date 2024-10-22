@@ -1,7 +1,7 @@
 ---
 title: "\"The ABC's of Amassing Affection on FB  Squaring Up Your Video Strategy\""
-date: 2024-08-24T07:00:39.368Z
-updated: 2024-08-25T07:00:39.368Z
+date: 2024-10-19T01:22:13.526Z
+updated: 2024-10-21T16:28:46.588Z
 tags:
   - ai video
   - ai facebook
@@ -69,9 +69,6 @@ The software can do whatever you wish in video and image editing, starting from 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Step 1: Import video**
 
 First of all, you need to install the software on your Windows/Mac computer and then launch it. Go to the timeline panel media files and select the file after tapping the thumbnail. It gets imported to the Filmora interface.
@@ -84,6 +81,13 @@ You got to right click on the selected video and then select ‘Crop & Zoom’ f
 
 ![crop and zoom](https://images.wondershare.com/filmora/article-images/crop-and-zoom.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 3: Open the edit panel**
 
 Now, on the edit panel hit the ‘Crop Clip’ button and select 1:1 from the bottom. The square video area can be adjusted from the preview window.
@@ -91,15 +95,39 @@ Now, on the edit panel hit the ‘Crop Clip’ button and select 1:1 from the bo
 ![edit panel](https://images.wondershare.com/filmora/article-images/crop-zoom-panel.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1938141">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 **Step 4: Save changes and export**
 
 Here, you need to press ‘OK’ and export the file to your computer. Later you can upload it on your Facebook account easily.
 
 ![export video](https://images.wondershare.com/filmora/article-images/export-video-filmora.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4: How to create square videos by Adobe Premiere
 
@@ -113,19 +141,12 @@ First you need to import video to Premiere Pro. Go to File > Import, and then se
 
 ![import video premiere](https://images.wondershare.com/filmora/article-images/import-video-premiere.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Step 2：Sequence settings**
 
 Click Sequence in the top, and then select Sequence Settings. First to seclect ARRI Cinema to activiate the settings. In the video area, adjust the frame size. You need to keep horizontal and vertical number the same in order to create square video. Here, we adjsut it to 600\. Leave the rest options the same. Click OK.
 
 ![Sequence settings](https://images.wondershare.com/filmora/article-images/sequence-setting.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 **Step 3：Export**
 
 Export your video once the changes are satisfactory and enjoy!
@@ -139,21 +160,25 @@ From the above article, we are sure that square videos on Facebook are significa
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -161,3 +186,23 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-mastering-video-posts-on-the-worlds-biggest-social-network/"><u>[New] 2024 Approved Mastering Video Posts on the World's Biggest Social Network</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-fb-forum-film-replayer-for-2024/"><u>[New] Fb Forum Film Replayer for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-the-ultimate-list-facebooks-top-10-vids/"><u>[Updated] 2024 Approved The Ultimate List Facebook's Top 10 Vids</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-comparative-analysis-of-fb-video-formats/"><u>[Updated] In 2024, Comparative Analysis of FB Video Formats</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-ultimate-4-facebook-film-compiler-for-2024/"><u>[Updated] Ultimate 4 Facebook Film Compiler for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-mastering-instagram-video-posts/"><u>2024 Approved Mastering Instagram Video Posts</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-solutions-to-find-your-itel-s23plus-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>3 Solutions to Find Your Itel S23+ Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/a-comprehensive-guide-to-crafting-memes-on-9gag-for-2024/"><u>A Comprehensive Guide to Crafting Memes on 9GAG for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ing-compelling-channel-names-simplified/"><u>Creating Compelling Channel Names Simplified</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-android-unlock-code-sim-unlock-your-vivo-t2-5g-phone-and-remove-locked-screen-by-drfone-android/"><u>In 2024, Android Unlock Code Sim Unlock Your Vivo T2 5G Phone and Remove Locked Screen</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-discover-device-friendly-ways-to-locate-your-yt-comments/"><u>In 2024, Discover Device-Friendly Ways to Locate Your YT Comments</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-ultimate-guide-on-iphone-14-icloud-activation-lock-bypass-by-drfone-ios/"><u>In 2024, Ultimate Guide on iPhone 14 iCloud Activation Lock Bypass</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/top-rated-webm-to-mp3-conversion-software-for-2024/"><u>Top-Rated WebM to MP3 Conversion Software for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/transforming-viewing-habits-with-fb-live-on-roku-for-2024/"><u>Transforming Viewing Habits with FB Live on Roku for 2024</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-2024-approved-exploring-free-software-for-high-quality-voice-and-audio-recordings-from-your-pc/"><u>Updated 2024 Approved Exploring Free Software for High-Quality Voice and Audio Recordings From Your PC</u></a></li>
+</ul></div>
+
