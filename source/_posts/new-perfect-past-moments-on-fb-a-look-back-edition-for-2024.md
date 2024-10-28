@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Perfect Past Moments on FB  A Look Back Edition for 2024\""
-date: 2024-08-24T06:54:56.989Z
-updated: 2024-08-25T06:54:56.989Z
+date: 2024-10-22T21:24:24.239Z
+updated: 2024-10-27T19:43:21.760Z
 tags:
   - ai video
   - ai facebook
@@ -56,11 +56,25 @@ thumbnail: https://thmb.techidaily.com/4526e24333ba977c51600360964ccfdbc4ba0f9b4
 
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/video-editor-interface.jpg "edit look back video")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 2. Add texts to the Look Back video
 
  To share the unforgettable moments in Look Back video, adding texts is a good idea. To do this, switch to Text tab and you'll see various texts templates on the left panel. Choose your favorite one and place it on the Timeline. Then the text thumbnail with a leading letter "T" will appear on the timeline. Double click it to type your texts in the box and select the font, color, animation, etc. Hit "Return" to confirm the settings and go back to the primary window.
 
 ![edit look back video](https://images.wondershare.com/topic/video-editing/add-titles.jpg "edit look back video")
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 3. Edit the audio of Look Back video
 
@@ -78,6 +92,13 @@ thumbnail: https://thmb.techidaily.com/4526e24333ba977c51600360964ccfdbc4ba0f9b4
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 5. Save or share the edited Look Back video
 
  When everything is ready, click "Create" to save or share your videos in different ways:
@@ -91,13 +112,18 @@ thumbnail: https://thmb.techidaily.com/4526e24333ba977c51600360964ccfdbc4ba0f9b4
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -105,6 +131,25 @@ Follow @Liza Brown
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
-<!-- affiliate ads end -->
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-are-you-prepared-for-the-changed-facebook-algorithm-in-2024/"><u>[New] Are You Prepared for the Changed Facebook Algorithm, In 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-demystifying-payment-systems-in-shortform-creator-ecosystem-for-2024/"><u>[New] Demystifying Payment Systems in Shortform Creator Ecosystem for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-easy-peasy-ffvegior-grab-facebook-video-mp4-files/"><u>[New] In 2024, Easy Peasy FFVEGIOR Grab Facebook Video MP4 Files</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-inquiry-how-to-view-all-media-sharing-in-app-messages-for-2024/"><u>[New] Inquiry How to View All Media Sharing in App Messages for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-unleashing-facebooks-auto-play-feature-for-youtube-clips/"><u>[New] Unleashing Facebook's Auto-Play Feature for YouTube Clips</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-how-to-add-instagram-filter-to-existing-photos-and-videos-for-2024/"><u>[Updated] How to Add Instagram Filter to Existing Photos and Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-fixing-half-muted-content-on-twitter-live-streams/"><u>[Updated] In 2024, Fixing Half-Muted Content on Twitter Live Streams</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-ultimate-5-vr-sets-elevating-uav-experience-for-2024/"><u>[Updated] Ultimate 5 VR Sets Elevating UAV Experience for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-unlocking-youtube-on-facebook-feeds/"><u>[Updated] Unlocking YouTube on Facebook Feeds</u></a></li>
+<li><a href="https://techtrends.techidaily.com/apples-revolutionary-foldable-iphone-explore-release-schedules-pricing-forecasts-and-leaked-specifications/"><u>Apple's Revolutionary Foldable iPhone? Explore Release Schedules, Pricing Forecasts, and Leaked Specifications.</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/constructing-a-dynamic-tiktok-end-slide/"><u>Constructing a Dynamic TikTok End Slide</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/copy-dvd-contents-onto-hard-drive-proven-4-strategies-in-deutschland/"><u>Copy DVD Contents Onto Hard Drive – Proven 4 Strategies in Deutschland</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/initiate-your-facebook-analysis-journey-for-2024/"><u>Initiate Your Facebook Analysis Journey for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/is-searching-with-duckduckgo-secure-a-comprehensive-overview/"><u>Is Searching with DuckDuckGo Secure? A Comprehensive Overview</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-your-pictures-after-oppo-reno-11-pro-5g-has-been-deleted-by-fonelab-android-recover-pictures/"><u>Recover your pictures after Oppo Reno 11 Pro 5G has been deleted.</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/two-effective-ways-how-can-i-share-youtube-videos-on-facebook/"><u>Two Effective Ways! How Can I Share YouTube Videos on Facebook?</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/ultimate-airborne-colossus-collection/"><u>Ultimate Airborne Colossus Collection</u></a></li>
+</ul></div>
+

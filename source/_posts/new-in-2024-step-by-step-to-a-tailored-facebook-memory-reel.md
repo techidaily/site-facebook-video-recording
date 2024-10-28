@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Step-by-Step to a Tailored Facebook Memory Reel\""
-date: 2024-08-10T14:18:48.530Z
-updated: 2024-08-11T14:18:48.530Z
+date: 2024-10-20T19:40:37.680Z
+updated: 2024-10-27T18:44:17.526Z
 tags:
   - ai video
   - ai facebook
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/37c258031093435d71dd94d515145542657904928
 
 # How to Edit Facebook Look Back Video
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
@@ -34,9 +31,6 @@ thumbnail: https://thmb.techidaily.com/37c258031093435d71dd94d515145542657904928
 
  The good new is that, Facebook has introduced a new editor now, which lets you choose your favorite images for the video. To edit the Look Back video, simply hit the "Edit" button on the top right corner of the Look Back page. Then un-check the photos and updates you don't want in your video, and check the ones that you want include. Once you're done, click the green "Share Your Movie" button at the top of the page.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/edit-look-back-video.png "edit look back video")
 
  Now you've selected the image you like. But what if the result is still disappointing? Don't worry! Here I'll introduce you a more powerful video editing tool to edit and enrich your Facebook Look Back video. Read on to get more information.
@@ -54,6 +48,13 @@ thumbnail: https://thmb.techidaily.com/37c258031093435d71dd94d515145542657904928
 * Enables you to upload the edit Look Back Video to Facebook instantly.
 * Burn Look Back video to a DVD as a special gift.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Easily Edit Facebook Look Back Video with Filmora
 
 #### 1. Download and import your Look Back video
@@ -62,13 +63,17 @@ thumbnail: https://thmb.techidaily.com/37c258031093435d71dd94d515145542657904928
 
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/video-editor-interface.jpg "edit look back video")
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 2. Add texts to the Look Back video
 
  To share the unforgettable moments in Look Back video, adding texts is a good idea. To do this, switch to Text tab and you'll see various texts templates on the left panel. Choose your favorite one and place it on the Timeline. Then the text thumbnail with a leading letter "T" will appear on the timeline. Double click it to type your texts in the box and select the font, color, animation, etc. Hit "Return" to confirm the settings and go back to the primary window.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ![edit look back video](https://images.wondershare.com/topic/video-editing/add-titles.jpg "edit look back video")
 
 #### 3. Edit the audio of Look Back video
@@ -77,9 +82,6 @@ thumbnail: https://thmb.techidaily.com/37c258031093435d71dd94d515145542657904928
 
  If you don't like the original background music of your Look Back video, just replace it and add a new one. To do this, right click the video and select the "Audio Detach" option. Then the background music will immediately be separated and appear on the music timeline. You can easily delete it and add a new one.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/audio-detach.jpg "edit look back video")
 
 #### 4. Add more effects to your Look Back video
@@ -88,10 +90,14 @@ thumbnail: https://thmb.techidaily.com/37c258031093435d71dd94d515145542657904928
 
 ![add ](https://images.wondershare.com/images/multimedia/video-editor/tilt-shift-1.jpg "add ")
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 5. Save or share the edited Look Back video
 
@@ -105,8 +111,12 @@ thumbnail: https://thmb.techidaily.com/37c258031093435d71dd94d515145542657904928
 ![edit facebook look back video](https://images.wondershare.com/filmora/article-images/export-output.jpg "edit facebook look back video")
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -115,11 +125,31 @@ Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-direct-video-delivery-facebook-to-whatsapp-connection/"><u>[New] 2024 Approved Direct Video Delivery Facebook to WhatsApp Connection</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-exclusive-list-best-fb-video-mp4-extractors/"><u>[New] 2024 Approved Exclusive List Best FB Video MP4 Extractors</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-average-time-to-watch-a-20-megabit-movie/"><u>[New] Average Time to Watch a 20 Megabit Movie</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-command-attention-elevating-your-page-to-the-social-summit/"><u>[New] Command Attention Elevating Your Page to the Social Summit</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-essential-guide-best-top-10-fb-videos-on-android-downloader/"><u>[New] Essential Guide Best Top 10 FB Videos on Android Downloader</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-from-followers-to-fans-a-guide-to-thriving-instagram-presence-for-2024/"><u>[New] From Followers to Fans A Guide to Thriving Instagram Presence for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-videography-on-fb-horizontal-or-vertical-placement/"><u>[New] In 2024, Videography on FB Horizontal or Vertical Placement?</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-inside-the-mindset-of-a-photographer-polarrs-editing-techniques/"><u>[New] Inside the Mindset of a Photographer Polarr’s Editing Techniques</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-kickstart-your-social-life-setting-up-a-facebook-account-for-2024/"><u>[New] Kickstart Your Social Life Setting up a Facebook Account for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-from-device-to-inshot-a-guide-to-audio-integration/"><u>[Updated] From Device to InShot A Guide to Audio Integration</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-key-to-youtube-success-25-effective-promotion-methods/"><u>[Updated] The Key to YouTube Success 25 Effective Promotion Methods</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-the-learners-guide-to-best-rated-history-yt-channels-1-10/"><u>2024 Approved The Learner's Guide to Best-Rated History YT Channels #1-10</u></a></li>
+<li><a href="https://win-deluxe.techidaily.com/daten-sichern-und-verschlusseln-eine-anleitung-zum-schutz-ihrer-bilder-mithilfe-von-aomei-backupper/"><u>Daten Sichern Und Verschlüsseln: Eine Anleitung Zum Schutz Ihrer Bilder Mithilfe Von AOMEI Backupper</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/direct-video-streaming-sending-fb-vids-straight-into-whatsapp/"><u>Direct Video Streaming Sending FB Vids Straight Into WhatsApp</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/elevate-your-brand-with-these-10-keywords-on-facebook-for-2024/"><u>Elevate Your Brand with These 10 Keywords on Facebook for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-realme-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Realme 12 Pro+ 5G? | Dr.fone</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/optimal-drone-choices-available-immediately-for-2024/"><u>Optimal Drone Choices Available Immediately for 2024</u></a></li>
+</ul></div>
+

@@ -1,7 +1,7 @@
 ---
 title: "[New] The Complete Breakdown of Facebook's Changes for 2024"
-date: 2024-08-17T08:32:13.823Z
-updated: 2024-08-18T08:32:13.823Z
+date: 2024-10-20T17:34:54.193Z
+updated: 2024-10-27T19:59:37.505Z
 tags:
   - ai video
   - ai facebook
@@ -37,6 +37,13 @@ thumbnail: https://thmb.techidaily.com/5b0ce9c020094ad31bdc87530c31e032109184ed9
 
 **Events:** These encourage boosting engagement, get people talking, and provide helpful information and links for an upcoming event and ultimately planning and tracking who plans to attend. 650+ million users make use of Facebook Events and 100 million on an average every day to publicize the event!
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Common Facebook Terms which you should know
 
  If you haven’t joined Facebook until now and feel left out in the group of your friends when they discuss about liking and reacting to a post, updating status, hashtags and tagging then don’t worry! There are lots of terms and phrases which can be termed as ‘Language of Facebook’. These words were in dictionary earlier also but Facebook reinvented their purpose! Warning: They might seem confusing at first but once you enter this world, then these will become your prime words!
@@ -53,9 +60,6 @@ thumbnail: https://thmb.techidaily.com/5b0ce9c020094ad31bdc87530c31e032109184ed9
 
 **Notification:** It is like an update from Facebook of the events and occasions where someone has interacted with you. It might be through reacting on what you shared or by posting something on your wall etc.
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ## Exploring Facebook
 
  Facebook is user friendly and once you create your account, you will feel like exploring all its options and becoming familiar with its adorable features. Here is a quick guide to Homepage and timeline:
@@ -73,8 +77,12 @@ thumbnail: https://thmb.techidaily.com/5b0ce9c020094ad31bdc87530c31e032109184ed9
 ![ facebook homepage ](https://images.wondershare.com/filmora/article-images/facebook-homepage.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 #### The Timeline
 
  The Timeline which represents your profile and is visible to your friends and public (subject to your privacy settings) contains inventory of everything which you have shared and which people has tagged you. You can set your profile picture by simply browsing through your picture library. Profile picture is the one which your friends will see when you will comment anything on Facebook. Coverphoto is a picture which can be seen by anybody when they visit your timeline. You can set your personal picture or wallpaper also to express your personality and interests. You can make your profile more informative by adding your school, college, workplace, relationship status and your location etc.
@@ -84,11 +92,12 @@ thumbnail: https://thmb.techidaily.com/5b0ce9c020094ad31bdc87530c31e032109184ed9
 ![ facebook timeline](https://images.wondershare.com/filmora/article-images/facebook-timeline.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
 ## How Facebook usage is diversified?
 
  There are ample of ways to communicate and staying in touch such as emails, instant messaging or SMS but Facebook has dominated all of them except for professional workspace! Let’s check out what makes Facebook so unique and lovable that you feel like sharing the occasion and celebration with your circle in that very moment!
@@ -103,9 +112,6 @@ thumbnail: https://thmb.techidaily.com/5b0ce9c020094ad31bdc87530c31e032109184ed9
 * Share your feelings for your friends and tag them to pictures which suit their personality
 * Play games and enhance your circle
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How Does Facebook Sharing Work?
 
  Facebook is unique and so are the sharing norms! While your conversations at email or IM’s are private, the content that you share on Facebook including photos and links are public. This is because Facebook has emerged as an open network for communication without any sort of limitations and is thus inclined towards being public although you can define privacy and sharing settings for some shared posts.
@@ -115,15 +121,17 @@ thumbnail: https://thmb.techidaily.com/5b0ce9c020094ad31bdc87530c31e032109184ed9
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2151872/7443" target="_top" id="2151872">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151872" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151872/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -131,3 +139,25 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-the-ultimate-checklist-to-add-audio-to-your-facebook-vids/"><u>[New] 2024 Approved The Ultimate Checklist to Add Audio to Your Facebook Vids</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-essential-steps-to-design-impressive-facebook-slideshows-for-2024/"><u>[New] Essential Steps to Design Impressive Facebook Slideshows for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-fix-facebook-videos-not-playing-on-androidiphonechrome/"><u>[New] Fix Facebook Videos Not Playing on Android/iPhone/Chrome</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-accessible-archives-downloading-everyday-facebook-feed/"><u>[New] In 2024, Accessible Archives Downloading Everyday Facebook Feed</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-blueprinting-a-dynamic-tiktok-end-credits-rollout/"><u>[New] In 2024, Blueprinting a Dynamic TikTok End-Credits Rollout</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-how-to-build-your-personal-brand-on-youtube/"><u>[New] In 2024, How to Build Your Personal Brand on YouTube</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-unlocking-facebooks-potential-with-top-video-strategies/"><u>[New] Unlocking Facebook's Potential with Top Video Strategies</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-visual-branding-mastery-implementing-watermarks-and-logos-into-video-content/"><u>[New] Visual Branding Mastery Implementing Watermarks & Logos Into Video Content</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-convenience-at-your-fingertips-enable-autoplay-of-youtube-videos-on-fb-for-2024/"><u>[Updated] Convenience at Your Fingertips Enable Autoplay of YouTube Videos on FB for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-essential-steps-to-producing-a-youtube-hit-music-reaction-video-guide/"><u>[Updated] In 2024, Essential Steps to Producing a YouTube Hit Music Reaction Video Guide</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-virtual-impression-sculpting-a-playful-digital-identity-for-2024/"><u>[Updated] Virtual Impression Sculpting a Playful Digital Identity for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/apples-latest-breakthrough-bringing-google-lens-powered-visual-intelligence-to-iphone-16-cameras-exclusive-coverage-on-zdnet/"><u>Apple's Latest Breakthrough: Bringing Google Lens-Powered Visual Intelligence to iPhone 16 Cameras | Exclusive Coverage on ZDNET</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-and-install-hp-printer-drivers-on-windows-11-the-ultimate-guide/"><u>Download & Install HP Printer Drivers on Windows 11: The Ultimate Guide</u></a></li>
+<li><a href="https://media-tips.techidaily.com/how-to-access-and-open-an-opus-file-a-comprehensive-guide/"><u>How to Access and Open an OPUS File: A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-tailoring-your-online-persona-with-a-new-background-photo/"><u>In 2024, Tailoring Your Online Persona with a New Background Photo</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-in-2024-preferred-playlists-and-music-packages-for-effortless-background-entertainment/"><u>New In 2024, Preferred Playlists and Music Packages for Effortless Background Entertainment</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/nhk-fmwindowsiphoneandroid/"><u>NHK FM放送の録音手順：Windows、iPhone、Androidで届けられるガイド</u></a></li>
+</ul></div>
+

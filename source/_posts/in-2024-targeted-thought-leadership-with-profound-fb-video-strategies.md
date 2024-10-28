@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Targeted Thought Leadership with Profound FB Video Strategies"
-date: 2024-10-15T00:21:25.290Z
-updated: 2024-10-21T22:40:01.159Z
+date: 2024-10-24T21:06:35.837Z
+updated: 2024-10-27T18:59:51.082Z
 tags:
   - ai video
   - ai facebook
@@ -44,10 +44,10 @@ thumbnail: https://thmb.techidaily.com/70eb207ffd605d91a6b2f543dd9aa1d6c7a04729a
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Before Making Facebook Video Ads
@@ -65,10 +65,10 @@ thumbnail: https://thmb.techidaily.com/70eb207ffd605d91a6b2f543dd9aa1d6c7a04729a
 [Learn more about How to Easily Create Captions and Subtitles for Facebook Videos](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Tips for Making Better Facebook Video Ads
@@ -76,13 +76,6 @@ thumbnail: https://thmb.techidaily.com/70eb207ffd605d91a6b2f543dd9aa1d6c7a04729a
 #### 1. Capture Attention in the First Few Seconds
 
 ![facebook video audience retention ]( https://images.wondershare.com/filmora/article-images/facebook-video-audience-retention.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Facebook platform stay loaded with numbers if videos so people cannot interact equally with all of them. Thus, it is important to create a video that can force viewers to make quick decision about whether this particular video must be watched or not. In order to leave the best impression on viewer’s mind, every video ad must have two major characteristics: It should not have length more than 20 seconds, content must be capable enough to catch attention within first 2, 3 seconds. Here are few common mistakes for low rating of certain videos ads:
 
@@ -95,13 +88,6 @@ thumbnail: https://thmb.techidaily.com/70eb207ffd605d91a6b2f543dd9aa1d6c7a04729a
 #### 2. Choose Attractive Video Thumbnail
 
 ![Facebook Video ads thumbnail](https://images.wondershare.com/filmora/article-images/facebook-video-custom-thumbnail.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
-  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Note that most of the facebook users prefer to deactivate video autoplay options on their profile so they must be encouraged to play your video. The best trigger can be added with an eye catching thumbnail. Facebook platform allow users to create eye catching thumbnail from wide selection of images captured from video frames itself. You can also pick your own image to be uploaded as a thumbnail and to do this you have to follow the custom thumbnail area button. In order to create best impact, it is good to select thumbnail image with aspect ratio same as that of the video.
 
@@ -119,6 +105,13 @@ thumbnail: https://thmb.techidaily.com/70eb207ffd605d91a6b2f543dd9aa1d6c7a04729a
 
 ![Facebook Video Third Lower Text](https://images.wondershare.com/filmora/article-images/facebook-video-third-lower-text.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Adding text on video ads is really a good idea because it helps to highlight the salient points with ease. When lower thirds are added to the videos then viewers can easily go ahead with your content and pick the major details. Although, this information is named as Lower Thirds but these messages can be placed at any portion of your video ad screen. The key is to work with your favourite video editing program that can add text impressively.
 
 #### 5. Include a Compelling Offer
@@ -126,6 +119,13 @@ thumbnail: https://thmb.techidaily.com/70eb207ffd605d91a6b2f543dd9aa1d6c7a04729a
  Your ads are of no use if they cannot create a compelling offer for viewers. It must include a call to action. The idea is to add a offer that viewers cannot resists and never forget to track links on your video ad using UTM codes as they can help you to know the rating and impact of your video. The best trick is to add an external link to video and somehow compel your audience to move to that external link. It will help your video ads to make unique impact then other competitors. It is good to add more information to your ad by using headlines for your video, by adding link descriptions and using specially designed call to action triggers. Also, marketers are advised to create a mixture of multiple videos in their ad but it must tell a unique and useful story as a whole. At the same time, you have to care about size of your video. The best trick is to work for a video that can seek more attention from viewers and can force them to stay connected to your content.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -142,18 +142,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-best-practices-for-youtube-to-igtv-transformation/"><u>[New] 2024 Approved Best Practices for YouTube to IGTV Transformation</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-ghostly-gag-gallery/"><u>[Updated] Ghostly Gag Gallery</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-next-level-game-monitoring-software-beyond-the-fbx-standard-for-2024/"><u>[Updated] Next Level Game Monitoring Software Beyond the FBX Standard for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-easy-guide-to-rectify-ios-and-android-videos-not-sent-by-messenger/"><u>2024 Approved Easy Guide to Rectify iOS and Android Videos Not Sent by Messenger</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-new-download-tool-facebook-videos-for-all-oses/"><u>2024 Approved New Download Tool Facebook Videos for All OSes</u></a></li>
-<li><a href="https://ai-voice.techidaily.com/best-10-free-and-best-text-to-speech-generators-for-2024/"><u>Best 10 Free and Best Text-to-Speech Generators for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/how-to-edit-videos-and-eliminate-markers-tips-for-smooth-cropping-on-android/"><u>How to Edit Videos and Eliminate Markers: Tips for Smooth Cropping on Android</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-nokia-c12-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on Nokia C12 | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/how-to-reset-a-nubia-red-magic-9-proplus-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a Nubia Red Magic 9 Pro+ Phone That Is Locked | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/igniting-online-trends-crafting-viral-facebook-posts-for-2024/"><u>Igniting Online Trends Crafting Viral Facebook Posts for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-motorola-moto-g23-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Motorola Moto G23 | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-mastering-your-fb-profile-top-tips-for-impressive-biographies/"><u>In 2024, Mastering Your FB Profile Top Tips for Impressive Biographies</u></a></li>
-<li><a href="https://techidaily.com/undelete-lost-messages-from-motorola-by-fonelab-android-recover-messages/"><u>Undelete lost messages from Motorola</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-optimize-iphoneandroid-video-quality-in-online-platforms/"><u>[New] 2024 Approved Optimize iPhone/Android Video Quality in Online Platforms</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-escaping-boredom-with-laughter-20-wit-infused-jailmates-tales-from-fb/"><u>[New] Escaping Boredom with Laughter 20 Wit-Infused Jailmates' Tales From Fb</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-tackle-chromes-inability-to-load-fb-videos/"><u>[New] In 2024, Tackle Chrome's Inability to Load FB Videos</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-decoding-the-average-earning-scale-for-podcasters/"><u>[Updated] 2024 Approved Decoding the Average Earning Scale for Podcasters</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-methods-to-autoplay-youtube-videos-on-facebook/"><u>[Updated] 2024 Approved Methods to Autoplay Youtube Videos on Facebook?</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-simple-windows-11-techniques-for-video-editing/"><u>[Updated] In 2024, Simple Windows 11 Techniques for Video Editing</u></a></li>
+<li><a href="https://program-issues.techidaily.com/addressing-compatibility-errors-with-rainbow-six-operation-guide-to-finding-the-right-drivers/"><u>Addressing Compatibility Errors with Rainbow Six Operation: Guide to Finding the Right Drivers</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-videos-from-galaxy-a15-4g-by-fonelab-android-recover-video/"><u>Easy steps to recover deleted videos from Galaxy A15 4G</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/experience-the-next-wave-watching-fb-live-on-roku-for-2024/"><u>Experience the Next Wave Watching FB Live on Roku for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/gold-class-8-unseen-media-extractors/"><u>Gold-Class 8 Unseen Media Extractors</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-xiaomi-redmi-note-13-proplus-5g-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on Xiaomi Redmi Note 13 Pro+ 5G online without jailbreak</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-ways-to-track-nokia-c300-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Track Nokia C300 without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/swiftly-overcome-blue-screen-in-win11-systems/"><u>Swiftly Overcome Blue Screen in Win11 Systems</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-oppo-a18-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Oppo A18 | Dr.fone</u></a></li>
 </ul></div>
 

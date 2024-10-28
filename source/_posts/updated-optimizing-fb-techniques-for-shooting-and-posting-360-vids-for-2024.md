@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Optimizing FB  Techniques for Shooting & Posting 360 Vids for 2024\""
-date: 2024-10-15T23:27:51.428Z
-updated: 2024-10-21T18:29:00.859Z
+date: 2024-10-21T21:39:32.105Z
+updated: 2024-10-27T18:58:11.879Z
 tags:
   - ai video
   - ai facebook
@@ -43,10 +43,10 @@ thumbnail: https://thmb.techidaily.com/67c52f8f8d1e1c526acfd18d30076a8ec8c694652
  So, now you may be thinking hard that how this feature is useful for Facebook users. Actually, Facebook has recently enabled its users to upload 360 videos directly to their pages, groups or profiles so that audience can stay engaged. This is really interesting.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to make a 360 Degree video on Facebook?
@@ -67,6 +67,13 @@ thumbnail: https://thmb.techidaily.com/67c52f8f8d1e1c526acfd18d30076a8ec8c694652
 
  In case if you are using any other device to capture your 360 degree videos then you may need to make manual adjustments for your 360 video formats.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
+  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to upload 360 degree videos on Facebook
 
  Uploading 360 video to Facebook is easy, just follow the steps below:
@@ -77,29 +84,22 @@ thumbnail: https://thmb.techidaily.com/67c52f8f8d1e1c526acfd18d30076a8ec8c694652
 
 ![Facebook 360 video upload](https://images.wondershare.com/filmora/article-images/facebook-360-video-upload.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Step 3: Now select the option “This video was recorded in 360° format”. It will help your app to generate automated control for 360 degree content.
 
 ![Facebook 360 Controls](https://images.wondershare.com/filmora/article-images/facebook-360-controls.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Step 4: Go to **360 Controls** tab and make settings for field or view as well as more initial camera orientations.
 
  Step 5: Finally click the **Publish** option.
 
  Note that Facebook 360 live platform allows maximum 30 minutes for a 360 degree video and the maxim supported file size goes up to 5GB only. So you can prepare your media file accordingly.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Facebook 360 Video & Gear VR
 
@@ -124,10 +124,16 @@ thumbnail: https://thmb.techidaily.com/67c52f8f8d1e1c526acfd18d30076a8ec8c694652
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -145,22 +151,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-androidiphone-instruction-adding-music-files-to-fb-profile/"><u>[New] 2024 Approved Android/iPhone Instruction Adding Music Files to FB Profile</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-boosting-traffic-elevating-your-pages-popularity-metric/"><u>[New] 2024 Approved Boosting Traffic Elevating Your Page's Popularity Metric</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-bandicam-or-camtasia-the-ultimate-showdown-for-2024/"><u>[New] Bandicam or Camtasia The Ultimate Showdown for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-navigating-the-art-of-360-live-on-facebook/"><u>[New] In 2024, Navigating the Art of 360 Live on Facebook</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-pioneering-platform-presence-innovative-square-video-methods-for-2024/"><u>[New] Pioneering Platform Presence Innovative Square Video Methods for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-professional-framing-methods-using-letterbox-and-black-bar-on-social-networks-for-2024/"><u>[New] Professional Framing Methods Using Letterbox & Black Bar on Social Networks for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-wechat-photo-frame-specifications-for-2024/"><u>[New] WeChat Photo Frame Specifications for 2024</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/updated-achieving-video-greatness-on-tiktok-with-smart-use-of-pre-made-templates/"><u>[Updated] Achieving Video Greatness on TikTok with Smart Use of Pre-Made Templates</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-enhancing-facebooks-reflective-feature-editing-techniques/"><u>[Updated] Enhancing Facebook's Reflective Feature Editing Techniques</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-amplify-views-effortlessly-discovering-the-best-20-youtube-techniques/"><u>[Updated] In 2024, Amplify Views Effortlessly Discovering the Best 20 YouTube Techniques</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-fast-paced-favorites-leading-background-music-in-yt-shorts/"><u>[Updated] In 2024, Fast-Paced Favorites Leading Background Music in YT Shorts</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-locate-and-watch-vintage-facebook-moments/"><u>[Updated] Locate and Watch Vintage Facebook Moments</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-jaunt-vr-uncovered-a-comprehensive-look/"><u>2024 Approved Jaunt VR Uncovered A Comprehensive Look</u></a></li>
-<li><a href="https://solve-help.techidaily.com/convert-your-dvd-collection-a-comprehensive-guide-on-downscaling-protected-dvds-into-compact-avi-divx-files/"><u>Convert Your DVD Collection: A Comprehensive Guide on Downscaling Protected DVDs Into Compact AVI DivX Files</u></a></li>
-<li><a href="https://discover-community.techidaily.com/guide-complet-pour-lactivation-de-nouveaux-materiels-strategies-avisees/"><u>Guide Complet Pour L'Activation De Nouveaux Matériels: Stratégies Avisées</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-pushing-boundaries-with-advanced-audacity-recording/"><u>In 2024, Pushing Boundaries with Advanced Audacity Recording</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/speedy-setup-obtain-your-hp-envy-5055-driver-software-now/"><u>Speedy Setup: Obtain Your HP Envy 5055 Driver Software Now</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-iphones-pano-tech-guide-to-360-degree-content/"><u>[New] 2024 Approved IPhone's Pano-Tech Guide to 360-Degree Content</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-basics-of-effective-fb-ad-cta-design/"><u>[New] Basics of Effective FB Ad CTA Design</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-exclusive-7-discreet-media-tools-for-2024/"><u>[New] Exclusive 7 Discreet Media Tools for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-highest-hits-facebooks-favorite-videos-for-2024/"><u>[New] Highest Hits Facebook's Favorite Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-navigating-fbs-automatic-video-sync-feature/"><u>[Updated] 2024 Approved Navigating FB's Automatic Video Sync Feature</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-the-leading-edge-in-online-advertising-fb-insights/"><u>[Updated] 2024 Approved The Leading Edge in Online Advertising FB Insights</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-pro-iphone-tips-for-capturing-the-perfect-landscape-moments/"><u>[Updated] Pro iPhone Tips for Capturing the Perfect Landscape Moments</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-adepts-handbook-to-fullscreen-features-in-premiere-pro/"><u>2024 Approved Adept's Handbook to Fullscreen Features in Premiere Pro</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-prime-mp4-fb-file-enhancer/"><u>2024 Approved Prime MP4-FB File Enhancer</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-the-fast-photo-journey-crafting-quick-dynamic-google-collages/"><u>2024 Approved The Fast Photo Journey Crafting Quick, Dynamic Google Collages</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-visual-voyage-your-guide-to-broadcasting-vids-with-confidence-on-facebook/"><u>2024 Approved Visual Voyage Your Guide to Broadcasting Vids with Confidence on Facebook</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/an-in-depth-review-how-the-outer-worlds-blends-fun-with-futuristic-fiction/"><u>An In-Depth Review: How 'The Outer Worlds' Blends Fun with Futuristic Fiction</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/1723036687205-critical-assessment-unveiling-the-strengths-and-weaknesses-of-pioneer-bdr-xd05b-blu-ray-burner-design/"><u>Critical Assessment: Unveiling the Strengths & Weaknesses of Pioneer BDR-XD05B Blu-Ray Burner Design.</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/1722960953881-improve-your-device-download-the-latest-surface-dock-driver-today/"><u>Improve Your Device: Download the Latest Surface Dock Driver Today!</u></a></li>
+<li><a href="https://win-dash.techidaily.com/install-kyocera-printer-software-on-your-pc-a-complete-tutorial-for-windows-operating-system/"><u>Install KYOCERA Printer Software on Your PC: A Complete Tutorial for Windows Operating System</u></a></li>
+<li><a href="https://techtrends.techidaily.com/master-the-art-of-ps4-controller-pairing-a-step-by-step-tutorial/"><u>Master the Art of PS4 Controller Pairing - A Step-by-Step Tutorial</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/the-craft-of-loom-seamless-screen-recording-guide-for-2024/"><u>The Craft of Loom Seamless Screen Recording Guide for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/top-10-fb-movies-in-one-place-for-2024/"><u>Top 10 Fb Movies in One Place for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/ultimate-handbook-insta-to-tik-tok-connectivity-for-2024/"><u>Ultimate Handbook Insta-to-Tik Tok Connectivity for 2024</u></a></li>
 </ul></div>
 

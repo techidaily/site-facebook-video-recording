@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Direct Engagement  Broadcasting From Your Xbox to FB\""
-date: 2024-10-18T04:14:02.662Z
-updated: 2024-10-21T20:35:06.328Z
+date: 2024-10-23T22:03:36.394Z
+updated: 2024-10-27T22:06:56.254Z
 tags:
   - ai video
   - ai facebook
@@ -46,16 +46,22 @@ a. For this you need to go to the settings of your Xbox and then choose Preferen
 
 ![game streaming ](https://images.wondershare.com/filmora/article-images/game-streaming.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1492813">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 b. Now you have to enable your smartglass connection. This can be done only from the profiles which are signed into your Xbox device or from a SmartGlass device.
 
 ![profiles signed ](https://images.wondershare.com/filmora/article-images/profiles-signed.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 2: Connect the Xbox one to the Windows 10 computer**
 
@@ -67,15 +73,22 @@ c. Your home network is going to be scanned by the Xbox software for any Xbox co
 
 ![Select the name ](https://images.wondershare.com/filmora/article-images/select-the-name.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 d. Once the connection is established the icons would indicate that and you will find new power, streaming and media remote options. You will also be able to remotely control your console. Now the controller and the Click Stream needs to be connected so as to play your Xbox games on your Windows computer.
 
 ![new options ](https://images.wondershare.com/filmora/article-images/new-options.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Method 2:Streaming Xbox to computer with a capture card
@@ -103,20 +116,13 @@ Once all is set up you can live stream you desktop screen to facebook, we are no
 ![ Wirecast](https://images.wondershare.com/filmora/article-images/wirecast.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -133,16 +139,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-creative-fusion-of-images-for-joyful-existence/"><u>[New] Creative Fusion of Images for Joyful Existence</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/tepwise-strategies-to-perfect-youtube-trailers-by-filmora-for-2024/"><u>[New] Stepwise Strategies to Perfect YouTube Trailers by Filmora for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-thriving-in-the-social-media-jungle-facebooks-essentials/"><u>[Updated] 2024 Approved Thriving in the Social Media Jungle Facebook's Essentials</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-unlocking-facebook-blue-verification-a-step-by-step-guide/"><u>[Updated] In 2024, Unlocking Facebook Blue Verification A Step-by-Step Guide</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-music-management-for-social-media-iphone-and-android-basics-for-2024/"><u>[Updated] Music Management for Social Media IPhone & Android Basics for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-navigating-the-process-youtube-clips-become-engaging-animation-gifs/"><u>2024 Approved Navigating the Process YouTube Clips Become Engaging Animation Gifs</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/employing-inbuilt-screen-recording-tools-on-mate-p-models-p20-p10/"><u>Employing Inbuilt Screen Recording Tools on Mate, P Models (P20, P10)</u></a></li>
-<li><a href="https://howto.techidaily.com/google-play-services-wont-update-12-fixes-are-here-on-samsung-galaxy-f34-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Google Play Services Wont Update? 12 Fixes are Here on Samsung Galaxy F34 5G | Dr.fone</u></a></li>
-<li><a href="https://techtrends.techidaily.com/official-website-winx-complimentary-downloads-for-dvd-ripping-and-high-definition-video-recoding-applications/"><u>Official Website: WinX - Complimentary Downloads for DVD Ripping and High Definition Video Recoding Applications</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/seamlessly-link-your-beats-wireless-earbuds-to-windows-11-comprehensive-troubleshooting-and-setup-guide/"><u>Seamlessly Link Your Beats Wireless Earbuds to Windows 11 – Comprehensive Troubleshooting and Setup Guide</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/the-ultimate-guide-to-creating-engaging-facebook-stories/"><u>The Ultimate Guide to Creating Engaging Facebook Stories</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-hasty-methods-for-mixed-up-youtube-playback-sequence/"><u>[New] 2024 Approved Hasty Methods for Mixed-Up YouTube Playback Sequence</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-increasing-likes-and-shares-facebooks-best-practices/"><u>[New] 2024 Approved Increasing Likes & Shares Facebook's Best Practices</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-secrets-of-snapsharing-creating-invisible-chronicles/"><u>[New] 2024 Approved Secrets of Snapsharing Creating Invisible Chronicles</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-6-effective-ways-to-add-live-facebook-content-online/"><u>[New] In 2024, 6 Effective Ways to Add Live Facebook Content Online</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-uncovering-old-facebook-stories-with-ease/"><u>[New] In 2024, Uncovering Old Facebook Stories with Ease</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-cross-platform-success-televisions-and-facebook-collaboration/"><u>[Updated] In 2024, Cross-Platform Success Televisions & Facebook Collaboration</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-mastering-windows-animation-the-best-9-software-for-high-quality-gif-capture/"><u>[Updated] In 2024, Mastering Windows Animation The Best 9 Software for High-Quality GIF Capture</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-navigate-with-ease-a-guide-to-effective-screen-casting-in-meet/"><u>[Updated] Navigate with Ease A Guide to Effective Screen Casting in Meet</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-unmarked-eyes-facebook-story-viewer/"><u>[Updated] Unmarked Eyes Facebook Story Viewer</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-altering-game-console-tones-ps5ps4-guide/"><u>2024 Approved Altering Game Console Tones PS5/PS4 Guide</u></a></li>
+<li><a href="https://location-social.techidaily.com/change-location-on-yik-yak-for-your-realme-narzo-60-5g-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>Change Location on Yik Yak For your Realme Narzo 60 5G to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://win-guides.techidaily.com/effortless-data-restoration-from-windows-devastation-a-guide-to-retrieving-deleted-files/"><u>Effortless Data Restoration From Windows Devastation: A Guide to Retrieving Deleted Files</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-becoming-a-zoom-pro-the-comprehensive-tutorial-for-professional-audio-recordings/"><u>In 2024, Becoming a Zoom Pro The Comprehensive Tutorial for Professional Audio Recordings</u></a></li>
+<li><a href="https://win-studio.techidaily.com/step-by-step-guide-securing-your-data-with-file-encryption-on-windows-server/"><u>Step-by-Step Guide: Securing Your Data with File Encryption on Windows Server</u></a></li>
 </ul></div>
 
