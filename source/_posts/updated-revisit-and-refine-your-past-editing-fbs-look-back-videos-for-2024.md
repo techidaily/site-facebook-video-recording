@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Revisit and Refine Your Past  Editing FB's Look Back Videos for 2024\""
-date: 2024-10-20T21:40:57.925Z
-updated: 2024-10-27T20:18:07.875Z
+date: 2024-11-01T18:46:12.214Z
+updated: 2024-11-02T19:03:58.387Z
 tags:
   - ai video
   - ai facebook
@@ -49,10 +49,10 @@ thumbnail: https://thmb.techidaily.com/3b4f38d4b261acb2c277f07ba409b2b6a3f82798b
 * Burn Look Back video to a DVD as a special gift.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Easily Edit Facebook Look Back Video with Filmora
@@ -63,18 +63,18 @@ thumbnail: https://thmb.techidaily.com/3b4f38d4b261acb2c277f07ba409b2b6a3f82798b
 
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/video-editor-interface.jpg "edit look back video")
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### 2. Add texts to the Look Back video
 
  To share the unforgettable moments in Look Back video, adding texts is a good idea. To do this, switch to Text tab and you'll see various texts templates on the left panel. Choose your favorite one and place it on the Timeline. Then the text thumbnail with a leading letter "T" will appear on the timeline. Double click it to type your texts in the box and select the font, color, animation, etc. Hit "Return" to confirm the settings and go back to the primary window.
 
 ![edit look back video](https://images.wondershare.com/topic/video-editing/add-titles.jpg "edit look back video")
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 3. Edit the audio of Look Back video
 
@@ -90,14 +90,14 @@ thumbnail: https://thmb.techidaily.com/3b4f38d4b261acb2c277f07ba409b2b6a3f82798b
 
 ![add ](https://images.wondershare.com/images/multimedia/video-editor/tilt-shift-1.jpg "add ")
 
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 #### 5. Save or share the edited Look Back video
 
@@ -110,14 +110,14 @@ thumbnail: https://thmb.techidaily.com/3b4f38d4b261acb2c277f07ba409b2b6a3f82798b
 
 ![edit facebook look back video](https://images.wondershare.com/filmora/article-images/export-output.jpg "edit facebook look back video")
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -134,21 +134,22 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-eliminate-fuzziness-clearer-facebook-video-tips-for-2024/"><u>[New] Eliminate Fuzziness Clearer Facebook Video Tips for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-the-full-spectrum-alliance-an-mcn-decision-blueprint/"><u>[Updated] 2024 Approved The Full Spectrum Alliance An MCN Decision Blueprint</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-best-watched-youtube-film-channels-ranked-for-2024/"><u>[Updated] Best-Watched YouTube Film Channels Ranked for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-collecting-conquerors-8-tools-every-business-leader-cant-overlook-for-2024/"><u>[Updated] Collecting Conquerors 8 Tools Every Business Leader Can’t Overlook for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-facebook-cover-video-key-strategies-and-tactics-explained/"><u>[Updated] Facebook Cover Video Key Strategies and Tactics Explained</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-the-ultimate-guide-to-rapidly-discover-friends/"><u>[Updated] In 2024, The Ultimate Guide to Rapidly Discover Friends</u></a></li>
-<li><a href="https://win-info.techidaily.com/acasis-nvme-ssd/"><u>Acasis NVMe SSD クローニング手順: 最も効率的な安全なコピー方法</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/complete-audio-solution-for-incomplete-youtube-and-fb-sounds-for-2024/"><u>Complete Audio Solution for Incomplete YouTube and FB Sounds for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/convertir-mp2-a-ogg-sin-costo-alguno-en-linea-facilmente-utilizando-la-herramienta-de-movavi/"><u>Convertir MP2 a OGG Sin Costo Alguno en Línea Fácilmente Utilizando La Herramienta De Movavi</u></a></li>
-<li><a href="https://techtrends.techidaily.com/easy-password-modification-tips-for-users-of-the-newx-platform/"><u>Easy Password Modification Tips for Users of the NewX Platform</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-reset-your-honor-100-lock-screen-password-by-drfone-android/"><u>How to Reset your Honor 100 Lock Screen Password</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-understanding-sudden-account-lockdowns-on-copyright-violations/"><u>In 2024, Understanding Sudden Account Lockdowns on Copyright Violations</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/recommended-best-applications-for-mirroring-your-oppo-reno-9a-screen-drfone-by-drfone-android/"><u>Recommended Best Applications for Mirroring Your Oppo Reno 9A Screen | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/rise-to-success-with-these-essential-15-fb-sales-insights-for-2024/"><u>Rise to Success with These Essential 15 FB Sales Insights for 2024</u></a></li>
-<li><a href="https://fox-triigers.techidaily.com/software-download-nutzen-sie-die-windows-11-installations-toolkit-laden-und-installieren/"><u>Software-Download: Nutzen Sie Die Windows 11 Installations-Toolkit - Laden Und Installieren</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/1722890477516-the-ultimate-transformers-movie-marathon-plan-watch-them-all-without-missing-a-beat/"><u>The Ultimate Transformers Movie Marathon Plan – Watch Them All Without Missing a Beat!</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-elevating-video-quality-incorporating-bb-and-lc-elements-in-fb/"><u>[New] 2024 Approved Elevating Video Quality Incorporating BB and LC Elements in FB</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-navigating-social-networking-videos-your-ultimate-guide-for-appletv-users/"><u>[New] 2024 Approved Navigating Social Networking Videos Your Ultimate Guide for AppleTV Users</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-amplify-engagement-broadcasting-from-twitch-to-facebook-for-2024/"><u>[New] Amplify Engagement Broadcasting From Twitch to Facebook for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-from-periscope-to-pro-livestreaming-basics-for-ios-and-android-for-2024/"><u>[New] From Periscope to Pro Livestreaming Basics for iOS and Android for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-facebooks-360-livestream-a-complete-comprehensive-guide/"><u>[New] In 2024, Facebook's 360 Livestream A Complete Comprehensive Guide</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-the-perfect-blend-of-sound-and-video-tips-to-capture-high-quality-zoom-recordings/"><u>[New] In 2024, The Perfect Blend of Sound and Video Tips to Capture High-Quality Zoom Recordings</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-premier-mp4-broadcast-converter/"><u>[New] Premier MP4 Broadcast Converter</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-accessible-archives-downloading-everyday-facebook-feed/"><u>[Updated] In 2024, Accessible Archives Downloading Everyday Facebook Feed</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-revamping-memories-editing-in-look-back-videos-for-2024/"><u>[Updated] Revamping Memories Editing in Look Back Videos for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/essential-leisure-ideal-screen-time-solutions-for-2024/"><u>Essential Leisure Ideal Screen-Time Solutions for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/fixed-it-r-type-final-2-no-longer-crashes-on-desktop-systems/"><u>Fixed It! R-Type Final 2 No Longer Crashes on Desktop Systems</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-a-damaged-video-file-of-realme-gt-5-using-video-repair-utility-on-mac-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair a Damaged video file of Realme GT 5 using Video Repair Utility on Mac?</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-oppo-reno-8t-by-phone-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Oppo Reno 8T by Phone Number | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-social-savvy-strategies-for-maxed-out-page-popularity/"><u>In 2024, Social Savvy Strategies for Maxed-Out Page Popularity</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-unlock-iphone-8-with-forgotten-passcode-different-methods-you-can-try-by-drfone-ios/"><u>In 2024, Unlock iPhone 8 With Forgotten Passcode Different Methods You Can Try</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/the-route-to-a-great-twitch-recording-journey/"><u>The Route to a Great Twitch Recording Journey</u></a></li>
+<li><a href="https://howto.techidaily.com/vivo-x-fold-2-camera-not-working-unexpected-error-fix-it-now-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Vivo X Fold 2 Camera Not Working Unexpected Error? Fix It Now | Dr.fone</u></a></li>
 </ul></div>
 

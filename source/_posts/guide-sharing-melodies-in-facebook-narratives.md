@@ -1,7 +1,7 @@
 ---
 title: "\"Guide  Sharing Melodies in Facebook Narratives\""
-date: 2024-08-10T14:14:24.473Z
-updated: 2024-08-11T14:14:24.473Z
+date: 2024-11-01T16:20:47.235Z
+updated: 2024-11-02T18:38:42.401Z
 tags:
   - ai video
   - ai facebook
@@ -58,9 +58,6 @@ Click done on the right corner to post the music story. Your story will be avail
 
 Note: Currently, you can add music stories on Facebook mobile app only. On a desktop, you can only create a photo story or text story.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 2: How to Add Music to Facebook Photo/Video Story?
 
 Serene music on a video background adds feeling to the story and makes it more attractive. Music adds life to a boring video and keeps the viewer's attention on it for longer. It is easy to add music to your video or photo story directly in a few simple steps. Here is how to do it:
@@ -73,18 +70,12 @@ Tap on create a story option and click on the camera icon given below, through w
 
 After clicking a picture or making a video, tap on the sticker icon. Select the music sticker to pick a song of your choice.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![add music sticker on FB](https://images.wondershare.com/filmora/article-images/add-music-sticker-facebook.jpg)
 
  **Step 3: Add music**   **and**   **post**
 
 After tapping on the music sticker, click on the song you want to play with your story. When you are done editing the sticker and your story, click   **Done** on the top right corner to post it.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
-<!-- affiliate ads end -->
 ![add music sticker](https://images.wondershare.com/filmora/article-images/add-music-with-facebook-music-sticker.jpg)
 
 ## Part 3: How to Add My Own Music to Facebook Story?
@@ -122,8 +113,19 @@ _For more details about editing videos on Filmora, you can check [How to Edit Vi
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4: How to Customize the Appearance of Your Facebook Story Song?
 
 If you don't know already, you can also edit the music sticker on your story to make it look more attractive. There are various features such as editing the music sticker image, changing color, selecting the 30-second part of the song, and enabling lyrics.
@@ -132,10 +134,14 @@ If you don't know already, you can also edit the music sticker on your story to 
 
 You can click on the play button after selecting the song, and it will appear in your stories. You will see a few options above the music sticker, which you can use to edit the music story. Click on the Aa option to enable the lyrics, and they will appear when a viewer views your story. You can enable lyrics only if they are available with the songs.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
-<!-- affiliate ads end -->
 ![enable FB music story lyric](https://images.wondershare.com/filmora/article-images/enable-facebook-music-sticker-lyric-mode.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  **Step**  2: Change the color **and**   **add elements**
 
@@ -143,19 +149,8 @@ Tap and hold the sticker; move your finger on the screen to place the sticker an
 
 A user can also select elements from the given options. You can add a poll, emojis, and GIFs to interact with viewers. Click on done on the top right corner to post.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![edit FB music story lyric](https://images.wondershare.com/filmora/article-images/edit-facebook-music-sticker-color-elements.jpg)
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## FAQs About Adding Music to Facebook Story
 
 1. **Can you add music to Facebook Story from a computer?**
@@ -166,19 +161,31 @@ Yes, you can add a story on Facebook from your computer. Click on create a story
 
 There are a few ways to fix the music sticker issue if it is not popping up in your stories. One of the easiest ways to do it is to go to the Apple Store or Play Store and search for Facebook. If you see an update sign, click on it; updating the app might solve the issue. You can also delete and reinstall the app to tackle the problem.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Conclusion**
 
 Facebook story feature is one of the best options that one can use to gain visibility and increase interaction. Everyone should know how to add music to Facebook story as it makes the viewer focus more on your story content. We are sure you must have learned how to add music to enhance your stories.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -187,5 +194,24 @@ Follow @Shanoon Cox
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-enhance-video-transmission-success-in-messenger-apps-for-iphone-android/"><u>[New] 2024 Approved Enhance Video Transmission Success in Messenger Apps for iPhone, Android</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-amazing-way-to-unlock-your-mac-with-apple-watch/"><u>[New] Amazing Way to Unlock Your Mac with Apple Watch</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-integrate-harmony-in-media-posts-facebooks-sound-guide/"><u>[New] In 2024, Integrate Harmony in Media Posts Facebook's Sound Guide</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-uncovering-the-secrets-of-effortless-iphone-podcast-downloads/"><u>[New] In 2024, Uncovering the Secrets of Effortless iPhone Podcast Downloads</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-online-add-on-social-media-story-vault-for-2024/"><u>[New] Online Add-On Social Media Story Vault for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-strategies-for-improving-youtubefacebook-video-quality/"><u>[New] Strategies for Improving YouTube/Facebook Video Quality</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-meetup-event-visual-format/"><u>[Updated] 2024 Approved Meetup Event Visual Format</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-outsmarting-online-advertising-on-social-network-sites/"><u>[Updated] 2024 Approved Outsmarting Online Advertising on Social Network Sites</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-online-event-replay-collectors-for-2024/"><u>[Updated] Online Event Replay Collectors for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-hacking-halted-swift-steps-to-recover-your-fb-account/"><u>2024 Approved Hacking Halted Swift Steps to Recover Your FB Account</u></a></li>
+<li><a href="https://program-issues.techidaily.com/cutting-edge-techniques-for-a-seamless-gaming-adventure-on-your-pc-banish-lag-in-202/"><u>Cutting-Edge Techniques for a Seamless Gaming Adventure on Your PC - Banish Lag in 202</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/effortless-zoom-edge-management-your-visual-companion/"><u>Effortless Zoom Edge Management Your Visual Companion</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/explore-eco-films-learn-and-innovate-with-yts-green-screens/"><u>Explore Eco-Films Learn & Innovate with YT's Green Screens</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/in-2024-discovering-the-charm-7-most-popular-tiktok-emojis-and-secret-symbols/"><u>In 2024, Discovering the Charm #7 Most Popular TikTok Emojis & Secret Symbols</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-the-essentials-of-making-professional-level-facebook-reels/"><u>In 2024, The Essentials of Making Professional-Level Facebook Reels</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/innovate-or-stagnate-the-must-know-fb-ad-trends-for-24/"><u>Innovate or Stagnate – The Must-Know FB Ad Trends for '24</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-unleashing-the-magic-top-lego-stop-motion-artists-for-2024/"><u>New Unleashing the Magic Top Lego Stop Motion Artists for 2024</u></a></li>
+</ul></div>
 

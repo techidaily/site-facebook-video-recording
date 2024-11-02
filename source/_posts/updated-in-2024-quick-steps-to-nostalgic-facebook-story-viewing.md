@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Quick Steps to Nostalgic Facebook Story Viewing"
-date: 2024-10-26T22:08:21.479Z
-updated: 2024-10-27T20:03:37.950Z
+date: 2024-10-31T18:41:46.567Z
+updated: 2024-11-02T16:23:07.190Z
 tags:
   - ai video
   - ai facebook
@@ -53,20 +53,27 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 
 ![facebook old stories more](https://images.wondershare.com/filmora/article-images/2021/facebook-old-stories-more.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 3:** Now just tap on the “Story Archive” option from the list.
 
 ![facebook story archive](https://images.wondershare.com/filmora/article-images/2021/facebook-story-archive.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 4:** After this, you would be shown all the stories sequentially in the Story Archives section.
 
 Thus how to view old stories on Facebook desktop is very easy with above above-mentioned easy steps.
+
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: How to Watch Old Stories on Facebook on your Mobile?
 
@@ -80,28 +87,15 @@ You can find and see the old stories on Facebook with the help of the archived s
 
 ![watch old stories facebook](https://images.wondershare.com/filmora/article-images/2021/watch-old-stories-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983551">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 4:** Scroll towards the right and select on Story Archives tab.
 
 ![story archive facebook mobile](https://images.wondershare.com/filmora/article-images/2021/story-archive-facebook-mobile.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 5:** Now you would get to see all the old stories you have created sequentially from newest to oldest order.
@@ -115,6 +109,13 @@ If you are looking to see old Facebook stories shared by your friend then let me
 The only chance is that if your friend has uploaded those stories on highlights then yes, you can see old stories of them. Whenever your friend uploads a story he/she might get a star option in the lower corner where clicking only they can create a story and highlight on their feed.
 
 ![see friends old fb story](https://images.wondershare.com/filmora/article-images/2021/see-friends-old-fb-story.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 An old highlighted story shared by your friend would appear on your friend’s profile below the Friends section and above create post option as Story Highlights.
 
@@ -154,13 +155,6 @@ You can crop, trim, cut, split, and merge your video in a few clicks in Wondersh
 
 Also, you can add various text effects and add Lower 3rds and subtitles. It has nearly 300 filters, overlays, and elements embedded in Filmora that you can use for your Facebook video and make it look amazing.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
-  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Export and Share
 
 Once you are done with the video editing you need to do is to export and publish it on Facebook. You need to click on Export and you would get few saving options. You can save it to your smartphone or in .mp4 format and upload it to Facebook later. Wondershare Filmora let you share your video to platforms such YouTube, Vimeo, or burn it to the DVD collection.
@@ -192,18 +186,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-nativescreenvid-chrome-os-recording-tool-for-2024/"><u>[New] NativeScreenVid Chrome OS Recording Tool for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-fb-song-savers-entry-level-access-for-2024/"><u>[Updated] FB Song Savers Entry Level Access for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-essential-tips-for-monitoring-facebook-live-streams/"><u>[Updated] In 2024, Essential Tips for Monitoring Facebook Live Streams</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-essentials-checklist-for-evaluating-vidma-recorder/"><u>[Updated] In 2024, Essentials Checklist for Evaluating Vidma Recorder</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-top-30-innovative-anime-concepts-for-viral-video-creators-for-2024/"><u>[Updated] Top 30 Innovative Anime Concepts for Viral Video Creators for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-facebook-mastery-pioneering-techniques-for-any-marketing-stage/"><u>2024 Approved Facebook Mastery Pioneering Techniques for Any Marketing Stage</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-infusing-memes-with-virality-factor/"><u>2024 Approved Infusing Memes with Virality Factor</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-prepare-for-success-essential-trends-in-facebook-ads-24/"><u>2024 Approved Prepare for Success Essential Trends in Facebook Ads '24</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-9-best-phone-monitoring-apps-for-xiaomi-14-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Best Phone Monitoring Apps for Xiaomi 14 | Dr.fone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-in-search-of-greatness-top-15-timeless-stop-motion-films/"><u>In 2024, In Search of Greatness Top 15 Timeless Stop Motion Films</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-quick-guide-iphones-easiest-screen-recording-method/"><u>In 2024, Quick Guide IPhone's Easiest Screen Recording Method</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581304136-mondly-unveils-revolutionary-vr-language-learning-experience/"><u>Mondly Unveils: Revolutionary VR Language Learning Experience</u></a></li>
-<li><a href="https://driver-error.techidaily.com/the-ultimate-fix-for-a-missing-intel-xeon-coprocessor-driver-on-windows-10-tutorial/"><u>The Ultimate Fix for a Missing Intel Xeon Coprocessor Driver on Windows 10: Tutorial</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-funnyframefinder-your-source-for-meme-creation-online-for-2024/"><u>[New] FunnyFrameFinder Your Source for Meme Creation Online for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-easy-steps-for-stellar-youtube-thumbnails/"><u>[New] In 2024, Easy Steps for Stellar YouTube Thumbnails</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-yuneec-breeze-4k-drone-review/"><u>[New] In 2024, Yuneec Breeze 4K Drone Review</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-peak-activity-on-instagram-finding-the-perfect-moment/"><u>[New] Peak Activity on Instagram Finding the Perfect Moment</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-master-screen-integration-into-real-time-streaming/"><u>[Updated] Master Screen Integration Into Real-Time Streaming</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-perfecting-your-srt-craft-a-compreran-guide-to-tips-and-tricks/"><u>[Updated] Perfecting Your SRT Craft A Compreran Guide to Tips & Tricks</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-seamless-sharing-twitch-links-on-your-fb-page-for-2024/"><u>[Updated] Seamless Sharing Twitch Links on Your FB Page for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-timeless-treasures-accessing-fbs-historic-stories-for-2024/"><u>[Updated] Timeless Treasures Accessing FB's Historic Stories for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-unlock-creative-communication-get-free-voice-effects-today/"><u>2024 Approved Unlock Creative Communication - Get FREE Voice Effects Today</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/expert-tips-for-resolving-fortnite-voice-chat-problems-instantly/"><u>Expert Tips for Resolving Fortnite Voice Chat Problems Instantly</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-demystifying-data-a-beginners-guide-to-facebook-insights/"><u>In 2024, Demystifying Data A Beginner's Guide to Facebook Insights</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/mastering-wirecast-for-facebook-live-broadcasts/"><u>Mastering Wirecast for Facebook Live Broadcasts</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/navigating-through-glitches-in-facebook-live-video-uploads/"><u>Navigating Through Glitches in Facebook Live Video Uploads</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-pixel-watch-3-upgrade-addressing-key-concerns-in-googles-smartwatch-lineup-analysis-by-zdnet/"><u>The Pixel Watch 3 Upgrade: Addressing Key Concerns in Google's Smartwatch Lineup | Analysis by ZDNET</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/twitch-and-friendly-networks-efficient-crossposting-for-2024/"><u>Twitch and Friendly Networks Efficient Crossposting for 2024</u></a></li>
 </ul></div>
 

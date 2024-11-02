@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Navigating to Group's Shared Content in Messenger"
-date: 2024-10-23T23:57:51.821Z
-updated: 2024-10-28T00:11:46.067Z
+date: 2024-10-28T17:21:56.632Z
+updated: 2024-11-02T19:03:05.729Z
 tags:
   - ai video
   - ai facebook
@@ -55,6 +55,19 @@ Amongst all the fantastic features of Facebook Messenger, it collects all the me
 
 For all those unfamiliar with the last feature, we will guide you in detail on how you can access photos and videos in your messenger chat.
 
+<!-- affiliate ads begin -->
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How Can You View All Photos And Videos on Desktop App
 
 One always faces some kind of trouble when we are navigating another version of the same app. The case gets particularly sensitive when some essential or memorable pictures and videos are involved.
@@ -104,13 +117,6 @@ Messenger allows you to access that within seconds. All you need to do is follow
 ![click on View Photos and Videos](https://images.wondershare.com/filmora/article-images/2021/view-all-shared-videos-and-photos-on-messenger-3.png)
 
 If you are an iPhone or iPad user, then you can follow the same method given above to see the multimedia shared with a contact.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 4: Create Your Own Videos and Share to Your Friends on Facebook Messenger App
 
@@ -190,7 +196,21 @@ But, do not worry if you find it challenging to navigate the messenger website j
 
 ![click on Shared Media](https://images.wondershare.com/filmora/article-images/2021/view-all-shared-videos-and-photos-on-messenger-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 You can do that with any contact. This way, you will be able to see videos and photos even when you have misplaced them on the phone. You can forward them to other contacts from there as well.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: Get All Shared Photos And Videos on Messenger Mobile App
 
@@ -297,13 +317,6 @@ But, do not worry if you find it challenging to navigate the messenger website j
 
 You can do that with any contact. This way, you will be able to see videos and photos even when you have misplaced them on the phone. You can forward them to other contacts from there as well.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3: Get All Shared Photos And Videos on Messenger Mobile App
 
 No worries if you are an android user and can not find how to view your shares videos and photos with a particular contact. Often we share a video or a picture with someone but find it tedious to look through the whole chat to locate that video.
@@ -320,13 +333,6 @@ Messenger allows you to access that within seconds. All you need to do is follow
 
 ![click on View Photos and Videos](https://images.wondershare.com/filmora/article-images/2021/view-all-shared-videos-and-photos-on-messenger-3.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 If you are an iPhone or iPad user, then you can follow the same method given above to see the multimedia shared with a contact.
 
 ## Part 4: Create Your Own Videos and Share to Your Friends on Facebook Messenger App
@@ -340,16 +346,10 @@ Once you have created your videos, then you can share the video on the Messenger
 For content creators and those interested in video editing, Filmora can be the perfect tool to start. You can combine clips together seamlessly and share them with your followers.
 
 <!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -379,10 +379,10 @@ Part 3: [Get All Shared Photos And Videos on Messenger Mobile App](#step3)
 Part 4: [Create Your Own Videos and Share to Your Friends on Facebook Messenger](#step4)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 1: All You Need to Know About Facebook Messenger
@@ -427,6 +427,13 @@ But, do not worry if you find it challenging to navigate the messenger website j
 
 ![click on Shared Media](https://images.wondershare.com/filmora/article-images/2021/view-all-shared-videos-and-photos-on-messenger-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 You can do that with any contact. This way, you will be able to see videos and photos even when you have misplaced them on the phone. You can forward them to other contacts from there as well.
 
 ## Part 3: Get All Shared Photos And Videos on Messenger Mobile App
@@ -441,16 +448,16 @@ Messenger allows you to access that within seconds. All you need to do is follow
 
 ![tap on the information icon](https://images.wondershare.com/filmora/article-images/2021/view-all-shared-videos-and-photos-on-messenger-2.png)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 1. Now, click on **View Photos and Videos** to view all the photos and videos shared with the contact.
 
 ![click on View Photos and Videos](https://images.wondershare.com/filmora/article-images/2021/view-all-shared-videos-and-photos-on-messenger-3.png)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 If you are an iPhone or iPad user, then you can follow the same method given above to see the multimedia shared with a contact.
 
@@ -463,13 +470,6 @@ With a wide variety of editing styles and numerous filters, Wondershare Filmora 
 Once you have created your videos, then you can share the video on the Messenger app. You can improve your videos or make some fun and goofy new ones by getting their app. And if you ever feel like rewatching those videos again, then you can look into the View Photos and Videos in the Messenger app.
 
 For content creators and those interested in video editing, Filmora can be the perfect tool to start. You can combine clips together seamlessly and share them with your followers.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -500,19 +500,24 @@ Especially with the Wondershare Filmora app, you can create numerous new videos 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-ensuring-smooth-streaming-solutions-for-fb-livestream-problems/"><u>[New] 2024 Approved Ensuring Smooth Streaming Solutions for FB Livestream Problems</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-enhance-your-profile-best-tools-to-create-professional-facebook-cover-photos/"><u>[Updated] 2024 Approved Enhance Your Profile Best Tools to Create Professional Facebook Cover Photos</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-expert-advice-for-efficiently-creating-srt-files/"><u>[Updated] 2024 Approved Expert Advice for Efficiently Creating SRT Files</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-navigating-free-art-online-a-guide-and-top-sites-for-2024/"><u>[Updated] Navigating Free Art Online A Guide & Top Sites for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-broadcasting-best-practices-twitch-facebook-integration/"><u>2024 Approved Broadcasting Best Practices Twitch-Facebook Integration</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-top-picks-free-fb-to-mp4-file-transformers/"><u>2024 Approved Top Picks Free FB to MP4 File Transformers</u></a></li>
-<li><a href="https://windows11.techidaily.com/erase-system-misses-message-on-windows-os/"><u>Erase System Misses Message on Windows OS</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/from-chats-to-files-the-methodical-approach-to-downloading-fb-video/"><u>From Chats to Files The Methodical Approach to Downloading FB Video</u></a></li>
-<li><a href="https://review-topics.techidaily.com/recover-your-pictures-after-realme-11-5g-has-been-deleted-by-fonelab-android-recover-pictures/"><u>Recover your pictures after Realme 11 5G has been deleted.</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/step-by-step-guide-activating-microsoft-copilot-on-your-apple-device/"><u>Step-by-Step Guide: Activating Microsoft Copilot on Your Apple Device</u></a></li>
-<li><a href="https://discover-bits.techidaily.com/step-by-step-guide-restoring-your-revoked-or-expired-professional-license/"><u>Step-by-Step Guide: Restoring Your Revoked or Expired Professional License</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/the-entrepreneurs-lifeline-critical-items-every-startup-needs-right-now-for-2024/"><u>The Entrepreneur's Lifeline Critical Items Every Startup Needs Right Now for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/the-ultimate-guide-overlaying-photos-digitally-for-2024/"><u>The Ultimate Guide Overlaying Photos Digitally for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/toms-computer-guide-in-depth-insights-and-expert-reviews/"><u>Tom's Computer Guide: In-Depth Insights and Expert Reviews</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-effortless-mp4-creation-from-facebook-feed/"><u>[New] Effortless MP4 Creation From Facebook Feed</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-elite-selection-10-affordable-sites-never-lost-your-shots/"><u>[New] Elite Selection 10 Affordable Sites, Never Lost Your Shots</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-tactical-techniques-for-stunning-instagram-puzzle-displays/"><u>[New] In 2024, Tactical Techniques for Stunning Instagram Puzzle Displays</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-unveiling-the-best-tools-to-download-your-favorite-fb-videos-on-firefox-updated/"><u>[New] In 2024, Unveiling the Best Tools to Download Your Favorite FB Videos on FireFox, Updated</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-iphone-lens-mastery-essential-photography-hacks-for-2024/"><u>[New] IPhone Lens Mastery Essential Photography Hacks for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-the-new-era-facebook-video-autoplay-explained-for-2024/"><u>[New] The New Era Facebook Video Autoplay Explained for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-the-updated-user-manual-for-navigating-facebook-for-2024/"><u>[New] The Updated User Manual for Navigating Facebook for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-expert-selection-of-best-cams-for-snowsports-capture/"><u>[Updated] 2024 Approved Expert Selection of Best Cams for Snowsports Capture</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-unveiling-figmas-bg-elimination-mastery/"><u>[Updated] 2024 Approved Unveiling Figma's BG Elimination Mastery</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-will-facebook-vids-air-on-tv-this-year-or-later-in-2024/"><u>[Updated] Will Facebook Vids Air On TV This Year or Later, In 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-permanent-record-keeper-facebook-live-extraction-techniques/"><u>2024 Approved Permanent Record Keeper Facebook Live Extraction Techniques</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-reveal-hidden-gems-top-12-steps-to-make-your-fb-videos-show-up/"><u>2024 Approved Reveal Hidden Gems Top 12 Steps to Make Your FB Videos Show Up</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-watching-social-network-vids-through-the-television-glass/"><u>2024 Approved Watching Social Network Vids Through the Television Glass?</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/discover-the-secret-behind-cookiebot-powered-site-success-track-analyze-grow/"><u>Discover the Secret Behind Cookiebot-Powered Site Success - Track, Analyze, Grow!</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-turn-off-google-location-to-stop-tracking-you-on-lava-yuva-3-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Turn Off Google Location to Stop Tracking You on Lava Yuva 3 Pro | Dr.fone</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/iphone-stuck-in-attempting-to-recover-data-loop-heres-how-to-break-free/"><u>IPhone Stuck in ‘Attempting to Recover Data’ Loop? Here’s How to Break Free!</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/is-there-a-global-outage-on-microsoft-teams-heres-how-to-check/"><u>Is There a Global Outage on Microsoft Teams? Here's How to Check</u></a></li>
+<li><a href="https://win-able.techidaily.com/quick-and-simple-guide-adding-captions-to-videos-fast/"><u>Quick & Simple Guide: Adding Captions To Videos Fast</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/the-3-elemental-strategies-for-writing-effective-social-media-promotions-for-2024/"><u>The 3 Elemental Strategies for Writing Effective Social Media Promotions for 2024</u></a></li>
 </ul></div>
 

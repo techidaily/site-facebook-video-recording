@@ -1,7 +1,7 @@
 ---
 title: "\"Bridging Games and Friends  Xbox Live to Facebook Broadcasting for 2024\""
-date: 2024-08-10T14:15:58.663Z
-updated: 2024-08-11T14:15:58.663Z
+date: 2024-10-30T16:28:53.648Z
+updated: 2024-11-02T16:29:17.229Z
 tags:
   - ai video
   - ai facebook
@@ -46,11 +46,15 @@ a. For this you need to go to the settings of your Xbox and then choose Preferen
 
 ![game streaming ](https://images.wondershare.com/filmora/article-images/game-streaming.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 b. Now you have to enable your smartglass connection. This can be done only from the profiles which are signed into your Xbox device or from a SmartGlass device.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![profiles signed ](https://images.wondershare.com/filmora/article-images/profiles-signed.jpg)
 
 **Step 2: Connect the Xbox one to the Windows 10 computer**
@@ -61,25 +65,30 @@ b. Now go to the panel on the left hand side and click on **‘connect’**.
 
 c. Your home network is going to be scanned by the Xbox software for any Xbox console present. Select the name of the console with which you would like to connect. Ensure that the console and the Windows pc are on one network.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ![Select the name ](https://images.wondershare.com/filmora/article-images/select-the-name.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 d. Once the connection is established the icons would indicate that and you will find new power, streaming and media remote options. You will also be able to remotely control your console. Now the controller and the Click Stream needs to be connected so as to play your Xbox games on your Windows computer.
 
 ![new options ](https://images.wondershare.com/filmora/article-images/new-options.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Method 2:Streaming Xbox to computer with a capture card
 
 You can find many [capture cards](https://www.elgato.com/en/gaming)in the market which would allow you to stream your Xbox onto your computer without altering its quality. HD60 Pro is one of those capture cards which offers perfect streaming and optimum control for an enhanced gaming experience.
 
 <!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Use Wirecast or OBS to stream your desktop to Facebook
 
 Once all is set up you can live stream you desktop screen to facebook, we are not going to give a full introdcution here, you can check _OBS setup here,_ and _Wirecast setup here._
@@ -90,9 +99,6 @@ Once all is set up you can live stream you desktop screen to facebook, we are no
 
 **Cons**\- It doesn’t offer any support and it would take you a long time to master the settings.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![OBS ](https://images.wondershare.com/filmora/article-images/obs.jpg)
 
 [Wirecast](http://www.telestream.net/wirecast/overview.htm) \- would allow you to capture, produce and stream content from a number of input devices including Xbox, iOS cameras, computer etc. The Wirecast Gameshow can be used for streaming high quality computer games in full HD.
@@ -103,18 +109,20 @@ Once all is set up you can live stream you desktop screen to facebook, we are no
 
 ![ Wirecast](https://images.wondershare.com/filmora/article-images/wirecast.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -123,5 +131,22 @@ Follow @Richard Bennett
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-pixel-perfect-playback-fixing-blurry-videos-on-smartphones/"><u>[New] 2024 Approved Pixel Perfect Playback Fixing Blurry Videos on Smartphones</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-premier-tools-to-scrub-tiktok-brand-images/"><u>[New] 2024 Approved Premier Tools to Scrub TikTok Brand Images</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-expert-audio-recording-on-windows-10-part-1-for-2024/"><u>[New] Expert Audio Recording on Windows 10, Part 1 for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-the-comprerancial-guide-to-building-an-influential-online-following-for-2024/"><u>[New] The Comprerancial Guide to Building an Influential Online Following for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-enhancing-engagement-the-art-of-animated-fb-advertising-for-2024/"><u>[Updated] Enhancing Engagement The Art of Animated FB Advertising for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-elevating-your-tiktok-presence-by-merging-bio-and-linktree/"><u>2024 Approved Elevating Your TikTok Presence by Merging Bio & Linktree</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/how-to-enhance-your-page-posts-amidst-facebooks-shift-for-2024/"><u>How to Enhance Your Page Posts Amidst Facebook's Shift for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-corrupted-pdf-v11-file-when-manual-method-fails-stellar-by-stellar-guide/"><u>How to repair corrupted PDF v1.1 file when manual method fails | Stellar</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/how-to-view-the-roku-streaming-network-on-different-devices-not-just-roku/"><u>How to View the Roku Streaming Network on Different Devices, Not Just Roku</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-vivo-y200-pin-codepattern-lockpassword-by-drfone-android/"><u>In 2024, How to Unlock Vivo Y200 PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-platform-question-whos-the-best-vimeo-or-youtubeplusdailymotion-for-2024/"><u>The Ultimate Platform Question Who's the Best - Vimeo or YouTube+Dailymotion for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/top-picks-for-your-android-the-current-best-facebook-videos-downloaders-ranked/"><u>Top Picks for Your Android - The Current Best Facebook Videos Downloaders Ranked</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/transcription-triumphs-quick-methods-for-fb-call-records/"><u>Transcription Triumphs Quick Methods for FB Call Records</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/uncover-the-secret-to-an-ad-free-no-subs-experience-on-amazon-prime/"><u>Uncover the Secret to an Ad-Free, No-Subs Experience on Amazon Prime</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/visualsizetweak-mastering-your-instagram-media/"><u>VisualSizeTweak Mastering Your Instagram Media</u></a></li>
+</ul></div>
 

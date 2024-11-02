@@ -1,7 +1,7 @@
 ---
 title: "Essentials of Editing Your Social Media Profile Picture"
-date: 2024-08-10T14:15:23.034Z
-updated: 2024-08-11T14:15:23.034Z
+date: 2024-10-26T16:18:52.422Z
+updated: 2024-11-02T16:01:57.248Z
 tags:
   - ai video
   - ai facebook
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/128936f1237a7dae7d947e202ae29738fcba18f1e
 
 # How to Change Facebook Cover Photo
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -51,19 +48,20 @@ You might be aware of the fact that Facebook Cover photos have definite sizes an
 
 If your cover photo is not having the same dimensions then you may have to crop it. To do this, simply move to an editor tool like Photoshop and then import your cover photo over there. Now choose the crop tool and update its resolution as 315 pixels for height and 851 pixels for width. Once you are done with the desired editing then get your image saved to your device. Prefer the .jpg file format for Facebook covers.
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Change Facebook Cover Photo?
 
 Are you going to upload a Facebook cover photo the first time? Don’t worry! We are here to assist you. Facebook is a popular social media site and it definitely provides interactive setting options. All that you need to do is click the “Choose Cover Photo” option on your profile and then move to the folder containing pictures. Select “Choose” when you get your desired selection and soon it will be updated. In case if you already have updated some cover photos and now wish to change it with a new one, then the steps below can help you to complete the process:
 
 **Step 1:** Go to your profile and move to the already updated cover photo. Here you will find the Update Cover Photo option out of four different choices: Choose from Photos, Upload Photo, Reposition, and Remove.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
 ![facebook-update-cover-photo](https://images.wondershare.com/filmora/article-images/facebook-update-cover-photo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 2:** Now click the “Choose from My Photos” option to select a cover photo for your profile. This method can help you to select photos from your already uploaded Facebook photos.
 
@@ -81,33 +79,42 @@ It is also possible to select photos from any folder inside your computer or sma
 
 As soon as you have changed your cover photo with any of these methods as discussed above, it will soon appear in your timeline posts. In case if you want to remove it from the news feed, you can also make settings to remove the cover page change notification from the timeline. On the right-hand corner of your cover, you will find a pencil-like icon, click this one to hide your cover notification from the page.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ![facebook-cover-photo-hide](https://images.wondershare.com/filmora/article-images/facebook-cover-photo-hide.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Edit Facebook Cover Photo/Video with Versatile Video Editor Filmora
 
 It cannot be denied that a Facebook cover video will gain more attention from visitors than a regular cover photo. Why not try an easy-to-use video editor Filmora to create one for your Facebook page?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -116,5 +123,16 @@ Follow @Shanoon Cox
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-efficient-selections-top-picks-for-6-fb-lite-vids-for-2024/"><u>[New] Efficient Selections Top Picks for 6 FB Lite Vids for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-ignite-your-digital-engagement-top-strategies-for-more-fb-fans-for-2024/"><u>[New] Ignite Your Digital Engagement Top Strategies for More FB Fans for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-digital-room-for-screen-dance-duels/"><u>[New] In 2024, Digital Room for Screen Dance Duels</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-2023-play-facebook-videos-on-tv/"><u>[Updated] 2024 Approved 2023 | Play Facebook Videos on TV?</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-seamless-viewing-of-time-honored-facebook-stories/"><u>[Updated] Seamless Viewing of Time-Honored Facebook Stories</u></a></li>
+<li><a href="https://howto.techidaily.com/android-screen-stuck-general-vivo-x-flip-partly-screen-unresponsive-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Screen Stuck General Vivo X Flip Partly Screen Unresponsive | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/elevate-your-computer-game-learning-windows-shorthand/"><u>Elevate Your Computer Game: Learning Windows Shorthand</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-quickly-and-discreetly-delete-a-facebook-story/"><u>How to Quickly and Discreetly Delete a Facebook Story</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/revive-your-dell-laptops-dead-keys-expert-fixes-for-non-responsive-buttons/"><u>Revive Your Dell Laptop's Dead Keys: Expert Fixes for Non-Responsive Buttons</u></a></li>
+</ul></div>
 

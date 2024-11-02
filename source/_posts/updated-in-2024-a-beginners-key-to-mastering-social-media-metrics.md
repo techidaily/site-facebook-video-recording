@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, A Beginner's Key to Mastering Social Media Metrics"
-date: 2024-10-20T21:08:16.226Z
-updated: 2024-10-27T21:11:53.241Z
+date: 2024-10-26T18:34:28.425Z
+updated: 2024-11-02T16:18:45.172Z
 tags:
   - ai video
   - ai facebook
@@ -55,20 +55,6 @@ thumbnail: https://thmb.techidaily.com/545f7379c0befa5a44cab74ccb395e1f4653a53c6
 
 ![insights overview](https://images.wondershare.com/filmora/article-images/insights-overview.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
-  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. Page Likes
 
  There are three basic metrics in the likes section.
@@ -78,6 +64,13 @@ thumbnail: https://thmb.techidaily.com/545f7379c0befa5a44cab74ccb395e1f4653a53c6
  Secondly, the **net likes**, which captures the total new likes on your page subtracted by the total dislikes.
 
  Finally, the **certain times** your page was liked but broken by where it took place. In order to build your brand, you need to keep a track of your page likes and make sure that you are targeting the right people and connecting with them by targeting posts through relevant content.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Post Reach
 
@@ -90,20 +83,6 @@ thumbnail: https://thmb.techidaily.com/545f7379c0befa5a44cab74ccb395e1f4653a53c6
  In Hide, Report as Spam, and Unlikes, you may check the negative people count on your page. When the negative engagement of the people is more, lesser people can view your post in future.
 
 ![insights post reach](https://images.wondershare.com/filmora/article-images/insights-post-reach.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4\. Post Promotion
 
@@ -121,6 +100,13 @@ thumbnail: https://thmb.techidaily.com/545f7379c0befa5a44cab74ccb395e1f4653a53c6
 
 ![insights video analytics](https://images.wondershare.com/filmora/article-images/insights-video-analytics.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 6\. People Analytics
 
  Under the People tab, you get to understand the metrics of like and views of people on your posts. It is further divided into 3 sections.
@@ -133,6 +119,13 @@ thumbnail: https://thmb.techidaily.com/545f7379c0befa5a44cab74ccb395e1f4653a53c6
 
 ![insights people analytics](https://images.wondershare.com/filmora/article-images/insights-people-analytics.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
  Measuring the success of your Facebook page and posts is now easy with Facebook Insights. Keep a track of your posts and preferences of your audiences and run the campaigns successfully. Follow the above points to use the Facebook Insights without any confusion.
@@ -140,13 +133,20 @@ thumbnail: https://thmb.techidaily.com/545f7379c0befa5a44cab74ccb395e1f4653a53c6
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -163,20 +163,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-fb-content-extraction-made-simple-windows-and-macos/"><u>[New] 2024 Approved FB Content Extraction Made Simple Windows & macOS</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-sell-more-grow-faster-discover-how-these-15-facebook-apps-can-help/"><u>[New] 2024 Approved Sell More, Grow Faster Discover How These 15 Facebook Apps Can Help</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-30-vs-60-fps-in-2024-which-to-use-in-video-recording/"><u>[New] 30 Vs. 60 FPS, In 2024 Which To Use in Video Recording?</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-pro-tips-to-create-impactful-and-stunning-gopro-time-lapses/"><u>[New] Pro Tips to Create Impactful and Stunning GoPro Time-Lapses</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-screencast-strategies-unleashed-powerful-ideas-inside/"><u>[New] Screencast Strategies Unleashed Powerful Ideas Inside</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-step-by-step-perfecting-fbs-360-streams/"><u>[New] Step-by-Step Perfecting FB's 360 Streams</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-strategies-for-harvesting-fb-status-video-archives-for-2024/"><u>[New] Strategies for Harvesting FB Status Video Archives for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-capture-chuckles-through-adobe-media/"><u>[Updated] 2024 Approved Capture Chuckles Through Adobe Media</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-fps-game-quest-discovering-7-ultimate-titles/"><u>[Updated] 2024 Approved FPS Game Quest – Discovering 7 Ultimate Titles</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-enhance-visibility-a-comprehensive-guide-to-video-tagging-for-2024/"><u>[Updated] Enhance Visibility A Comprehensive Guide to Video Tagging for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-secrets-to-free-hd-video-grabs-from-facebook/"><u>[Updated] In 2024, Secrets to Free HD Video Grabs From Facebook</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-solve-video-issues-in-facebook-chat-on-iosandroid-devices-for-2024/"><u>[Updated] Solve Video Issues in Facebook Chat on iOS/Android Devices for 2024</u></a></li>
-<li><a href="https://fox-that.techidaily.com/break-free-from-earpods-unraveling-the-mystery-of-iphone-trapped-in-headphone-mode-with-8-remedies/"><u>Break Free From EarPods: Unraveling The Mystery of iPhone Trapped in Headphone Mode with 8 Remedies</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/integrating-your-social-network-four-ways-for-fb-story-sharing/"><u>Integrating Your Social Network Four Ways for FB Story Sharing</u></a></li>
-<li><a href="https://howto.techidaily.com/want-to-uninstall-google-play-service-from-samsung-galaxy-xcover-7-here-is-how-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Want to Uninstall Google Play Service from Samsung Galaxy XCover 7? Here is How | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-100-killer-facebook-bios-to-make-profile-attractive2/"><u>[New] 2024 Approved 100 Killer Facebook Bios to Make Profile Attractive2</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-best-8-concealed-video-downloading-software-of-2023/"><u>[New] 2024 Approved Best 8 Concealed Video Downloading Software of 2023</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-top-5-facebook-videos-that-hook-us-all/"><u>[New] 2024 Approved Top 5 Facebook Videos That Hook Us All</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-downloadfacebookvideos-essential-browser-addons-for-a-smooth-social-media-journey-in-firefox/"><u>[Updated] 2024 Approved DownloadFacebookVideos! - Essential Browser Addons for a Smooth Social Media Journey in FireFox</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-premium-mp4-uploader-for-fb-networks/"><u>[Updated] In 2024, Premium MP4 Uploader for FB Networks</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/break-barriers-enhancing-live-social-media-collaborations/"><u>Break Barriers Enhancing Live Social Media Collaborations</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/composition-techniques-for-eye-catching-fb-ad-content/"><u>Composition Techniques for Eye-Catching FB Ad Content</u></a></li>
+<li><a href="https://win-hot.techidaily.com/how-to-clear-device-information-post-10-incorrect-pin-tries-full-guide/"><u>How to Clear Device Information Post 10 Incorrect PIN Tries | Full Guide</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-fix-iphone-11-pro-max-could-not-be-activatedreached-issue-by-drfone-ios/"><u>How To Fix iPhone 11 Pro Max Could Not Be Activated/Reached Issue</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-13-pro-to-other-iphone-13-pro-max-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 13 Pro To Other iPhone 13 Pro Max devices? | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-best-10-mock-location-apps-worth-trying-on-honor-magic-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Best 10 Mock Location Apps Worth Trying On Honor Magic 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-can-realme-narzo-60x-5gmirror-share-to-pc-drfone-by-drfone-android/"><u>In 2024, How Can Realme Narzo 60x 5GMirror Share to PC? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-recommended-best-applications-for-mirroring-your-samsung-galaxy-f04-screen-drfone-by-drfone-android/"><u>In 2024, Recommended Best Applications for Mirroring Your Samsung Galaxy F04 Screen | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-top-11-best-online-facebook-cover-photo-makers/"><u>In 2024, Top 11 Best Online Facebook Cover Photo Makers</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722976335840-obtain-ft232-direct-rs-232rs-485-driver-in-a-flash/"><u>Obtain FT232 Direct RS-232/RS-485 Driver in a Flash</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-key-to-accumulating-a-huge-collection-of-tiktok-videos/"><u>The Key to Accumulating a Huge Collection of TikTok Videos</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/turbulent-flow-is-characterized-by-chaotic-fluid-motion-and-occurs-at-reynolds-numbers-greater-than-approximately-4000-for-pipe-flows/"><u>Turbulent Flow Is Characterized by Chaotic Fluid Motion and Occurs at Reynolds Numbers Greater than Approximately 4000 for Pipe Flows.</u></a></li>
 </ul></div>
 

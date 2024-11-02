@@ -1,7 +1,7 @@
 ---
 title: "\"Optimizing FB  Techniques for Shooting & Posting 360 Vids\""
-date: 2024-10-21T16:26:38.678Z
-updated: 2024-10-27T19:21:36.890Z
+date: 2024-10-31T18:46:02.055Z
+updated: 2024-11-02T17:08:36.912Z
 tags:
   - ai video
   - ai facebook
@@ -60,13 +60,6 @@ thumbnail: https://thmb.techidaily.com/468b7a50fb837089e10cec38dd44fa01aaab4078b
 
  In case if you are using any other device to capture your 360 degree videos then you may need to make manual adjustments for your 360 video formats.
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to upload 360 degree videos on Facebook
 
  Uploading 360 video to Facebook is easy, just follow the steps below:
@@ -77,15 +70,22 @@ thumbnail: https://thmb.techidaily.com/468b7a50fb837089e10cec38dd44fa01aaab4078b
 
 ![Facebook 360 video upload](https://images.wondershare.com/filmora/article-images/facebook-360-video-upload.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Step 3: Now select the option “This video was recorded in 360° format”. It will help your app to generate automated control for 360 degree content.
 
 ![Facebook 360 Controls](https://images.wondershare.com/filmora/article-images/facebook-360-controls.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
+  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Step 4: Go to **360 Controls** tab and make settings for field or view as well as more initial camera orientations.
@@ -95,10 +95,10 @@ thumbnail: https://thmb.techidaily.com/468b7a50fb837089e10cec38dd44fa01aaab4078b
  Note that Facebook 360 live platform allows maximum 30 minutes for a 360 degree video and the maxim supported file size goes up to 5GB only. So you can prepare your media file accordingly.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook 360 Video & Gear VR
@@ -124,10 +124,10 @@ thumbnail: https://thmb.techidaily.com/468b7a50fb837089e10cec38dd44fa01aaab4078b
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -145,22 +145,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-acquiring-large-format-fb-videos-effortlessly/"><u>[New] 2024 Approved Acquiring Large-Format FB Videos Effortlessly</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-mastery-of-autoplay-functionality-in-fb-video-streams/"><u>[New] 2024 Approved Mastery of Autoplay Functionality in Fb Video Streams</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-what-does-instantaneous-video-removal-mean-for-user-privacy/"><u>[New] 2024 Approved What Does Instantaneous Video Removal Mean for User Privacy?</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-leading-tech-review-the-top-10-screen-recorders/"><u>[New] Leading Tech Review The Top 10 Screen Recorders</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-facebook-algorithm-change-are-you-ready-for-2024/"><u>[Updated] Facebook Algorithm Change Are You Ready？ for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-beginners-guide-to-interpreting-facebook-metrics/"><u>2024 Approved Beginner's Guide to Interpreting Facebook Metrics</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/cover-video-essentials-for-facebook-professionals-for-2024/"><u>Cover Video Essentials for Facebook Professionals for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/essential-screencapture-strategies-for-effective-image-capturing-for-2024/"><u>Essential ScreenCapture Strategies for Effective Image Capturing for 2024</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/fixing-a-disconnected-nvidia-connection-expert-tips-and-guides/"><u>Fixing a Disconnected Nvidia Connection - Expert Tips and Guides</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-2-ways-to-monitor-huawei-p60-activity-drfone-by-drfone-virtual-android/"><u>In 2024, 2 Ways to Monitor Huawei P60 Activity | Dr.fone</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/in-2024-fastest-8-capture-tools-unveiled/"><u>In 2024, Fastest 8 Capture Tools Unveiled</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-fb-vids-effortless-mp4-extraction-at-your-fingertips/"><u>In 2024, FB Vids Effortless MP4 Extraction at Your Fingertips</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/in-2024-unlocking-windows-10-sound-capabilities/"><u>In 2024, Unlocking Windows 10 Sound Capabilities</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/rectifying-half-volume-issues-on-fb-media/"><u>Rectifying Half-Volume Issues on Fb Media</u></a></li>
-<li><a href="https://win11.techidaily.com/stepwise-procedure-to-independently-update-windows/"><u>Stepwise Procedure to Independently Update Windows</u></a></li>
-<li><a href="https://techtrends.techidaily.com/top-10-sichere-und-schnelle-video-konvertierungsprogramme-fur-windows-11-entdecken-sie-die-beste/"><u>Top 10 Sichere Und Schnelle Video-Konvertierungsprogramme Für Windows 11 - Entdecken Sie Die Beste!</u></a></li>
-<li><a href="https://win-webster.techidaily.com/urgent-fix-needed-microsofts-challenge-with-windows-11-looms-as-deadline-approaches-insights-from-zdnet/"><u>Urgent Fix Needed: Microsoft's Challenge with Windows 11 Looms as Deadline Approaches - Insights From ZDNet</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-transform-your-facebook-presence-with-dynamic-slideshows/"><u>[New] 2024 Approved Transform Your Facebook Presence with Dynamic Slideshows</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-mastering-the-art-of-uploading-youtube-videos-on-fb/"><u>[New] In 2024, Mastering the Art of Uploading YouTube Videos on FB</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-rapid-learning-from-visuals-to-vivid-youtube-channel-thumbnails/"><u>[Updated] 2024 Approved Rapid Learning From Visuals To Vivid YouTube Channel Thumbnails</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-rapidly-finding-friends-on-facebooks-network/"><u>[Updated] 2024 Approved Rapidly Finding Friends on Facebook's Network</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-step-by-step-filming-and-editing-your-first-reel-on-facebook/"><u>[Updated] 2024 Approved Step-by-Step Filming and Editing Your First Reel on Facebook</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/a-deep-dive-into-royal-match-quantifying-its-multi-level-structure/"><u>A Deep Dive Into 'Royal Match': Quantifying Its Multi-Level Structure</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/discovering-the-most-effective-replacements-for-microsoft-office/"><u>Discovering the Most Effective Replacements for Microsoft Office</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-broken-video-files-of-huawei-nova-11-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair Broken video files of Huawei Nova 11?</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/instant-download-razer-mamba-driver-swift-setup/"><u>Instant Download: Razer Mamba Driver - Swift Setup</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/is-facebook-better-for-vertical-videos/"><u>Is Facebook Better for Vertical Videos?</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/quick-fixes-for-viewing-apples-pages-files-on-windows-systems/"><u>Quick Fixes for Viewing Apple's Pages Files on Windows Systems</u></a></li>
+<li><a href="https://techtrends.techidaily.com/step-by-step-instructions-for-taking-screenshots-in-windows-operating-systems/"><u>Step-by-Step Instructions for Taking Screenshots in Windows Operating Systems</u></a></li>
 </ul></div>
 

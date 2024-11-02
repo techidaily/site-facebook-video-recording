@@ -1,7 +1,7 @@
 ---
 title: "Engage, Enlighten and Enthrall with Immersive Facebook Sharing"
-date: 2024-08-10T14:15:44.504Z
-updated: 2024-08-11T14:15:44.504Z
+date: 2024-10-27T19:00:46.199Z
+updated: 2024-11-02T17:34:39.853Z
 tags:
   - ai video
   - ai facebook
@@ -19,10 +19,6 @@ thumbnail: https://thmb.techidaily.com/fa134e33a19af2a6d89131747e3b5172ee7c32958
 
 # How to Post 360 Photos on iOS/Android to Facebook
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -35,9 +31,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  Probably you have a tablet or phone that support Facebook live 360 video feature. Actually as per the recent announcement made by Facebook professionals regarding its updated applications, live 360 is compatible with all devices launched after iPad Pro. iPad Air, iPad Mini 2 or iPhone 4S models. Till now Facebook has not revealed any news related to compatibility of new features over Android devices and chances are that Android users need to wait so long to enjoy this feature on their device. However, they made a useful statement that Galaxy devices launched after Galaxy Note 3 and Galaxy S5 will support this feature.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Taking 360 Photos on iPhone and iPad With Built in Camera App
 
  Generally 360 degree camera is most preferable choice for developing high quality 360 degree images but in case if you don’t have one then Panorama feature of built in device cameras can make it possible. However, users cannot get focus from up and down but they can at least pan from right to left by simply swiping on their display. This feature only works for photos that mean you cannot develop 360 videos using Panorama.
@@ -47,8 +40,12 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  As soon as you have captured your desired shot, move to your Facebook account and browse photo library. Choose your recently captured panorama photo and then follow instructions provided on screen to update your video. You can also preview your content, now add desired caption and publish your content online. Soon your will start receiving interesting comments and reviews from audience. Users can also delete their 360 degree photos after few hours as per their need. Such types of videos are being commonly used for entertainment and marketing purpose throughout the world.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Taking 360 Photos on Android Smartphone with Google Street View
 
  It is important to capture 360 degree photos in Facebook compatible formats so professionals recommend using Google’s street view camera app for this purpose. It works fine over iOS as well as Android platform and let users enjoy unlimited 360 shoots. To develop 360 degree videos from this application:
@@ -59,35 +56,32 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 * These captured 360 videos can be uploaded on Facebook same as the regular posts. Simply go to your account, move to status update and select your image, add caption and update.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2144279/7443" target="_top" id="2144279">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144279" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144279/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Viewing 360 Photos on Facebook
 
  As soon as you are done with the uploading process, next task is to visit your profile and check if your uploaded video is working fine or not. If you are working on a web browser then simply click on this video and drag it here and there to avail 360 degree view whereas those who are watching it on smartphone can simply move it around in all directions to enjoy 360 degree view.
 
  You will find a small radar type icon at bottom of screen; it provides information about your current pointing position on view. As it is your own profile so you can still make few changes to your uploads by adjusting preferred audience type or comments etc.
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111994/7443" target="_top" id="2111994">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111994" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111994/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -96,5 +90,26 @@ Follow @Shanoon Cox
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-the-composers-path-to-infusing-music-in-online-videos-fb/"><u>[New] 2024 Approved The Composer's Path to Infusing Music in Online Videos (FB)</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-disseminating-videos-tiktok-content-for-a-wider-facebook-audience/"><u>[New] In 2024, Disseminating Videos TikTok Content for a Wider Facebook Audience</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-share-and-smile-discovering-the-best-meme-designs-10-for-2024/"><u>[New] Share & Smile Discovering the Best Meme Designs #10 for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-youtube-to-mp4-get-free-hd1080p-from-facebook-vids-for-2024/"><u>[New] YouTube-to-MP4 Get Free HD/1080P From Facebook Vids for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-dive-into-top-online-platforms-for-enhancing-media-subtitles/"><u>[Updated] In 2024, Dive Into Top Online Platforms for Enhancing Media Subtitles</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-secret-to-skyrocketing-revenue-crafting-engaging-video-trailers-for-2024/"><u>[Updated] The Secret to Skyrocketing Revenue Crafting Engaging Video Trailers for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-seamless-methods-for-no-cost-c-span-video-downloads/"><u>2024 Approved Seamless Methods for No-Cost C-Span Video Downloads</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-social-syncopation-the-rhythm-of-sharing-media-on-facebook/"><u>2024 Approved Social Syncopation The Rhythm of Sharing Media on Facebook</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/4-easy-ways-for-your-vivo-v27-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>4 Easy Ways for Your Vivo V27 Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/5-essential-ios-downloader-apps-for-your-favorite-facebook-videos/"><u>5 Essential iOS Downloader Apps for Your Favorite Facebook Videos</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/enhancing-chrome-performance-for-hd-facebook-content-for-2024/"><u>Enhancing Chrome Performance for HD Facebook Content for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/harnessing-the-transformative-force-of-ai-for-global-advancement/"><u>Harnessing the Transformative Force of AI for Global Advancement</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/hp-laptop-key-issues-fixed-simple-solutions-in-minutes/"><u>HP Laptop Key Issues Fixed - Simple Solutions in Minutes!</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-dive-deep-into-the-digital-world-adding-panoramic-photos-to-your-feed/"><u>In 2024, Dive Deep Into the Digital World Adding Panoramic Photos to Your Feed</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-oppo-a79-5g-phone-without-password-by-drfone-android/"><u>In 2024, How To Unlock Oppo A79 5G Phone Without Password?</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-masterclass-in-sharing-youtube-videos-to-facebook-links/"><u>In 2024, Masterclass in Sharing YouTube Videos to Facebook Links</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-take-your-fb-videos-from-small-to-grand-in-a-click/"><u>In 2024, Take Your FB Videos From Small to Grand in a Click</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/leading-e-stores-for-securely-downloading-youtube-ringtones/"><u>Leading E-Stores for Securely Downloading YouTube Ringtones</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/syncopated-social-media-adding-melodies-to-reels/"><u>Syncopated Social Media Adding Melodies to Reels</u></a></li>
+</ul></div>
 

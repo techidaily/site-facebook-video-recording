@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Targeted Thought Leadership with Profound FB Video Strategies"
-date: 2024-10-24T21:06:35.837Z
-updated: 2024-10-27T18:59:51.082Z
+date: 2024-10-27T16:58:46.192Z
+updated: 2024-11-02T17:27:34.316Z
 tags:
   - ai video
   - ai facebook
@@ -44,10 +44,10 @@ thumbnail: https://thmb.techidaily.com/70eb207ffd605d91a6b2f543dd9aa1d6c7a04729a
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Before Making Facebook Video Ads
@@ -64,18 +64,18 @@ thumbnail: https://thmb.techidaily.com/70eb207ffd605d91a6b2f543dd9aa1d6c7a04729a
 
 [Learn more about How to Easily Create Captions and Subtitles for Facebook Videos](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Tips for Making Better Facebook Video Ads
 
 #### 1. Capture Attention in the First Few Seconds
 
 ![facebook video audience retention ]( https://images.wondershare.com/filmora/article-images/facebook-video-audience-retention.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Facebook platform stay loaded with numbers if videos so people cannot interact equally with all of them. Thus, it is important to create a video that can force viewers to make quick decision about whether this particular video must be watched or not. In order to leave the best impression on viewer’s mind, every video ad must have two major characteristics: It should not have length more than 20 seconds, content must be capable enough to catch attention within first 2, 3 seconds. Here are few common mistakes for low rating of certain videos ads:
 
@@ -88,6 +88,13 @@ thumbnail: https://thmb.techidaily.com/70eb207ffd605d91a6b2f543dd9aa1d6c7a04729a
 #### 2. Choose Attractive Video Thumbnail
 
 ![Facebook Video ads thumbnail](https://images.wondershare.com/filmora/article-images/facebook-video-custom-thumbnail.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Note that most of the facebook users prefer to deactivate video autoplay options on their profile so they must be encouraged to play your video. The best trigger can be added with an eye catching thumbnail. Facebook platform allow users to create eye catching thumbnail from wide selection of images captured from video frames itself. You can also pick your own image to be uploaded as a thumbnail and to do this you have to follow the custom thumbnail area button. In order to create best impact, it is good to select thumbnail image with aspect ratio same as that of the video.
 
@@ -105,13 +112,6 @@ thumbnail: https://thmb.techidaily.com/70eb207ffd605d91a6b2f543dd9aa1d6c7a04729a
 
 ![Facebook Video Third Lower Text](https://images.wondershare.com/filmora/article-images/facebook-video-third-lower-text.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Adding text on video ads is really a good idea because it helps to highlight the salient points with ease. When lower thirds are added to the videos then viewers can easily go ahead with your content and pick the major details. Although, this information is named as Lower Thirds but these messages can be placed at any portion of your video ad screen. The key is to work with your favourite video editing program that can add text impressively.
 
 #### 5. Include a Compelling Offer
@@ -121,10 +121,10 @@ thumbnail: https://thmb.techidaily.com/70eb207ffd605d91a6b2f543dd9aa1d6c7a04729a
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -142,19 +142,15 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-optimize-iphoneandroid-video-quality-in-online-platforms/"><u>[New] 2024 Approved Optimize iPhone/Android Video Quality in Online Platforms</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-escaping-boredom-with-laughter-20-wit-infused-jailmates-tales-from-fb/"><u>[New] Escaping Boredom with Laughter 20 Wit-Infused Jailmates' Tales From Fb</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-tackle-chromes-inability-to-load-fb-videos/"><u>[New] In 2024, Tackle Chrome's Inability to Load FB Videos</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-decoding-the-average-earning-scale-for-podcasters/"><u>[Updated] 2024 Approved Decoding the Average Earning Scale for Podcasters</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-methods-to-autoplay-youtube-videos-on-facebook/"><u>[Updated] 2024 Approved Methods to Autoplay Youtube Videos on Facebook?</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-in-2024-simple-windows-11-techniques-for-video-editing/"><u>[Updated] In 2024, Simple Windows 11 Techniques for Video Editing</u></a></li>
-<li><a href="https://program-issues.techidaily.com/addressing-compatibility-errors-with-rainbow-six-operation-guide-to-finding-the-right-drivers/"><u>Addressing Compatibility Errors with Rainbow Six Operation: Guide to Finding the Right Drivers</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-videos-from-galaxy-a15-4g-by-fonelab-android-recover-video/"><u>Easy steps to recover deleted videos from Galaxy A15 4G</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/experience-the-next-wave-watching-fb-live-on-roku-for-2024/"><u>Experience the Next Wave Watching FB Live on Roku for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/gold-class-8-unseen-media-extractors/"><u>Gold-Class 8 Unseen Media Extractors</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-xiaomi-redmi-note-13-proplus-5g-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on Xiaomi Redmi Note 13 Pro+ 5G online without jailbreak</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-3-ways-to-track-nokia-c300-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Track Nokia C300 without Them Knowing | Dr.fone</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/swiftly-overcome-blue-screen-in-win11-systems/"><u>Swiftly Overcome Blue Screen in Win11 Systems</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-oppo-a18-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Oppo A18 | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-digital-delights-8-most-watched-movies/"><u>[New] In 2024, Digital Delights 8 Most Watched Movies</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-skew-and-warp-a-photographers-guide/"><u>[New] Skew and Warp A Photographer's Guide</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-strategies-and-costs-promoting-videos-effectively/"><u>[New] Strategies and Costs Promoting Videos Effectively</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-the-cryptic-collection-of-2023-auction-for-anonymity-artifacts/"><u>[Updated] 2024 Approved The Cryptic Collection of 2023 Auction for Anonymity Artifacts</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-extract-and-play-fb-soundtracks/"><u>[Updated] Extract and Play FB Soundtracks</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-pixelpanorama-crafting-collage-vids-on-gear/"><u>[Updated] In 2024, PixelPanorama Crafting Collage Vids on Gear</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-facebook-vault-convert-videos-to-mp4-in-seconds/"><u>2024 Approved Facebook Vault Convert Videos to MP4 in Seconds</u></a></li>
+<li><a href="https://change-location.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-samsung-galaxy-f54-5g-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Samsung Galaxy F54 5G | Dr.fone</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-and-install-updates-for-hp-laserjet-pro-m404n-printer-drivers/"><u>Download and Install Updates for HP LaserJet Pro M404N Printer Drivers</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/still-using-pattern-locks-with-xiaomi-redmi-note-12-5g-tips-tricks-and-helpful-advice-by-drfone-android/"><u>Still Using Pattern Locks with Xiaomi Redmi Note 12 5G? Tips, Tricks and Helpful Advice</u></a></li>
 </ul></div>
 

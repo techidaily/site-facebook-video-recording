@@ -1,7 +1,7 @@
 ---
 title: "How to Fix Silent Mic Capture: A Tutorial for OBS Users"
-date: 2024-09-29T17:14:35.739Z
-updated: 2024-10-04T18:39:36.182Z
+date: 2024-10-28T17:23:55.855Z
+updated: 2024-11-02T16:53:21.876Z
 tags:
   - win11
   - win10
@@ -55,13 +55,6 @@ thumbnail: https://thmb.techidaily.com/0039be476e652be6e9e02b60752db5e1733ea22d9
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **Method 1: Disable the audio device in Device Manager and restart your PC**
 
 Follow these steps:
@@ -71,10 +64,16 @@ Follow these steps:
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/img_5b9642d9827b4.png)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  2) Expand the category “**Sound, video and game controllers** “. Under this category, right-click on the audio device name. A context menu will pop up, then select **Disable** .
@@ -82,21 +81,28 @@ Follow these steps:
 ![](https://images.drivereasy.com/wp-content/uploads/2017/02/img_589bd515db2c0.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
+<span id="1424529">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  3) Restart your PC. Then a Window will pop up to ask you to solve the sound problem. Just follow the on-screen instructions. Then the sound issue should resolve.
 
 ---
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **Method 2: Update the audio driver**
 
@@ -119,10 +125,10 @@ Follow these steps:
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/image-406.png)
 
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
-  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Hopefully you can fix your laptop no sound issues with the steps above. If you have any questions, please feel free to leave your comment below.
@@ -144,22 +150,22 @@ Follow these steps:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-securely-accessing-your-fb-status-video/"><u>[New] 2024 Approved Securely Accessing Your FB Status Video</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-crafting-connection-tips-and-tricks-for-sharing-content-via-facebook/"><u>[New] In 2024, Crafting Connection Tips and Tricks for Sharing Content via Facebook</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-top-practices-to-personalize-snapchat-video-playback/"><u>[New] In 2024, Top Practices to Personalize Snapchat Video Playback</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-youtube-free-convert-your-fb-videos-into-720p1080p-mp4-online-guide/"><u>[New] In 2024, YouTube-Free Convert Your FB Videos Into 720P/1080p MP4 Online Guide</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-masterfb-mp4-hacking-facebook-videos-with-ease/"><u>[New] MasterFB-MP4 Hacking Facebook Videos with Ease</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-vive-headset-revolutionizes-virtual-reality-playtime/"><u>[New] Vive Headset Revolutionizes Virtual Reality Playtime</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-boosting-viewership-with-animated-subscribe-buttons-in-filmora-easy-guide/"><u>[Updated] Boosting Viewership with Animated Subscribe Buttons in Filmora (Easy Guide)</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-clearer-chrome-tips-to-improve-facebook-playback/"><u>[Updated] In 2024, Clearer Chrome Tips to Improve Facebook Playback</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-airpods-apart-heres-the-mend/"><u>2024 Approved Airpods Apart? Here's the Mend</u></a></li>
-<li><a href="https://network-issues.techidaily.com/achieving-compatibility-perfection-win10-plus-nvidia/"><u>Achieving Compatibility Perfection: Win10 + Nvidia</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/downloading-and-saving-fb-video-files-os-agnostic-guide/"><u>Downloading and Saving FB Video Files OS-Agnostic Guide</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-connect-with-more-viewers-share-twitch-on-facebook/"><u>In 2024, Connect With More Viewers Share Twitch on Facebook</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/overcoming-push-to-talk-difficulties-in-overwatch-solutions-included/"><u>Overcoming Push-to-Talk Difficulties in Overwatch - Solutions Included</u></a></li>
-<li><a href="https://windows11.techidaily.com/restoring-dormant-wsreset-utility-on-computers/"><u>Restoring Dormant WSReset Utility on Computers</u></a></li>
-<li><a href="https://win-blog.techidaily.com/step-by-step-guide-to-fix-continuous-crashes-in-rainbow-six-siege-pc-version/"><u>Step-by-Step Guide to Fix Continuous Crashes in Rainbow Six Siege PC Version</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/ultimate-commercial-sky-storage-provider-for-2024/"><u>Ultimate Commercial Sky-Storage Provider for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/understanding-the-dynamics-of-facebooks-in-stream-ad-model-for-2024/"><u>Understanding the Dynamics of Facebook's In-Stream Ad Model for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-horizontal-vs-vertical-best-for-fb-videos/"><u>[New] 2024 Approved Horizontal Vs. Vertical Best for FB Videos?</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-transform-your-tech-for-successful-social-media-livestreams/"><u>[New] In 2024, Transform Your Tech for Successful Social Media Livestreams</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-syncing-songs-with-your-facebook-chronicles-for-2024/"><u>[New] Syncing Songs with Your Facebook Chronicles for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-tapping-into-the-power-of-visual-communication-on-facebook/"><u>[New] Tapping Into the Power of Visual Communication on Facebook</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-the-ultimate-guide-to-watching-fb-live-on-roku-for-2024/"><u>[New] The Ultimate Guide to Watching FB Live on Roku for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-from-cameras-to-obs-a-step-by-step-mac-and-pc-broadcast-setup/"><u>[Updated] From Cameras to OBS A Step-by-Step Mac & PC Broadcast Setup</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-mastering-smooth-playback-on-instagram-videos-for-2024/"><u>[Updated] Mastering Smooth Playback on Instagram Videos for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-the-professionals-guide-to-smoothly-inserting-online-videos-into-slides-for-2024/"><u>[Updated] The Professional's Guide to Smoothly Inserting Online Videos Into Slides for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-the-ultimate-guide-to-webinar-archiving/"><u>[Updated] The Ultimate Guide to Webinar Archiving</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/fb-live-success-strategies/"><u>FB Live Success Strategies</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-frp-from-motorola-edge-40-neo-by-drfone-android/"><u>In 2024, How to Bypass FRP from Motorola Edge 40 Neo?</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-lock-apps-on-nokia-c02-to-protect-your-individual-information-by-drfone-android/"><u>In 2024, How to Lock Apps on Nokia C02 to Protect Your Individual Information</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-maximizing-your-earnings-how-to-monetize-facebook-videos-successfully/"><u>In 2024, Maximizing Your Earnings How to Monetize Facebook Videos Successfully</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/revolutionary-tools-elevating-vr-games/"><u>Revolutionary Tools Elevating VR Games</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-investors-guide-to-choosing-yt-channels/"><u>The Investor's Guide to Choosing YT Channels</u></a></li>
+<li><a href="https://win-net.techidaily.com/ultimate-guide-how-to-duplicate-a-mushkin-ssd-for-free-using-windows-pcs/"><u>Ultimate Guide: How to Duplicate a Mushkin SSD for Free Using Windows PCs</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-capabilities-in-depth-review-of-the-dji-phantom-4-pro-v2/"><u>Unveiling the Capabilities: In-Depth Review of the DJI Phantom 4 Pro V2</u></a></li>
 </ul></div>
 
