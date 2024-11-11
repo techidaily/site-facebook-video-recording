@@ -1,7 +1,7 @@
 ---
 title: "\"Optimizing FB  Techniques for Shooting & Posting 360 Vids\""
-date: 2024-10-31T18:46:02.055Z
-updated: 2024-11-02T17:08:36.912Z
+date: 2024-11-03T23:29:01.226Z
+updated: 2024-11-10T16:07:43.270Z
 tags:
   - ai video
   - ai facebook
@@ -42,6 +42,13 @@ thumbnail: https://thmb.techidaily.com/468b7a50fb837089e10cec38dd44fa01aaab4078b
 
  So, now you may be thinking hard that how this feature is useful for Facebook users. Actually, Facebook has recently enabled its users to upload 360 videos directly to their pages, groups or profiles so that audience can stay engaged. This is really interesting.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
+  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to make a 360 Degree video on Facebook?
 
  Users can easily develop 360 degree videos with the help of spherical cameras or specially designed applications. As these videos are gaining more and more popularity these days so now spherical cameras are available at very low cost that everyone can buy them. Here is the list of few highly rated Facebook compatible 360 degree cameras:
@@ -60,6 +67,13 @@ thumbnail: https://thmb.techidaily.com/468b7a50fb837089e10cec38dd44fa01aaab4078b
 
  In case if you are using any other device to capture your 360 degree videos then you may need to make manual adjustments for your 360 video formats.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to upload 360 degree videos on Facebook
 
  Uploading 360 video to Facebook is easy, just follow the steps below:
@@ -71,10 +85,16 @@ thumbnail: https://thmb.techidaily.com/468b7a50fb837089e10cec38dd44fa01aaab4078b
 ![Facebook 360 video upload](https://images.wondershare.com/filmora/article-images/facebook-360-video-upload.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977032">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Step 3: Now select the option “This video was recorded in 360° format”. It will help your app to generate automated control for 360 degree content.
@@ -82,10 +102,16 @@ thumbnail: https://thmb.techidaily.com/468b7a50fb837089e10cec38dd44fa01aaab4078b
 ![Facebook 360 Controls](https://images.wondershare.com/filmora/article-images/facebook-360-controls.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
-  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1702748">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Step 4: Go to **360 Controls** tab and make settings for field or view as well as more initial camera orientations.
@@ -93,13 +119,6 @@ thumbnail: https://thmb.techidaily.com/468b7a50fb837089e10cec38dd44fa01aaab4078b
  Step 5: Finally click the **Publish** option.
 
  Note that Facebook 360 live platform allows maximum 30 minutes for a 360 degree video and the maxim supported file size goes up to 5GB only. So you can prepare your media file accordingly.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Facebook 360 Video & Gear VR
 
@@ -123,13 +142,6 @@ thumbnail: https://thmb.techidaily.com/468b7a50fb837089e10cec38dd44fa01aaab4078b
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -145,17 +157,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-transform-your-facebook-presence-with-dynamic-slideshows/"><u>[New] 2024 Approved Transform Your Facebook Presence with Dynamic Slideshows</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-mastering-the-art-of-uploading-youtube-videos-on-fb/"><u>[New] In 2024, Mastering the Art of Uploading YouTube Videos on FB</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-rapid-learning-from-visuals-to-vivid-youtube-channel-thumbnails/"><u>[Updated] 2024 Approved Rapid Learning From Visuals To Vivid YouTube Channel Thumbnails</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-rapidly-finding-friends-on-facebooks-network/"><u>[Updated] 2024 Approved Rapidly Finding Friends on Facebook's Network</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-step-by-step-filming-and-editing-your-first-reel-on-facebook/"><u>[Updated] 2024 Approved Step-by-Step Filming and Editing Your First Reel on Facebook</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/a-deep-dive-into-royal-match-quantifying-its-multi-level-structure/"><u>A Deep Dive Into 'Royal Match': Quantifying Its Multi-Level Structure</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/discovering-the-most-effective-replacements-for-microsoft-office/"><u>Discovering the Most Effective Replacements for Microsoft Office</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-repair-broken-video-files-of-huawei-nova-11-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair Broken video files of Huawei Nova 11?</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/instant-download-razer-mamba-driver-swift-setup/"><u>Instant Download: Razer Mamba Driver - Swift Setup</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/is-facebook-better-for-vertical-videos/"><u>Is Facebook Better for Vertical Videos?</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/quick-fixes-for-viewing-apples-pages-files-on-windows-systems/"><u>Quick Fixes for Viewing Apple's Pages Files on Windows Systems</u></a></li>
-<li><a href="https://techtrends.techidaily.com/step-by-step-instructions-for-taking-screenshots-in-windows-operating-systems/"><u>Step-by-Step Instructions for Taking Screenshots in Windows Operating Systems</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-photoshop-basics-for-beginners-10-must-know-tricks/"><u>[New] 2024 Approved Photoshop Basics for Beginners 10 Must-Know Tricks</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-tips-for-easily-accessing-videos-on-facebook/"><u>[New] 2024 Approved Tips for Easily Accessing Videos on Facebook</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-essential-techniques-for-procuring-facebook-vids-for-2024/"><u>[New] Essential Techniques for Procuring Facebook Vids for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-premier-mp4-broadcast-suite-for-2024/"><u>[New] Premier MP4 Broadcast Suite for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-fb-story-downloads-decoded-a-quick-and-convenient-guide-for-all-users/"><u>[Updated] 2024 Approved FB Story Downloads Decoded A Quick & Convenient Guide for All Users</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-integrating-twitter-and-facebook-with-ease/"><u>[Updated] 2024 Approved Integrating Twitter and Facebook with Ease</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-the-efficacy-of-quick-subscribing-in-video-platforms/"><u>[Updated] 2024 Approved The Efficacy of Quick-Subscribing in Video Platforms</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-mastering-video-caption-implementation-on-vimeo-for-2024/"><u>[Updated] Mastering Video Caption Implementation on Vimeo for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-revenue-techniques-for-gamers-2024/"><u>[Updated] Revenue Techniques for Gamers 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-easy-ways-to-copy-contacts-from-realme-11x-5g-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Easy Ways to Copy Contacts from Realme 11X 5G to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-zte-blade-a73-5g-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on ZTE Blade A73 5G Phones with/without a PC</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-clandestine-call-collectors-discreet-voice-capture-tools-list/"><u>In 2024, Clandestine Call Collectors Discreet Voice Capture Tools List</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/the-photographers-pathway-transitioning-from-camera-to-computer-screen/"><u>The Photographer's Pathway Transitioning From Camera to Computer Screen</u></a></li>
 </ul></div>
 

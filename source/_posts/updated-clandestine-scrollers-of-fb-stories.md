@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Clandestine Scrollers of Fb Stories"
-date: 2024-10-27T19:17:12.429Z
-updated: 2024-11-02T16:34:51.190Z
+date: 2024-11-05T03:26:34.671Z
+updated: 2024-11-10T22:12:55.332Z
 tags:
   - ai video
   - ai facebook
@@ -71,7 +71,27 @@ When you turn on the airplane mode of your device, your phone will no longer be 
 
 ![View Facebok Story anonymously via offline ](https://images.wondershare.com/filmora/article-images/view-facebook-story-anonymously-via-offline.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1702748">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Once you are done, force close the Facebook application so that it doesn't run in the background when you disable the Airplane Mode. Because if you do that, your name can get registered. So, close the app completely. Please note that when the Airplane mode is on, some stories will not load. To watch them, you need to turn on and off the airplane mode again.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Method 2: Half Swipe
 
@@ -82,6 +102,13 @@ As the name suggests, rather than watching the entire story, you need to stop wa
 **Step 2:** While viewing, put the finger on the story right before the story is about to end.
 
 **Step 3:** Quickly swipe right or left and make sure the story doesn't end. This way, Facebook won't register you.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Method 3: Block Them
 
@@ -110,10 +137,10 @@ Once 24 hours is over, you can log in to reactive your account.
 There are three easy ways to see someone's story on Facebook. One way is to use the web browser of your pc or Mac, the second is exploring Facebook stories on Facebook Messenger, and the third is by using the Facebook mobile app. We will discuss these three methods below.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Method 1: View Facebook Stories through the Website Browser
@@ -122,13 +149,6 @@ There are three easy ways to see someone's story on Facebook. One way is to use 
 
 **Step 2:** Click on any of the stories to view them.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Method 2: View Facebook Story Through Facebook Messenger
 
 **Step 1:** Open Facebook Messenger on your iPhone or Android device. And on top of the messages, you will see the list of profiles that are currently active, and if any one of them has uploaded a story, their profile will have a blue circle.
@@ -136,13 +156,6 @@ There are three easy ways to see someone's story on Facebook. One way is to use 
 **Step 2:** Click on a profile, and the story will be displayed.
 
 ![View Facebok Story via Messenger](https://images.wondershare.com/filmora/article-images/view-facebook-story-messenger.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Method 3: Open Facebook Mobile App to View Stories
 
@@ -153,10 +166,10 @@ There are three easy ways to see someone's story on Facebook. One way is to use 
 ![View Facebok Story on mobile](https://images.wondershare.com/filmora/article-images/view-facebook-story-mobile-app.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: How to Check Facebook Story Views?
@@ -169,21 +182,7 @@ Facebook allows you to check who viewed your stories. This is known as **Faceboo
 
 ![View who have seen my Facebok Story  ](https://images.wondershare.com/filmora/article-images/check-who-viewed-facebook-story.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Now, you can see the list of people's names who have seen your story. This step will remain the same for both computer and mobile app users.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 4: FAQs About Viewing Facebook Story
 
@@ -213,6 +212,13 @@ Yes, just like you can see who viewed your Facebook story, others can also check
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -228,22 +234,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-digitally-rediscovering-past-facebook-sharing-how-to-for-tech-users-for-2024/"><u>[New] Digitally Rediscovering Past Facebook Sharing How-To for Tech Users for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-can-televising-streaming-services-include-facebook-content/"><u>[New] In 2024, Can Televising Streaming Services Include Facebook Content?</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-circulating-content-the-art-of-playlist-sharing/"><u>[New] In 2024, Circulating Content The Art of Playlist Sharing</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-facebooks-edge-mastering-the-art-of-360-videos/"><u>[New] In 2024, Facebook's Edge Mastering the Art of 360 Videos</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-advanced-techniques-for-capturing-high-quality-skype-calls/"><u>[Updated] 2024 Approved Advanced Techniques for Capturing High-Quality Skype Calls</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-best-practices-for-filming-and-sharing-immersive-content-on-fb/"><u>[Updated] 2024 Approved Best Practices for Filming and Sharing Immersive Content on FB</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-tricks-for-making-fb-ads-pop-up-on-screen/"><u>[Updated] 2024 Approved Tricks for Making FB Ads Pop Up on Screen</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-address-chromes-problematic-facebook-vids/"><u>2024 Approved Address Chrome's Problematic Facebook Vids</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-simplifying-the-art-of-advertising-through-structured-content/"><u>2024 Approved Simplifying the Art of Advertising Through Structured Content</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-stealthy-facebook-video-navigator/"><u>2024 Approved Stealthy Facebook Video Navigator</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-unseen-glimpse-of-fb-stories/"><u>2024 Approved Unseen Glimpse of FB Stories</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/comparing-ultra-hd-uhd-and-true-4k-resolutions-what-sets-them-apart/"><u>Comparing Ultra HD (UHD) and True 4K Resolutions – What Sets Them Apart?</u></a></li>
-<li><a href="https://blog-min.techidaily.com/conversion-en-ligne-des-fichiers-flv-vers-le-format-webm-pour-free-aidez-vous-a-laide-de-movavi/"><u>Conversion en Ligne Des Fichiers FLV Vers Le Format WebM Pour Free - Aidez-Vous À L'aide De Movavi</u></a></li>
-<li><a href="https://change-location.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-samsung-galaxy-a25-5g-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Samsung Galaxy A25 5G | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-effective-guide-to-cast-apple-iphone-14-pro-max-to-macbook-without-hindrance-drfone-by-drfone-ios/"><u>In 2024, Effective Guide to Cast Apple iPhone 14 Pro Max to MacBook without Hindrance | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/sns-vs-competitors-a-critical-hdr-software-comparison/"><u>SNS vs Competitors A Critical HDR Software Comparison</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/undead-uprising-your-essential-compilation-of-zombie-gaming/"><u>Undead Uprising Your Essential Compilation of Zombie Gaming</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-windowsmac-securely-download-facebook-media/"><u>[New] 2024 Approved Windows/Mac Securely Download Facebook Media</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-cutting-edge-fb-video-ads-mastery-with-free-toolset/"><u>[New] In 2024, Cutting-Edge FB Video Ads Mastery with FREE Toolset</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-must-have-programs-for-youtube-video-downloads/"><u>[New] In 2024, Must-Have Programs for YouTube Video Downloads</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-lightweightscreencapture-no-fuss-just-fun-for-2024/"><u>[New] LightweightScreenCapture - No Fuss, Just Fun for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-crafting-your-online-identity-a-facebook-tutorial/"><u>[Updated] 2024 Approved Crafting Your Online Identity A Facebook Tutorial</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-unite-gamers-and-followers-xboxfb-livestream-guide/"><u>[Updated] 2024 Approved Unite Gamers & Followers Xbox/FB Livestream Guide</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-clear-facebook-broadcast-laptops-and-phones-included/"><u>[Updated] In 2024, Clear Facebook Broadcast Laptops and Phones Included</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-master-the-art-of-professional-webcam-filming-for-2024/"><u>[Updated] Master the Art of Professional Webcam Filming for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-simplified-guide-crafting-powerful-content-for-fb-ads-for-2024/"><u>[Updated] Simplified Guide Crafting Powerful Content for FB Ads for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/harnessing-the-power-of-azure-transcript-services/"><u>Harnessing the Power of Azure Transcript Services</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-xiaomi-redmi-note-12r-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>How to Unlock Xiaomi Redmi Note 12R Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-nokia-g22frp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Nokia G22FRP Lock</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-best-point-of-sale-software-for-retailers-not-including-gpt/"><u>The Best Point-of-Sale Software for Retailers Not Including GPT</u></a></li>
 </ul></div>
 

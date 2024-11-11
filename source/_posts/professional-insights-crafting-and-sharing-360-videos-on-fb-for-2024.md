@@ -1,7 +1,7 @@
 ---
 title: "\"Professional Insights  Crafting & Sharing 360 Videos on FB for 2024\""
-date: 2024-10-30T16:21:02.129Z
-updated: 2024-11-02T17:14:29.545Z
+date: 2024-11-07T17:00:38.745Z
+updated: 2024-11-11T03:25:36.388Z
 tags:
   - ai video
   - ai facebook
@@ -43,16 +43,10 @@ thumbnail: https://thmb.techidaily.com/1ddec9a0b5a6c3e1804c33a43db9c91ffd9d92f92
  So, now you may be thinking hard that how this feature is useful for Facebook users. Actually, Facebook has recently enabled its users to upload 360 videos directly to their pages, groups or profiles so that audience can stay engaged. This is really interesting.
 
 <!-- affiliate ads begin -->
-<span id="1531882">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to make a 360 Degree video on Facebook?
@@ -83,15 +77,22 @@ thumbnail: https://thmb.techidaily.com/1ddec9a0b5a6c3e1804c33a43db9c91ffd9d92f92
 
 ![Facebook 360 video upload](https://images.wondershare.com/filmora/article-images/facebook-360-video-upload.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Step 3: Now select the option “This video was recorded in 360° format”. It will help your app to generate automated control for 360 degree content.
 
 ![Facebook 360 Controls](https://images.wondershare.com/filmora/article-images/facebook-360-controls.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Step 4: Go to **360 Controls** tab and make settings for field or view as well as more initial camera orientations.
@@ -99,13 +100,6 @@ thumbnail: https://thmb.techidaily.com/1ddec9a0b5a6c3e1804c33a43db9c91ffd9d92f92
  Step 5: Finally click the **Publish** option.
 
  Note that Facebook 360 live platform allows maximum 30 minutes for a 360 degree video and the maxim supported file size goes up to 5GB only. So you can prepare your media file accordingly.
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Facebook 360 Video & Gear VR
 
@@ -130,10 +124,10 @@ thumbnail: https://thmb.techidaily.com/1ddec9a0b5a6c3e1804c33a43db9c91ffd9d92f92
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -151,16 +145,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-enhance-clarity-in-social-video-downloads-for-smartphonestablets/"><u>[New] 2024 Approved Enhance Clarity in Social Video Downloads for Smartphones/Tablets</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-horizontal-or-vertical-crafting-the-best-fb-video-posts/"><u>[New] 2024 Approved Horizontal or Vertical Crafting the Best FB Video Posts</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-unlock-the-potential-of-live-streaming-facebook-via-obs-devices/"><u>[New] 2024 Approved Unlock the Potential of Live Streaming Facebook via OBS Devices</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/levating-engagement-strategic-use-of-youtube-titles-for-2024/"><u>[New] Elevating Engagement Strategic Use of Youtube Titles for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-the-ultimate-guide-best-cams-for-professional-streaming/"><u>[Updated] In 2024, The Ultimate Guide Best Cams for Professional Streaming</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-remove-a-previously-synced-google-account-from-your-samsung-galaxy-m54-5g-by-drfone-android/"><u>How to Remove a Previously Synced Google Account from Your Samsung Galaxy M54 5G</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-the-art-of-facebook-video-coverage-standout-tips-and-tricks/"><u>In 2024, The Art of Facebook Video Coverage Standout Tips & Tricks</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/live-streaming-mastery-ultimate-guide-to-manycam-professional-webcam-software/"><u>Live Streaming Mastery: Ultimate Guide to ManyCam, Professional Webcam Software</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/monitor-trends-and-topics-effortlessly-creating-personalized-google-alerts-for-curiosity-satisfaction/"><u>Monitor Trends and Topics Effortlessly: Creating Personalized Google Alerts for Curiosity Satisfaction</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211066407-9789359043210-other-tongues-other-flesh/"><u>Other Tongues, Other Flesh | Free Book</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/play-store-not-working-on-nubia-red-magic-8s-proplus-8-solutions-inside-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Not Working On Nubia Red Magic 8S Pro+? 8 Solutions Inside | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-from-console-to-community-livestream-your-xbox/"><u>[New] 2024 Approved From Console to Community Livestream Your Xbox</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/oes-your-channel-benefit-from-regular-youtube-payments-for-2024/"><u>[New] Does Your Channel Benefit From Regular YouTube Payments for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-direct-interaction-enhancing-live-broadcasts-with-desktop-share/"><u>[New] In 2024, Direct Interaction Enhancing Live Broadcasts with Desktop Share</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-the-ultimate-list-of-top-tier-facebook-profile-picture-designers/"><u>[New] In 2024, The Ultimate List of Top-Tier Facebook Profile Picture Designers</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-prime-platforms-3d-models-in-animation-for-2024/"><u>[New] Prime Platforms 3D Models in Animation for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-smart-compilation-best-6-fb-lite-videos/"><u>[Updated] Smart Compilation Best 6 FB Lite Videos</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-transform-your-tech-skills-mastering-screen-capture-in-macos-for-2024/"><u>[Updated] Transform Your Tech Skills Mastering Screen Capture in macOS for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-vimeo-profits-unleashed-strategies-for-creative-entrepreneurs-for-2024/"><u>[Updated] Vimeo Profits Unleashed Strategies for Creative Entrepreneurs for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-ultra-high-definition-capture-ideal-apps-reviewed/"><u>2024 Approved Ultra-High Definition Capture Ideal Apps Reviewed</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-music-files-from-honor-x7b-by-fonelab-android-recover-music/"><u>How To Restore Missing Music Files from Honor X7b</u></a></li>
+<li><a href="https://android-frp.techidaily.com/the-updated-method-to-bypass-asus-rog-phone-7-frp-by-drfone-android/"><u>The Updated Method to Bypass Asus ROG Phone 7 FRP</u></a></li>
 </ul></div>
 

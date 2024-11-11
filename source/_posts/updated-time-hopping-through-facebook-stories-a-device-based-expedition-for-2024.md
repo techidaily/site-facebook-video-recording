@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Time-Hopping Through Facebook Stories  A Device-Based Expedition for 2024\""
-date: 2024-10-30T16:40:32.272Z
-updated: 2024-11-02T17:36:56.196Z
+date: 2024-11-09T19:47:08.338Z
+updated: 2024-11-11T01:56:05.236Z
 tags:
   - ai video
   - ai facebook
@@ -56,10 +56,10 @@ By clicking on the **More option**, you will see a few more options appear. Clic
 On the story archive option, you will see three dots on the top right option. It provides you with a choice to save stories or not. You can turn on the save archives option to save every story you post so that you can view it later.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How to View Stories on Facebook Desktop?
@@ -77,10 +77,10 @@ Once you click on the story archive, all your **old stories** will appear in seq
 **Note:** You can only view stories through the above process if you have turned on your story archive option. Click on settings to turn it on or off as per your choice.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: How to View A Friend’s Old Facebook Story?
@@ -102,16 +102,10 @@ People make a **series of highlights** and name them accordingly. If the story i
 **Note:** A person or a user has to click on the star highlight sign to save stories for the future. If they do not select the highlight option, stories will disappear after 24 hours, and there is no way to view them in the future. Hence, this option is only applicable when a user has saved their stories for public view.
 
 <!-- affiliate ads begin -->
-<span id="1424533">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
+  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: How to Save Posts from Your Stories Archive to Your Device?
@@ -129,6 +123,13 @@ After visiting the story archive, click on the story you wish to save. Click on 
 **Step 3: Save story**
 
 After you click three dots, you will see a save and delete photo option. Click on the **save option** to download it to your device.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 5: How to See Old Stories on a Facebook Business Page?
 
@@ -152,19 +153,6 @@ Facebook is an excellent platform to interact with your audience, and the story 
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1743243">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -180,20 +168,17 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-decoding-shrouded-comments-in-video-platforms/"><u>[New] Decoding Shrouded Comments in Video Platforms</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-embarking-on-the-online-world-starting-a-facebook-life/"><u>[New] In 2024, Embarking on the Online World Starting a Facebook Life</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-finessing-your-profiles-first-look/"><u>[New] In 2024, Finessing Your Profile's First Look</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-tips-for-restarting-disrupted-fb-live-videos-for-2024/"><u>[New] Tips for Restarting Disrupted FB Live Videos for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-wirecast-strategies-for-successful-social-media-livestreams/"><u>[Updated] In 2024, Wirecast Strategies for Successful Social Media Livestreams</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-optimal-audibility-techniques-to-enhance-recording-quality/"><u>[Updated] Optimal Audibility Techniques to Enhance Recording Quality</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-top-five-revolutionary-facebook-enhancements/"><u>[Updated] Top Five Revolutionary Facebook Enhancements</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-conquering-the-dilemma-how-to-send-videos-on-facebook-message/"><u>2024 Approved Conquering the Dilemma How to Send Videos on Facebook Message</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-engage-viewers-beyond-individual-watches/"><u>2024 Approved Engage Viewers Beyond Individual Watches</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-the-spectrum-of-sharing-navigating-video-distribution-on-fb/"><u>2024 Approved The Spectrum of Sharing Navigating Video Distribution on FB</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/comprehensive-guide-to-installing-and-configuring-the-beats-audio-suite/"><u>Comprehensive Guide to Installing and Configuring the Beats Audio Suite</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/easy-installation-guide-logitech-brio-webcam-software-for-various-windows-versions/"><u>Easy Installation Guide: Logitech BRIO Webcam Software for Various Windows Versions</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-reset-a-locked-vivo-y02t-phone-by-drfone-android/"><u>How to Reset a Locked Vivo Y02T Phone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-facebook-dating-for-your-samsung-galaxy-a14-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location On Facebook Dating for your Samsung Galaxy A14 5G | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/top-10-fixes-for-phone-keep-disconnecting-from-wi-fi-on-honor-play-7t-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 10 Fixes for Phone Keep Disconnecting from Wi-Fi On Honor Play 7T | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-fb-video-direction-whats-the-right-angle/"><u>[New] 2024 Approved FB Video Direction What's the Right Angle?</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-thriving-in-stardew-insiders-guide-to-ginger-island/"><u>[New] 2024 Approved Thriving in Stardew Insider's Guide to Ginger Island</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-enhance-your-social-media-experience-with-these-top-tools/"><u>[New] Enhance Your Social Media Experience with These Top Tools</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-demystifying-data-first-steps-in-facebook-insights/"><u>[New] In 2024, Demystifying Data First Steps in Facebook Insights</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-olympic-short-track-glory-the-pinnacle-of-2022-speed-skating/"><u>[New] In 2024, Olympic Short Track Glory The Pinnacle of 2022 Speed Skating</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-spectrum-mastery-in-depth-color-techniques/"><u>[Updated] 2024 Approved Spectrum Mastery In-Depth Color Techniques</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-fb-vids-effortless-mp4-extraction-at-your-fingertips/"><u>[Updated] FB Vids Effortless MP4 Extraction at Your Fingertips</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-mastering-instagram-highlights-comprehensive-photography-tips/"><u>2024 Approved Mastering Instagram Highlights Comprehensive Photography Tips</u></a></li>
+<li><a href="https://win-blog.techidaily.com/comprehensive-tips-to-prevent-and-repair-manor-lords-disruption-on-personal-computers/"><u>Comprehensive Tips to Prevent and Repair Manor Lords Disruption on Personal Computers</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-an-inclusive-easeus-recexperts-review/"><u>In 2024, An Inclusive EaseUS RecExperts Review</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/netflix-trouble-a-step-by-step-guide-to-restore-functionality-on-tvs-computers-and-more-devices/"><u>Netflix Trouble? A Step-by-Step Guide to Restore Functionality on TVs, Computers, and More Devices</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/snatch-facebook-videos-and-save-as-mp3s/"><u>Snatch Facebook Videos and Save as MP3s</u></a></li>
 </ul></div>
 

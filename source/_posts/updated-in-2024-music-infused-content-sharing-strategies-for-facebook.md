@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Music-Infused Content Sharing Strategies for Facebook\""
-date: 2024-10-30T17:24:03.536Z
-updated: 2024-11-02T18:54:11.258Z
+date: 2024-11-08T16:32:22.507Z
+updated: 2024-11-11T00:06:49.824Z
 tags:
   - ai video
   - ai facebook
@@ -59,10 +59,10 @@ Click done on the right corner to post the music story. Your story will be avail
 Note: Currently, you can add music stories on Facebook mobile app only. On a desktop, you can only create a photo story or text story.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How to Add Music to Facebook Photo/Video Story?
@@ -101,18 +101,24 @@ Drag video to timeline, hover the cursor over the audio and video file until a +
 
 ![edit FB music story  ](https://images.wondershare.com/filmora/article-images/add-facebook-story-video-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1982570">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 3: Edit the audio**
 
 Double click on the audio file within the panel given on the top of the Filmora screen. You will find a few options to edit audio, such as fade-in, fade-out, equalizer, volume, etc.
 
 ![edit FB music story  ](https://images.wondershare.com/filmora/article-images/edit-facebook-story-music-filmora.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  **Step 4: Export edited file**
 
@@ -127,10 +133,10 @@ _For more details about editing videos on Filmora, you can check [How to Edit Vi
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: How to Customize the Appearance of Your Facebook Story Song?
@@ -143,13 +149,6 @@ You can click on the play button after selecting the song, and it will appear in
 
 ![enable FB music story lyric  ](https://images.wondershare.com/filmora/article-images/enable-facebook-music-sticker-lyric-mode.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  **Step**  2: Change the color **and**   **add elements**
 
 Tap and hold the sticker; move your finger on the screen to place the sticker anywhere you like. You can also click on the rainbow-colored dot on the screen to change the background and lyrics color.
@@ -159,10 +158,10 @@ A user can also select elements from the given options. You can add a poll, emoj
 ![edit FB music story lyric  ](https://images.wondershare.com/filmora/article-images/edit-facebook-music-sticker-color-elements.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## FAQs About Adding Music to Facebook Story
@@ -174,6 +173,13 @@ Yes, you can add a story on Facebook from your computer. Click on create a story
 1. **Why don't I have music stickers on Facebook? And how to fix it?**
 
 There are a few ways to fix the music sticker issue if it is not popping up in your stories. One of the easiest ways to do it is to go to the Apple Store or Play Store and search for Facebook. If you see an update sign, click on it; updating the app might solve the issue. You can also delete and reinstall the app to tackle the problem.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Conclusion**
 
@@ -196,18 +202,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-innovative-online-services-for-crafting-perfect-facebook-covers/"><u>[New] 2024 Approved Innovative Online Services for Crafting Perfect Facebook Covers</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-master-your-media-free-fb-video-conversion-techniques/"><u>[New] 2024 Approved Master Your Media - Free FB Video Conversion Techniques</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-in-2024-crafting-the-spoken-word-writing-compelling-narratives/"><u>[New] In 2024, Crafting the Spoken Word Writing Compelling Narratives</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-is-it-time-to-air-fb-videos-on-traditional-screens-in-2024/"><u>[New] Is It Time to Air FB Videos on Traditional Screens, In 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-resolving-fb-message-app-video-not-sending-error-on-mobile-devices-for-2024/"><u>[New] Resolving FB Message App Video Not Sending Error on Mobile Devices for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-effective-method-for-personalizing-fb-page-coverage/"><u>[Updated] In 2024, Effective Method for Personalizing FB Page Coverage</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-navigating-through-social-streams-securing-your-status-videos/"><u>[Updated] Navigating Through Social Streams Securing Your Status Videos</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-streamlined-video-conferencing-utilizing-the-power-of-zoom-in-win10/"><u>[Updated] Streamlined Video Conferencing Utilizing the Power of Zoom in Win10</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-how-to-transform-faithful-chants-into-personalized-tones/"><u>In 2024, How to Transform Faithful Chants Into Personalized Tones</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-mastering-wirecast-for-facebook-live-broadcasts/"><u>In 2024, Mastering Wirecast for Facebook Live Broadcasts</u></a></li>
-<li><a href="https://iphone-location.techidaily.com/in-2024-why-does-itools-virtual-location-not-work-for-apple-iphone-xsipad-solved-drfone-by-drfone-virtual-ios/"><u>In 2024, Why Does iTools Virtual Location Not Work For Apple iPhone XS/iPad? Solved | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-honor-80-pro-straight-screen-edition-device-by-drfone-android/"><u>Mastering Android Device Manager The Ultimate Guide to Unlocking Your Honor 80 Pro Straight Screen Edition Device</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/record-gameplay-in-samsung-galaxy-phones/"><u>Record Gameplay in Samsung Galaxy Phones</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-10-effortless-tips-for-amplifying-video-engagement-on-facebook/"><u>[New] 2024 Approved 10 Effortless Tips for Amplifying Video Engagement on Facebook</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-the-roadmap-for-success-mastering-the-art-of-fb-reel-production/"><u>[New] 2024 Approved The Roadmap for Success Mastering the Art of FB Reel Production</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-accessing-the-archives-of-social-media-history-pc-and-mobile-guide/"><u>[New] Accessing the Archives of Social Media History PC & Mobile Guide</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-how-to-change-facebook-cover-photo/"><u>[New] How to Change Facebook Cover Photo</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-decoding-inverse-image-retrieval-for-social-networks-focusing-on-fb/"><u>[New] In 2024, Decoding Inverse Image Retrieval for Social Networks, Focusing on FB</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-leverage-linked-profiles-to-amplify-fb-stories/"><u>[New] Leverage Linked Profiles to Amplify FB Stories</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-professional-strategies-for-inshot-edits/"><u>[New] Professional Strategies for Inshot Edits</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-the-complete-breakdown-of-facebooks-changes-for-2024/"><u>[New] The Complete Breakdown of Facebook's Changes for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-facebook-cover-video-widthheight-recommendation/"><u>[Updated] 2024 Approved Facebook Cover Video Width/Height Recommendation</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-transform-your-social-media-image-best-tools-for-professional-fb-cover-photos/"><u>[Updated] 2024 Approved Transform Your Social Media Image Best Tools for Professional FB Cover Photos</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-full-assessment-samsungs-360-degree-capture-device/"><u>[Updated] Full Assessment Samsung's 360-Degree Capture Device</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-youtube-to-wav-file-4-best-free-convert-solutions/"><u>[Updated] In 2024, YouTube to WAV File 4 Best Free Convert Solutions</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-unified-brands-and-streaming-services-a-new-age-of-marketing-collaboration/"><u>[Updated] Unified Brands & Streaming Services A New Age of Marketing Collaboration</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-achieving-the-pinnacle-of-color-accuracy-in-11-crucial-edits/"><u>2024 Approved Achieving the Pinnacle of Color Accuracy in 11 Crucial Edits</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-transform-streams-into-premium-4k-videos-easily/"><u>2024 Approved Transform Streams Into Premium 4K Videos Easily</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/5-ways-to-track-asus-rog-phone-8-without-app-drfone-by-drfone-virtual-android/"><u>5 Ways to Track Asus ROG Phone 8 without App | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/best-poco-m6-pro-4g-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>Best Poco M6 Pro 4G Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-deleted-calendar-events-iphone-6-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Retrieve Deleted Calendar Events iPhone 6? | Stellar</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/1722961292388-immediate-access-to-lexar-usb-drives-secure-your-free-download-today/"><u>Immediate Access to Lexar USB Drives: Secure Your Free Download Today</u></a></li>
 </ul></div>
 

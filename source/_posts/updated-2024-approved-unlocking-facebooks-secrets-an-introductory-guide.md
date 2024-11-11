@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Unlocking Facebook's Secrets  An Introductory Guide\""
-date: 2024-10-29T16:02:07.344Z
-updated: 2024-11-02T16:28:46.414Z
+date: 2024-11-07T01:18:14.170Z
+updated: 2024-11-10T20:55:10.318Z
 tags:
   - ai video
   - ai facebook
@@ -47,20 +47,27 @@ thumbnail: https://thmb.techidaily.com/aef9f8cb7b85429cf28cb38f2d49cc0528e1c43a7
 
  By using Facebook Insights, you can learn how well your post is doing, which post has more engagement, know when your audience is checking the posts, page performance metrics and more.
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3: How to Use Facebook Insights for Beginners
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. Overview
 
  What is overview all about? The overview gives you a complete picture of your and your audience’s activities on your page for a week. The prime things that it covers are how many likes, comments, and shares your post received over a week, the number of people who viewed your content for one week, and the number of likes your page received. By understanding the measurement and performance of your page, you can check if any sort of pattern is developing, and then, delve deeper into the sections.
 
 ![insights overview](https://images.wondershare.com/filmora/article-images/insights-overview.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. Page Likes
 
@@ -71,13 +78,6 @@ thumbnail: https://thmb.techidaily.com/aef9f8cb7b85429cf28cb38f2d49cc0528e1c43a7
  Secondly, the **net likes**, which captures the total new likes on your page subtracted by the total dislikes.
 
  Finally, the **certain times** your page was liked but broken by where it took place. In order to build your brand, you need to keep a track of your page likes and make sure that you are targeting the right people and connecting with them by targeting posts through relevant content.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. Post Reach
 
@@ -92,21 +92,22 @@ thumbnail: https://thmb.techidaily.com/aef9f8cb7b85429cf28cb38f2d49cc0528e1c43a7
 ![insights post reach](https://images.wondershare.com/filmora/article-images/insights-post-reach.JPG)
 
 <!-- affiliate ads begin -->
-<span id="1975658">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. Post Promotion
 
  Promoting your post to your target audiences beyond your Facebook page’s fans can boost your post. You can even create an advertisement out of your post and include a call to action button on the page. By clicking on the Boost a Post, the Insights gives you the list of your high performing posts as well as the recommended posts with more user engagement. These posts can be promoted as per your choice. Your target audience, duration, and the budget of the promotion can be specified as per your choice.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 5\. Video Analytics
 
@@ -133,10 +134,10 @@ thumbnail: https://thmb.techidaily.com/aef9f8cb7b85429cf28cb38f2d49cc0528e1c43a7
 ![insights people analytics](https://images.wondershare.com/filmora/article-images/insights-people-analytics.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -144,13 +145,6 @@ thumbnail: https://thmb.techidaily.com/aef9f8cb7b85429cf28cb38f2d49cc0528e1c43a7
  Measuring the success of your Facebook page and posts is now easy with Facebook Insights. Keep a track of your posts and preferences of your audiences and run the campaigns successfully. Follow the above points to use the Facebook Insights without any confusion.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -169,24 +163,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/asterclass-top-10-makeup-artists-shaping-online-beauty-trends-for-2024/"><u>[New] Masterclass Top 10 Makeup Artists Shaping Online Beauty Trends for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-from-small-screens-to-big-screen-success-fb-video-guide-2023-for-2024/"><u>[Updated] From Small Screens to Big Screen Success FB Video Guide 2023 for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-unmatched-video-downloads-top-8/"><u>[Updated] In 2024, Unmatched Video Downloads Top 8</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-secrets-unlocked-becoming-a-leader-in-online-social-media-live-events-for-2024/"><u>[Updated] Secrets Unlocked Becoming a Leader in Online Social Media Live Events for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-transform-your-memories-into-engaging-facebook-slides-for-2024/"><u>[Updated] Transform Your Memories Into Engaging Facebook Slides for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/2024-approved-the-mechanism-behind-imovie-trim/"><u>2024 Approved The Mechanism Behind iMovie Trim</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-unlocking-the-power-of-shareable-internet-humor/"><u>2024 Approved Unlocking the Power of Shareable Internet Humor</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-unraveling-facebooks-latest-hits-a-rundown-of-top-vids/"><u>2024 Approved Unraveling Facebook's Latest Hits A Rundown of Top Vids</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/como-cambiar-tus-videos-flv-a-m4a-sin-coste-alguno-en-internet-usando-movavi/"><u>Cómo Cambiar Tus Videos FLV a M4A Sin Coste Alguno en Internet Usando Movavi</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/effortless-online-conversion-of-mp4-audios-to-m4r-format-at-no-cost-trust-movavi-for-precision/"><u>Effortless Online Conversion of MP4 Audios to M4R Format at No Cost – Trust Movavi for Precision</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/fb-content-takedown-what-are-your-rights-and-recourse-in-2024/"><u>FB Content Takedown What Are Your Rights and Recourse, In 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-play-hevc-h-265-video-on-xiaomi-redmi-12-5g-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>How to play HEVC H.265 video on Xiaomi Redmi 12 5G?</u></a></li>
-<li><a href="https://some-tips.techidaily.com/in-2024-photoshop-techniques-for-dynamic-realistic-text/"><u>In 2024, Photoshop Techniques for Dynamic, Realistic Text</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-streaming-snapshots-for-facebook-2023/"><u>In 2024, Streaming Snapshots for Facebook, 2023</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/instant-reachers-handbook-livestreaming-on-facebook-via-smartphones/"><u>Instant Reachers' Handbook Livestreaming on Facebook via Smartphones</u></a></li>
-<li><a href="https://review-topics.techidaily.com/open-and-repair-doesnt-work-in-ms-excel-stellar-by-stellar-guide/"><u>Open and Repair Doesnt Work in MS Excel | Stellar</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/social-network-stardom-top-10-music-video-countdown/"><u>Social Network Stardom Top 10 Music Video Countdown</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/the-video-vroom-guide-rotating-images-to-gain-insta-momentum-for-2024/"><u>The Video Vroom Guide Rotating Images to Gain Insta Momentum for 2024</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/xbox-one-elite-series-2-controller-showdown-why-this-controller-is-king-among-gaming-peripherals/"><u>Xbox One Elite Series 2 Controller Showdown: Why This Controller Is King Among Gaming Peripherals</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-pursuit-of-riches-terrarias-quintessential-map-rankings/"><u>[Updated] Pursuit of Riches Terraria’s Quintessential Map Rankings</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-adding-media-instagrams-guide/"><u>2024 Approved Adding Media Instagram's Guide</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/a-blueprint-for-success-three-core-writing-principles-for-compelling-fb-ad-content/"><u>A Blueprint for Success Three Core Writing Principles for Compelling FB Ad Content</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/deciding-the-right-direction-fb-video-posts/"><u>Deciding the Right Direction FB Video Posts</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/discover-the-leading-ergonomic-mouse-picks-for-2ebeck23-2024-by-zdnet-your-ultimate-guide/"><u>Discover the Leading Ergonomic Mouse Picks for 2Ebeck23 2024 by ZDNET: Your Ultimate Guide</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-facebook-video-integration-for-pc-and-android-users-explained/"><u>In 2024, Facebook Video Integration for PC & Android Users Explained</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-discover-new-favorites-top-10-free-game-download-sites-for-pc-android-and-more/"><u>New In 2024, Discover New Favorites Top 10 Free Game Download Sites for PC, Android, and More</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-ways-for-a-boom-in-youtube-viewership-top-12-methods-for-2024/"><u>Proven Ways for a Boom in YouTube Viewership (Top 12 Methods) for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/reimagining-your-tiktok-presence-step-by-step-renaming-process/"><u>Reimagining Your TikTok Presence Step-by-Step Renaming Process</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/share-smiles-and-photos-iphones/"><u>Share Smiles & Photos (iPhones)</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/windows-stellar-disk-cleaner-pro-automatic-and-easy-file-deletion/"><u>Windows Stellar Disk Cleaner Pro - Automatic & Easy File Deletion</u></a></li>
 </ul></div>
 
