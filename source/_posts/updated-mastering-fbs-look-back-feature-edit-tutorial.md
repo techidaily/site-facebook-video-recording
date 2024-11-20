@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Mastering FB's Look Back Feature  Edit Tutorial\""
-date: 2024-11-06T00:26:01.265Z
-updated: 2024-11-11T04:52:02.336Z
+date: 2024-11-12T21:30:52.581Z
+updated: 2024-11-19T17:07:13.120Z
 tags:
   - ai video
   - ai facebook
@@ -49,10 +49,16 @@ thumbnail: https://thmb.techidaily.com/ab11097b735383eb1301c6c7953b6d3e90027241d
 * Burn Look Back video to a DVD as a special gift.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424529">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Easily Edit Facebook Look Back Video with Filmora
@@ -64,10 +70,10 @@ thumbnail: https://thmb.techidaily.com/ab11097b735383eb1301c6c7953b6d3e90027241d
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/video-editor-interface.jpg "edit look back video")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 2. Add texts to the Look Back video
@@ -75,13 +81,6 @@ thumbnail: https://thmb.techidaily.com/ab11097b735383eb1301c6c7953b6d3e90027241d
  To share the unforgettable moments in Look Back video, adding texts is a good idea. To do this, switch to Text tab and you'll see various texts templates on the left panel. Choose your favorite one and place it on the Timeline. Then the text thumbnail with a leading letter "T" will appear on the timeline. Double click it to type your texts in the box and select the font, color, animation, etc. Hit "Return" to confirm the settings and go back to the primary window.
 
 ![edit look back video](https://images.wondershare.com/topic/video-editing/add-titles.jpg "edit look back video")
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### 3. Edit the audio of Look Back video
 
@@ -97,13 +96,26 @@ thumbnail: https://thmb.techidaily.com/ab11097b735383eb1301c6c7953b6d3e90027241d
 
 ![add ](https://images.wondershare.com/images/multimedia/video-editor/tilt-shift-1.jpg "add ")
 
+<!-- affiliate ads begin -->
+<span id="1976998">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 5. Save or share the edited Look Back video
@@ -134,21 +146,18 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-engage-listeners-with-well-crafted-podcast-summaries-for-2024/"><u>[New] Engage Listeners with Well-Crafted Podcast Summaries for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-how-to-create-square-videos-to-gain-more-likes-on-facebook/"><u>[New] How to Create Square Videos to Gain More Likes on Facebook</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-unlocking-rokus-potential-with-facebook-live-streaming/"><u>[New] In 2024, Unlocking Roku's Potential with Facebook Live Streaming</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-facebooks-new-era-breaking-down-2023s-sneak-peek-into-short-video-trends/"><u>[Updated] 2024 Approved Facebook's New Era Breaking Down 2023'S Sneak Peek Into Short Video Trends</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-elevate-your-profile-picture-game-with-these-high-end-online-services/"><u>2024 Approved Elevate Your Profile Picture Game with These High-End Online Services</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/7-ways-to-locate-elusive-gpeditmsc-on-pc/"><u>7 Ways to Locate Elusive 'Gpedit.msc' On PC</u></a></li>
-<li><a href="https://driver-download.techidaily.com/1722972784260-get-your-hands-on-the-latest-qualcomm-atheros-ar3011-bluetooth-v3-driver-now/"><u>Get Your Hands on the Latest Qualcomm Atheros AR3011 Bluetooth V3 Driver Now</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-11-secrets-to-increasing-your-facebook-video-reach/"><u>In 2024, 11 Secrets to Increasing Your Facebook Video Reach</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-change-location-on-yik-yak-for-your-motorola-moto-g24-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>In 2024, Change Location on Yik Yak For your Motorola Moto G24 to Enjoy More Fun | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-digital-stream-capturers-2023-edition/"><u>In 2024, Digital Stream Capturers, 2023 Edition</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-enhancing-spotify-sound-speed-with-secure-approaches/"><u>In 2024, Enhancing Spotify Sound Speed with Secure Approaches</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-unlocking-top-five-transformative-facebook-traits/"><u>In 2024, Unlocking Top Five Transformative Facebook Traits</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/locked-out-of-iphone-x-5-ways-to-get-into-a-locked-iphone-x-drfone-by-drfone-ios/"><u>Locked Out of iPhone X? 5 Ways to get into a Locked iPhone X | Dr.fone</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/resetting-run-history-loss-issue/"><u>Resetting Run History Loss Issue</u></a></li>
-<li><a href="https://games-able.techidaily.com/the-ultimate-tv-and-monitor-expo-ifa-2023/"><u>The Ultimate TV & Monitor Expo: IFA 2023</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/ultimate-guide-from-tecno-pova-5-pro-frp-bypass-by-drfone-android/"><u>Ultimate Guide from Tecno Pova 5 Pro FRP Bypass</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-group-gallery-video-extractor/"><u>[New] 2024 Approved Group Gallery Video Extractor</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-musics-big-screen-facebooks-top-ten-vids/"><u>[Updated] 2024 Approved Music's Big Screen Facebook's Top Ten Vids</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-creating-engaging-facebook-covers-best-practices-unveiled-for-2024/"><u>[Updated] Creating Engaging Facebook Covers Best Practices Unveiled for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-secrets-to-exposing-videos-in-the-news-feed/"><u>[Updated] Secrets to Exposing Videos in the News Feed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/echo-dot-gen-4-review-fresh-features-and-stylish-revamp/"><u>Echo Dot (Gen 4) Review: Fresh Features and Stylish Revamp</u></a></li>
+<li><a href="https://win11.techidaily.com/efficient-management-using-mspcm-toolbar-in-w11-os/"><u>Efficient Management Using MSPCM Toolbar in W11 OS</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/free-techniques-for-ethically-tracing-cellular-contact-information/"><u>Free Techniques for Ethically Tracing Cellular Contact Information</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/from-coding-basics-to-advanced-integration-utilizing-gpt-3-in-python-for-ai-development/"><u>From Coding Basics to Advanced Integration: Utilizing GPT-3 in Python for AI Development</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/galaxy-s8-review-bringing-movies-to-life-with-4k/"><u>Galaxy S8 Review - Bringing Movies to Life with 4K</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/how-to-enhancing-your-experience-with-facebooks-lived-in-content-for-2024/"><u>How-To Enhancing Your Experience with Facebook's Lived-In Content for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/professional-insights-on-the-premier-ipads-of-2e-comprehensive-testing-and-reviews/"><u>Professional Insights on the Premier iPads of 2E: Comprehensive Testing and Reviews</u></a></li>
+<li><a href="https://fox-that.techidaily.com/1721461235326-struggling-with-iphone-display-lags-before-sleeping-quick-solutions-inside/"><u>Struggling with iPhone Display Lags Before Sleeping? Quick Solutions Inside</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-if-your-realme-gt-neo-5-auto-does-not-work-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do if Your Realme GT Neo 5 Auto Does Not Work | Dr.fone</u></a></li>
 </ul></div>
 

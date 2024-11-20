@@ -1,7 +1,7 @@
 ---
 title: How to Fix Phasmophobia VR Not Working
-date: 2024-11-01T18:23:22.060Z
-updated: 2024-11-02T17:03:58.474Z
+date: 2024-11-18T00:51:45.643Z
+updated: 2024-11-19T20:35:52.639Z
 tags:
   - win11
   - win10
@@ -44,13 +44,6 @@ thumbnail: https://thmb.techidaily.com/4d92bee2eba99f34da43a3826fc4e46ce3e4a6c22
 
  Once applying the changes, you can relaunch Zoom and see if the camera is able to work correctly. If not, check out the next fix below.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Fix 2 – Close other programs that use the camera
 
  When other programs are utilizing your camera, Zoom may lose control of your camera and therefore cannot start a video. To make sure there’s no interference with your webcam, try closing unncessary programs especially those telecommunication apps like Skype, WhatsApp, Discord or Microsoft Teams.
@@ -58,15 +51,30 @@ thumbnail: https://thmb.techidaily.com/4d92bee2eba99f34da43a3826fc4e46ce3e4a6c22
 1. Right-click the empty space on your taskbar and click**Task Manager** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/10/1-1-10.jpg)
 2. Right-click the application you want to shut down and click**End task** .  
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/2-2-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
+  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Restart Zoom and test. If the error reoccurs, continue to the next solution.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Fix 3 – Adjust the Zoom settings
@@ -78,21 +86,7 @@ thumbnail: https://thmb.techidaily.com/4d92bee2eba99f34da43a3826fc4e46ce3e4a6c22
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/2-6.jpg)
 3. Select the**Video** tab. Then choose the correct camera from the drop-down menu.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Check if the Zoom video issue is solved now. If not, there are two more fixes to try.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 4 – Update your camera driver
 
@@ -108,6 +102,13 @@ thumbnail: https://thmb.techidaily.com/4d92bee2eba99f34da43a3826fc4e46ce3e4a6c22
 2. Run Driver Easy and click**Scan Now** . Driver Easy will then scan your computer and detect any problem drivers.  
 ![](https://images.drivereasy.com/wp-content/uploads/2021/04/de-borderless.jpg)
 3. Click the**Update** button next to the flagged webcam driver to automatically download the correct version of this driver, then you can manually install it (you can do this with the**FREE version** ).  
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094428/7443" target="_top" id="2094428">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094428" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094428/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Or click**Update All** to automatically download and install the correct version of all the drivers that are missing or out of date on your system (this requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you‘ll be prompted to upgrade when you click**Update All** ).  
 ![](https://images.drivereasy.com/wp-content/uploads/2021/04/update-webcam-driver-driver-easy.jpg)
@@ -125,15 +126,15 @@ thumbnail: https://thmb.techidaily.com/4d92bee2eba99f34da43a3826fc4e46ce3e4a6c22
 ![](https://images.drivereasy.com/wp-content/uploads/2021/02/6-1.jpg)
 2. Scroll to locate Zoom. Right-click it and click**Uninstall** .  
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2021/02/6-2.jpg)
 3. After the app is completely uninstalled, you can go to **[Zoom’s official website](https://zoom.us/download)**  and download the latest client.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 See if the newly installed restore its camera functionality.
 
@@ -159,18 +160,20 @@ See if the newly installed restore its camera functionality.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-clandestine-fb-live-observer/"><u>[New] 2024 Approved Clandestine FB Live Observer</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-pioneering-the-path-transitioning-xbox-sessions-to-fb-for-2024/"><u>[New] Pioneering the Path Transitioning Xbox Sessions to FB for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-seamless-integration-of-fb-and-whatsapp-for-video-sharing/"><u>[Updated] 2024 Approved Seamless Integration of FB & WhatsApp for Video Sharing</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/updated-chasing-the-crash-action-cameras-reviewed/"><u>[Updated] Chasing the Crash Action Cameras Reviewed</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-daily-vlogging-ideas-what-to-talk-about-while-vlogging-in-2024/"><u>[Updated] Daily Vlogging Ideas What to Talk About While Vlogging, In 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-delving-into-color-modification-through-lut-techniques/"><u>[Updated] In 2024, Delving Into Color Modification Through LUT Techniques</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-premium-fb-videograbber-tools-secure-fast-file-grab-for-2024/"><u>[Updated] Premium FB Videograbber Tools Secure, Fast File Grab for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-the-modern-broadcasters-guide-to-iphone-and-android-streaming/"><u>[Updated] The Modern Broadcaster's Guide to iPhone and Android Streaming</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/decoding-value-expert-insight-into-pruveeos-high-res-fhd-dashcam-model-f5/"><u>Decoding Value: Expert Insight Into Pruveeo's High-Res FHD Dashcam Model F5</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-firefoxs-finest-leading-video-downloads-and-addons-for-facebook/"><u>In 2024, Firefox's Finest Leading Video Downloads & Addons for Facebook</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-frp-hijacker-by-hagard-download-and-bypass-your-motorola-moto-g14-frp-locks-by-drfone-android/"><u>In 2024, FRP Hijacker by Hagard Download and Bypass your Motorola Moto G14 FRP Locks</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-solved-move-from-samsung-galaxy-f04-to-ios-not-working-problems-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Solved Move from Samsung Galaxy F04 to iOS not Working Problems | Dr.fone</u></a></li>
-<li><a href="https://techtrends.techidaily.com/unveiling-the-samsung-galaxy-watch-7-insights-on-costs-launch-timeline-and-features/"><u>Unveiling the Samsung Galaxy Watch 7: Insights on Costs, Launch Timeline & Features</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-clickbait-crafting-secrets-to-facebooks-favorites/"><u>[New] 2024 Approved Clickbait Crafting Secrets to Facebook's Favorites</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-step-by-step-guide-to-perfecting-videos-in-youtube-studio/"><u>[New] Step-by-Step Guide to Perfecting Videos in YouTube Studio</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2023-streamline-facebook-vids-to-smooth-mp3-for-2024/"><u>[Updated] 2023 Streamline Facebook Vids to Smooth MP3 for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-fb-vids-to-mp4-downloader-efficient-and-effective/"><u>[Updated] 2024 Approved FB Vids to MP4 Downloader – Efficient & Effective</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-tips-for-posting-wide-angle-photos-to-facebook-from-smartphones/"><u>[Updated] 2024 Approved Tips for Posting Wide Angle Photos to Facebook From Smartphones</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-innovative-advertising-on-fb-unlocking-your-brands-potential-for-2024/"><u>[Updated] Innovative Advertising on FB Unlocking Your Brand's Potential for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-techniques-for-live-broadcasting-recorded-videographies-on-fb/"><u>[Updated] Techniques for Live Broadcasting Recorded Videographies on FB</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-vivo-s17t-by-drfone-android/"><u>Complete Review & Guide to Techeligible FRP Bypass and More For Vivo S17t</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/effortless-upgrades-download-the-latest-pioneer-dj-ddj-sx2-controller-software/"><u>Effortless Upgrades: Download the Latest Pioneer DJ DDJ-SX2 Controller Software</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/enhance-your-broadcasts-using-manycams-advanced-webcam-solutions-and-features/"><u>Enhance Your Broadcasts Using ManyCam's Advanced Webcam Solutions and Features</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/free-and-easy-top-8-fb-link-exporters-for-23-online/"><u>Free and Easy Top 8 FB Link Exporters for '23 Online</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-restore-keyboard-illumination-on-windows-and-macos-computers/"><u>How to Restore Keyboard Illumination on Windows and macOS Computers</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/no-sign-of-life-on-your-laptop-screen/"><u>No Sign of Life on Your Laptop Screen?</u></a></li>
+<li><a href="https://common-error.techidaily.com/1723210989175-resolve-your-valorant-startup-hang-up-steps-to-end-infinite-loading/"><u>Resolve Your Valorant Startup Hang-Up: Steps to End Infinite Loading</u></a></li>
+<li><a href="https://win-forum.techidaily.com/the-quintessential-social-networking-giants-unpacking-facebook-twitter-instagram-and-youtube/"><u>The Quintessential Social Networking Giants: Unpacking Facebook, Twitter, Instagram & Youtube</u></a></li>
 </ul></div>
 

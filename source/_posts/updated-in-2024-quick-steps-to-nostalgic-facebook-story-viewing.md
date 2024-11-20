@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Quick Steps to Nostalgic Facebook Story Viewing"
-date: 2024-11-08T00:32:52.530Z
-updated: 2024-11-11T00:48:31.923Z
+date: 2024-11-16T03:34:10.010Z
+updated: 2024-11-19T21:41:44.226Z
 tags:
   - ai video
   - ai facebook
@@ -53,13 +53,6 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 
 ![facebook old stories more](https://images.wondershare.com/filmora/article-images/2021/facebook-old-stories-more.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3:** Now just tap on the “Story Archive” option from the list.
 
 ![facebook story archive](https://images.wondershare.com/filmora/article-images/2021/facebook-story-archive.jpg)
@@ -67,13 +60,6 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 **Step 4:** After this, you would be shown all the stories sequentially in the Story Archives section.
 
 Thus how to view old stories on Facebook desktop is very easy with above above-mentioned easy steps.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: How to Watch Old Stories on Facebook on your Mobile?
 
@@ -95,13 +81,6 @@ You can find and see the old stories on Facebook with the help of the archived s
 
 We assure you that with the above effective and easy steps your doubt of how to see old stories on Facebook would be solved.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 4: Can you See Friends' Old Stories on Facebook?
 
 If you are looking to see old Facebook stories shared by your friend then let me tell you that it is very difficult to do that. Your friend only would be able to see the old shared stories on Facebook by turning the archive option on.
@@ -110,9 +89,29 @@ The only chance is that if your friend has uploaded those stories on highlights 
 
 ![see friends old fb story](https://images.wondershare.com/filmora/article-images/2021/see-friends-old-fb-story.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 An old highlighted story shared by your friend would appear on your friend’s profile below the Friends section and above create post option as Story Highlights.
 
 So for the above discussed all ways the only must thing is to setting archive on which would allow you to re-watch stories again and solve your doubt of how to view old stories on Facebook.
+
+<!-- affiliate ads begin -->
+<span id="2127886">
+					<video width="576" height="1024" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 5: How to Create Facebook Videos with Ease?
 
@@ -121,6 +120,13 @@ If you think that to create amazing videos for Facebook, you need to be a profes
 To attract more audience and gain more likes, comments all you need is a smart [video editor](https://tools.techidaily.com/wondershare/filmora/download/) like a Wondershare Filmora. It is one of the most effective video editing tools that help you edit your elements quickly and easily upload over Facebook.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Features:**
 
@@ -148,6 +154,13 @@ You can crop, trim, cut, split, and merge your video in a few clicks in Wondersh
 
 Also, you can add various text effects and add Lower 3rds and subtitles. It has nearly 300 filters, overlays, and elements embedded in Filmora that you can use for your Facebook video and make it look amazing.
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Export and Share
 
 Once you are done with the video editing you need to do is to export and publish it on Facebook. You need to click on Export and you would get few saving options. You can save it to your smartphone or in .mp4 format and upload it to Facebook later. Wondershare Filmora let you share your video to platforms such YouTube, Vimeo, or burn it to the DVD collection.
@@ -164,19 +177,6 @@ Happy editing!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1265663">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -192,20 +192,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-securing-your-facebook-memories-top-5-downloading-methods-for-2024/"><u>[New] Securing Your Facebook Memories Top 5 Downloading Methods for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-remedy-non-playing-youtube-tweet-clips/"><u>[Updated] In 2024, Remedy Non-Playing YouTube Tweet Clips</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-smart-mp4-transformer-for-immediate-fb-embedding/"><u>[Updated] In 2024, Smart MP4 Transformer for Immediate FB Embedding</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-restoring-full-volume-on-hindered-facebook-videos/"><u>2024 Approved Restoring Full Volume on Hindered Facebook Videos</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/efficiently-change-your-facebook-videos-into-mp3-songs-for-2024/"><u>Efficiently Change Your Facebook Videos Into MP3 Songs for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/expert-tips-for-broadcasting-on-tiktok-via-computer/"><u>Expert Tips for Broadcasting on TikTok Via Computer</u></a></li>
-<li><a href="https://apple-account.techidaily.com/guide-on-how-to-remove-apple-id-from-iphone-11-pro-by-drfone-ios/"><u>Guide on How To Remove Apple ID From iPhone 11 Pro</u></a></li>
-<li><a href="https://fox-making.techidaily.com/how-to-ensure-notes-are-consistently-synced-across-iphone-and-ipad-for-users-of-ios-18/"><u>How to Ensure Notes Are Consistently Synced Across iPhone and iPad for Users of iOS 18</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-remove-icloud-on-iphone-13-pro-smoothly-by-drfone-ios/"><u>How To Remove iCloud On iPhone 13 Pro Smoothly</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/in-2024-essential-simple-shelter-strategies-in-mc/"><u>In 2024, Essential Simple Shelter Strategies in MC</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-cards-of-vivo-x-flip-without-puk-codes-by-drfone-android/"><u>In 2024, How To Unlock SIM Cards Of Vivo X Flip Without PUK Codes</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-pioneering-sustainability-transforming-metropolitan-environments/"><u>In 2024, Pioneering Sustainability Transforming Metropolitan Environments</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-how-the-eufy-t8200-delivers-high-quality-calls-without-monthly-fees/"><u>In-Depth Analysis: How the Eufy T8200 Delivers High-Quality Calls Without Monthly Fees</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/mastering-video-presentation-utilizing-lc-and-bb-techniques-on-facebook/"><u>Mastering Video Presentation Utilizing LC and BB Techniques on Facebook</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/turn-a-blank-slate-on-fb-videos-for-2024/"><u>Turn a Blank Slate on FB Videos for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-discover-the-safest-video-call-options-for-your-smartphone-or-tablet/"><u>[New] 2024 Approved Discover the Safest Video Call Options for Your Smartphone or Tablet</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-demystifying-absence-no-recommended-video-content-on-facebook-for-2024/"><u>[New] Demystifying Absence No Recommended Video Content on Facebook for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-copyright-concern-unscheduled-video-displacement/"><u>[New] In 2024, Copyright Concern Unscheduled Video Displacement</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-jailbreak-joy-top-funny-faces-at-the-social-networks-limits/"><u>[New] Jailbreak Joy - Top Funny Faces at the Social Network’s Limits</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-effortless-facebook-video-streaming-with-fire-browser-plugins-firefox-edition-2023-for-2024/"><u>[Updated] Effortless Facebook Video Streaming with Fire-Browser Plugins, Firefox Edition 2023 for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-from-your-vantage-point-to-the-worlds-sharing-immersive-photos-online/"><u>[Updated] From Your Vantage Point to the World's Sharing Immersive Photos Online</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-unlocking-bandicams-potential-for-efficient-video-capture/"><u>2024 Approved Unlocking Bandicam's Potential for Efficient Video Capture</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-move-contacts-from-poco-c55-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Move Contacts From Poco C55 to iPhone (13/14/15) | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-discover-the-lesser-known-page-picks-for-memelings/"><u>In 2024, Discover the Lesser-Known Page Picks for Memelings</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-top-25-secrets-for-effective-win10-use/"><u>In 2024, Top 25 Secrets for Effective Win10 Use</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/premiere-video-tools-for-iphone/"><u>Premiere Video Tools for iPhone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/step-by-step-guide-how-to-printer-documents-from-your-kindle-fire-device/"><u>Step-by-Step Guide: How to Printer Documents From Your Kindle Fire Device</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/zooming-mastery-made-easy-top-5-tools-for-game-immersion/"><u>Zooming Mastery Made Easy Top 5 Tools for Game Immersion</u></a></li>
+<li><a href="https://fox-ssl.techidaily.com/sataka-itajara-mahaparavashaka-ka-le-anakalna/"><u>सटीक इंतजार: महाप्रवेशकों के लिए अनुकूलन</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Cut Out Facebook Stories  Step-By-Step for PC & Phones\""
-date: 2024-11-05T00:05:21.924Z
-updated: 2024-11-10T17:36:36.054Z
+date: 2024-11-14T22:16:09.071Z
+updated: 2024-11-19T17:52:40.118Z
 tags:
   - ai video
   - ai facebook
@@ -63,10 +63,10 @@ Let's begin with the mobile Facebook application:
 **Step 4:** Finally, click on the Delete option again, and you are done. This Facebook story is removed.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How to Delete A Story from Facebook Story Archive?
@@ -79,13 +79,6 @@ If it is already enabled, follow these steps to delete the archived Facebook sto
 
 ![delete Facebook Story from desktop](https://images.wondershare.com/filmora/article-images/facebook-story-archive.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 2**: Now, select the Story Archive option that you see on the top. This will show all the archived stories. Next, choose a story that you want to remove permanently. The story will appear. Click on the three dots, and then click on the delete option.
 
 ![delete Facebook Story from archive](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-archive.jpg)
@@ -93,16 +86,10 @@ If it is already enabled, follow these steps to delete the archived Facebook sto
 This is how you will remove the stories from Facebook archived.
 
 <!-- affiliate ads begin -->
-<span id="1444782">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: How to Delete My Story on Facebook Messenger on iPhone, iPad, And Android?
@@ -117,6 +104,13 @@ Facebook stories don't only appear on your Facebook home page; they also appear 
 
 ![delete Facebook Story from messager](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-messager.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
+  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4: How to Control Who Can View Your Facebook Stories?
 
 You can make your stories visible to your friends, customize the viewers, or keep them public. Facebook allows you to control how and with whom you want to share your stories with.
@@ -125,22 +119,15 @@ You can make your stories visible to your friends, customize the viewers, or kee
 
 ![  Facebook Story privacy option](https://images.wondershare.com/filmora/article-images/facebook-story-privacy-option.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 2:** Now, the privacy setting page will let you choose from- public, friends, and custom. You can hide your story from a few people as well. Choose the one that meets your requirement. Then, go back and share the story.
 
 ![  Facebook Story privacy  ](https://images.wondershare.com/filmora/article-images/facebook-story-privacy.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 5: How to Hide Facebook Story from Specific People?
@@ -167,6 +154,13 @@ Facebook stories are a great way to let people know what you are up to. It's sho
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -182,22 +176,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-2024-approved-hues-in-action-implementing-color-schemes-properly/"><u>[New] 2024 Approved Hues in Action Implementing Color Schemes Properly</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-unveiling-fb-instream-ad-strategies-from-configuration-to-evaluation/"><u>[New] 2024 Approved Unveiling FB Instream Ad Strategies From Configuration to Evaluation</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-enable-facebook-viewing-for-appletv-users/"><u>[New] Enable Facebook Viewing for AppleTV Users</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-top-3-hd-film-scrapers-on-fb/"><u>[Updated] 2024 Approved Top 3 HD Film Scrapers on Fb</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-undetected-consumer-of-life-streams-fb/"><u>[Updated] 2024 Approved Undetected Consumer of Life Streams (FB)</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-compile-the-best-6-leading-apps-for-fb-lite-video-downloads/"><u>[Updated] Compile the Best 6 Leading Apps for FB Lite Video Downloads</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-duets-of-destiny-song-suggestions-for-the-big-ask-for-2024/"><u>[Updated] Duets of Destiny Song Suggestions for the Big Ask for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-enhance-your-iphone-footage-from-speed-to-extended-muted-visuals/"><u>[Updated] Enhance Your iPhone Footage From Speed to Extended, Muted Visuals</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-tips-to-rank-facebook-page-better/"><u>[Updated] Tips to Rank Facebook Page Better</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-comprehensive-guide-to-oculus-rift-setup/"><u>2024 Approved Comprehensive Guide to Oculus Rift Setup</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-design-dynamics-the-role-of-color-integration/"><u>2024 Approved Design Dynamics The Role of Color Integration</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/cut-to-the-chase-top-5-chrome-plugins-for-snagging-facebook-videos-fast/"><u>Cut to the Chase Top 5 Chrome Plugins for Snagging Facebook Videos Fast</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/fb-video-extraction-creating-mp3s-in-minutes-for-2024/"><u>FB Video Extraction Creating MP3s in Minutes for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-gps-location-on-apple-iphone-12-pro-max-easily-and-safely-drfone-by-drfone-virtual-ios/"><u>How to Change GPS Location on Apple iPhone 12 Pro Max Easily & Safely | Dr.fone</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-quick-aspect-alteration-for-web-design/"><u>In 2024, Quick Aspect Alteration for Web Design</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/insiders-look-at-streaming-content-on-social-media-platforms/"><u>Insider's Look at Streaming Content on Social Media Platforms</u></a></li>
-<li><a href="https://discover-bits.techidaily.com/step-by-step-guide-mastering-data-recovery-with-windows-server-2012-wbadmin/"><u>Step-by-Step Guide: Mastering Data Recovery with Windows Server 2012 WBAdmin</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-maximizing-visibility-post-facebook-update/"><u>[New] 2024 Approved Maximizing Visibility Post-Facebook Update</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-unveiling-30-proven-facebook-tricks-to-skyrocket-your-brand/"><u>[New] 2024 Approved Unveiling 30 Proven Facebook Tricks to Skyrocket Your Brand</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-from-lurkers-to-leaders-elevate-your-facebook-game/"><u>[New] In 2024, From Lurkers to Leaders Elevate Your Facebook Game</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-navigating-video-uploads-and-enhancements-in-instagram/"><u>[New] Navigating Video Uploads and Enhancements in Instagram</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-demystifying-absence-no-recommended-video-content-on-facebook/"><u>[Updated] In 2024, Demystifying Absence No Recommended Video Content on Facebook</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-game-changing-capture-technology-for-switch/"><u>[Updated] In 2024, Game-Changing Capture Technology for Switch</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-tips-and-tricks-broadcasting-high-quality-360-videos-on-fb/"><u>[Updated] In 2024, Tips and Tricks Broadcasting High-Quality 360 Videos on FB</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-unlocking-your-facebook-video-potential-mp3-edition-for-2024/"><u>[Updated] Unlocking Your Facebook Video Potential - MP3 Edition for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-unlocking-fb-content-effortless-mp4-conversion/"><u>2024 Approved Unlocking FB Content Effortless MP4 Conversion</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/cookiebot-driven-automation-enhancing-your-digital-marketing-efforts/"><u>Cookiebot-Driven Automation: Enhancing Your Digital Marketing Efforts</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-essential-tips-for-achieving-facebooks-trusted-marker/"><u>In 2024, Essential Tips for Achieving Facebook's Trusted Marker</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-tecno-spark-10-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Tecno Spark 10 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-harmonizing-your-browsing-experience-with-automatic-youtube-playback-on-facebook/"><u>In 2024, Harmonizing Your Browsing Experience with Automatic YouTube Playback on Facebook</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-realme-note-50-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Realme Note 50 | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-tips-for-embedding-time-stamps-in-youtube-clips/"><u>In 2024, Tips for Embedding Time Stamps in YouTube Clips</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/maximizing-gaming-performance-when-and-how-to-update-your-gpu/"><u>Maximizing Gaming Performance: When and How to Update Your GPU</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/pitch-modulation-techniques-in-free-fire-for-2024/"><u>Pitch Modulation Techniques in Free Fire for 2024</u></a></li>
 </ul></div>
 

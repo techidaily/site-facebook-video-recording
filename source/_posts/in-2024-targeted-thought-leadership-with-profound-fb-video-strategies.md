@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Targeted Thought Leadership with Profound FB Video Strategies"
-date: 2024-11-09T22:11:53.871Z
-updated: 2024-11-11T01:17:06.815Z
+date: 2024-11-18T04:32:54.377Z
+updated: 2024-11-19T18:10:35.297Z
 tags:
   - ai video
   - ai facebook
@@ -44,10 +44,10 @@ thumbnail: https://thmb.techidaily.com/70eb207ffd605d91a6b2f543dd9aa1d6c7a04729a
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
-  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Before Making Facebook Video Ads
@@ -64,6 +64,13 @@ thumbnail: https://thmb.techidaily.com/70eb207ffd605d91a6b2f543dd9aa1d6c7a04729a
 
 [Learn more about How to Easily Create Captions and Subtitles for Facebook Videos](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Tips for Making Better Facebook Video Ads
 
 #### 1. Capture Attention in the First Few Seconds
@@ -71,10 +78,10 @@ thumbnail: https://thmb.techidaily.com/70eb207ffd605d91a6b2f543dd9aa1d6c7a04729a
 ![facebook video audience retention ]( https://images.wondershare.com/filmora/article-images/facebook-video-audience-retention.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Facebook platform stay loaded with numbers if videos so people cannot interact equally with all of them. Thus, it is important to create a video that can force viewers to make quick decision about whether this particular video must be watched or not. In order to leave the best impression on viewer’s mind, every video ad must have two major characteristics: It should not have length more than 20 seconds, content must be capable enough to catch attention within first 2, 3 seconds. Here are few common mistakes for low rating of certain videos ads:
@@ -88,13 +95,6 @@ thumbnail: https://thmb.techidaily.com/70eb207ffd605d91a6b2f543dd9aa1d6c7a04729a
 #### 2. Choose Attractive Video Thumbnail
 
 ![Facebook Video ads thumbnail](https://images.wondershare.com/filmora/article-images/facebook-video-custom-thumbnail.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Note that most of the facebook users prefer to deactivate video autoplay options on their profile so they must be encouraged to play your video. The best trigger can be added with an eye catching thumbnail. Facebook platform allow users to create eye catching thumbnail from wide selection of images captured from video frames itself. You can also pick your own image to be uploaded as a thumbnail and to do this you have to follow the custom thumbnail area button. In order to create best impact, it is good to select thumbnail image with aspect ratio same as that of the video.
 
@@ -121,10 +121,16 @@ thumbnail: https://thmb.techidaily.com/70eb207ffd605d91a6b2f543dd9aa1d6c7a04729a
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="701707">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -142,16 +148,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-troubleshooting-stop-sequential-frame-skips-in-live-streaming/"><u>[New] 2024 Approved Troubleshooting Stop Sequential Frame Skips in Live Streaming</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-guiding-users-through-sending-video-troubles-on-iphone-and-android-based-messenger-app-for-2024/"><u>[New] Guiding Users Through Sending Video Troubles on iPhone and Android-Based Messenger App for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-htc-vive-redefining-virtual-playtime-with-unmatched-immersion/"><u>[New] HTC Vive Redefining Virtual Playtime with Unmatched Immersion</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-smooth-sailing-for-social-broadcasts-fixing-interruptions-on-fb/"><u>[New] In 2024, Smooth Sailing for Social Broadcasts Fixing Interruptions on FB</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-video-framing-mastery-letterbox-technique-for-social-media-content/"><u>[Updated] 2024 Approved Video Framing Mastery Letterbox Technique for Social Media Content</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-mac-ready-detailed-screenflow-review-with-v4/"><u>[Updated] Mac Ready Detailed ScreenFlow Review with V4</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-unveil-hidden-watch-visual-artwork/"><u>2024 Approved Unveil Hidden Watch Visual Artwork</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/essential-tips-on-reviewing-your-web-pages-before-publishing-online/"><u>Essential Tips on Reviewing Your Web Pages Before Publishing Online</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/rhythm-ringtone-converting-tamil-music-into-phone-chimes/"><u>Rhythm Ringtone Converting Tamil Music Into Phone Chimes</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/the-messenger-maestros-guide-to-capturing-social-media-videos/"><u>The Messenger Maestro's Guide to Capturing Social Media Videos</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/the-ultimate-guide-to-understanding-apple-watch-series-4-the-pinnacle-of-smartwatch-innovation/"><u>The Ultimate Guide to Understanding Apple Watch Series 4 – The Pinnacle of Smartwatch Innovation</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-tricks-to-upgrade-streaming-quality-on-mobile-apps-like-facebook/"><u>[New] In 2024, Tricks to Upgrade Streaming Quality on Mobile Apps Like Facebook</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/avigating-the-creator-space-a-comprehensible-guide/"><u>[New] Navigating the Creator Space A Comprehensible Guide</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-optimizing-facebook-videos-for-hd-broadcasts-and-beyond/"><u>[New] Optimizing Facebook Videos for HD Broadcasts and Beyond</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-unveiling-the-secrets-of-facebook-story-filming-and-editing/"><u>[New] Unveiling the Secrets of Facebook Story Filming and Editing</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-effortless-viewing-automatic-playback-of-youtube-videos-on-social-media/"><u>[Updated] 2024 Approved Effortless Viewing Automatic Playback of YouTube Videos on Social Media</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-creative-music-videos-a-list-of-15-youtube-projects/"><u>[Updated] Creative Music Videos A List of 15 YouTube Projects</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-best-10-sites-to-get-free-images/"><u>2024 Approved Best 10 Sites to Get Free Images</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/best-buys-hidden-offer-score-your-free-macbook-air-m3-with-this-proven-strategy/"><u>Best Buy’s Hidden Offer: Score Your Free MacBook Air M3 with This Proven Strategy</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/vering-the-ultimate-10-vr-video-experience-on-youtube/"><u>Discovering the Ultimate 10-VR Video Experience on YouTube</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-a-complete-guide-to-oem-unlocking-on-samsung-galaxy-s23-fe-by-drfone-android/"><u>In 2024, A Complete Guide To OEM Unlocking on Samsung Galaxy S23 FE</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-is-fake-gps-location-spoofer-a-good-choice-on-xiaomi-redmi-note-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Is Fake GPS Location Spoofer a Good Choice On Xiaomi Redmi Note 12 Pro+ 5G? | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-secrets-of-skillful-navigation-around-edgenuity-videos/"><u>In 2024, Secrets of Skillful Navigation Around Edgenuity Videos</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-exclusive-list-of-elite-christian-streaming-services/"><u>In 2024, The Exclusive List of Elite Christian Streaming Services</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-vidcapture-fb-videos-on-the-go/"><u>In 2024, VidCapture Fb Videos on the Go</u></a></li>
 </ul></div>
 
