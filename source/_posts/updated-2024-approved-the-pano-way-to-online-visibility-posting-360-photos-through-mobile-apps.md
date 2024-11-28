@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  The Pano-Way to Online Visibility  Posting 360 Photos Through Mobile Apps\""
-date: 2024-11-19T04:28:02.741Z
-updated: 2024-11-20T04:14:24.801Z
+date: 2024-11-24T21:24:38.651Z
+updated: 2024-11-28T22:13:54.312Z
 tags:
   - ai video
   - ai facebook
@@ -31,6 +31,10 @@ thumbnail: https://thmb.techidaily.com/9ca2eff6ae26123de716ede19623049b700dbda01
 
  Probably you have a tablet or phone that support Facebook live 360 video feature. Actually as per the recent announcement made by Facebook professionals regarding its updated applications, live 360 is compatible with all devices launched after iPad Pro. iPad Air, iPad Mini 2 or iPhone 4S models. Till now Facebook has not revealed any news related to compatibility of new features over Android devices and chances are that Android users need to wait so long to enjoy this feature on their device. However, they made a useful statement that Galaxy devices launched after Galaxy Note 3 and Galaxy S5 will support this feature.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Taking 360 Photos on iPhone and iPad With Built in Camera App
 
  Generally 360 degree camera is most preferable choice for developing high quality 360 degree images but in case if you don’t have one then Panorama feature of built in device cameras can make it possible. However, users cannot get focus from up and down but they can at least pan from right to left by simply swiping on their display. This feature only works for photos that mean you cannot develop 360 videos using Panorama.
@@ -40,10 +44,7 @@ thumbnail: https://thmb.techidaily.com/9ca2eff6ae26123de716ede19623049b700dbda01
  As soon as you have captured your desired shot, move to your Facebook account and browse photo library. Choose your recently captured panorama photo and then follow instructions provided on screen to update your video. You can also preview your content, now add desired caption and publish your content online. Soon your will start receiving interesting comments and reviews from audience. Users can also delete their 360 degree photos after few hours as per their need. Such types of videos are being commonly used for entertainment and marketing purpose throughout the world.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Taking 360 Photos on Android Smartphone with Google Street View
@@ -56,10 +57,7 @@ thumbnail: https://thmb.techidaily.com/9ca2eff6ae26123de716ede19623049b700dbda01
 * These captured 360 videos can be uploaded on Facebook same as the regular posts. Simply go to your account, move to status update and select your image, add caption and update.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Viewing 360 Photos on Facebook
@@ -71,10 +69,7 @@ thumbnail: https://thmb.techidaily.com/9ca2eff6ae26123de716ede19623049b700dbda01
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -92,18 +87,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-audiovisual-synchronization-in-facebook-content-creation/"><u>[New] 2024 Approved Audiovisual Synchronization in Facebook Content Creation</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-achieve-financial-stardom-strategies-for-youtube-success-on-fb/"><u>[Updated] 2024 Approved Achieve Financial Stardom Strategies for YouTube Success on FB</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-enhancing-video-appeal-mac-thumbnails-tutorial/"><u>[Updated] Enhancing Video Appeal Mac Thumbnails Tutorial</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-pinpointing-video-picks-s-social-landscape-facebook/"><u>[Updated] In 2024, Pinpointing Video Picks 'S Social Landscape (Facebook)</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-unveiling-celestial-beauty-premium-hdr-sky-portals/"><u>2024 Approved Unveiling Celestial Beauty Premium HDR Sky Portals</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/ai-assisted-poem-writing-techniques-using-chatgpt/"><u>AI-Assisted Poem Writing Techniques Using ChatGPT</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/androids-leading-downloader-choice-the-ultimate-top-10-list-of-fb-video-tools-for-2024/"><u>Android's Leading Downloader Choice The Ultimate Top 10 List of FB Video Tools for 2024</u></a></li>
-<li><a href="https://win-wonderful.techidaily.com/comparative-analysis-of-os-vulnerabilities-why-windows-is-targeted-by-malware-more-frequently-than-mac-and-linux/"><u>Comparative Analysis of OS Vulnerabilities: Why Windows Is Targeted by Malware More Frequently Than Mac and Linux</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-vivo-x90s-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Vivo X90S Find My Friends No Location Found? | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-realme-narzo-60-pro-5g-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>In 2024, How to Unlock Realme Narzo 60 Pro 5G Pattern Lock if Forgotten? 6 Ways</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-top-8-fb-movie-extraction-tools/"><u>In 2024, Top 8 FB Movie Extraction Tools</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-webclipper-facebook-videos/"><u>In 2024, WebClipper - Facebook Videos</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-samsung-galaxy-s23-tactical-edition-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Samsung Galaxy S23 Tactical Edition | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-streamlining-video-transmission-from-facebook-to-whatsapp/"><u>[New] 2024 Approved Streamlining Video Transmission From Facebook to WhatsApp</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-elite-echo-engineer-for-podcasting-excellence/"><u>[New] In 2024, Elite Echo Engineer for Podcasting Excellence</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-essential-software-to-rip-youtube-trailers/"><u>[New] In 2024, Essential Software to Rip YouTube Trailers</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-social-snapshots-highest-view-counts/"><u>[New] In 2024, Social Snapshots Highest View Counts</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-15-techniques-to-ensure-facebook-videos-are-spotlighted/"><u>[Updated] 15 Techniques to Ensure Facebook Videos Are Spotlighted</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-facebook-video-posting-dilemmnas-which-way-in-2024/"><u>[Updated] Facebook Video Posting Dilemmnas Which Way, In 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-free-online-subtitle-converters-our-recommended-10/"><u>[Updated] Free Online Subtitle Converters Our Recommended 10</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-convert-your-shorts-to-mp4-video-enhancement-techniques/"><u>[Updated] In 2024, Convert Your Shorts to Mp4 Video Enhancement Techniques</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-navigating-through-fbs-in-stream-ad-landscape-configuration-and-evaluation-techniques/"><u>[Updated] In 2024, Navigating Through FB's In-Stream Ad Landscape Configuration and Evaluation Techniques</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-leading-graphics-tech-for-uhd-videography/"><u>[Updated] Leading Graphics Tech for UHD Videography</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-master-the-art-of-downloading-gifs-from-facebook-on-multiple-devices-effortlessly/"><u>[Updated] Master the Art of Downloading GIFs From Facebook on Multiple Devices Effortlessly</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-from-beginner-to-expert-choose-studio-or-beta/"><u>2024 Approved From Beginner to Expert Choose Studio or Beta</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-precision-problem-solving-for-social-media-stories-issues/"><u>2024 Approved Precision Problem-Solving for Social Media Stories Issues</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-beat-matching-visuals-and-audio-on-facebook-platform/"><u>In 2024, Beat-Matching Visuals & Audio on Facebook Platform</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-can-oppo-a59-5gmirror-share-to-pc-drfone-by-drfone-android/"><u>In 2024, How Can Oppo A59 5GMirror Share to PC? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/leading-the-pack-2023s-8-facebook-movie-downloads/"><u>Leading the Pack 2023'S #8 Facebook Movie Downloads</u></a></li>
+<li><a href="https://fox-that.techidaily.com/1721466674331-one-airpod-loud-and-proud-the-other-quiet-unravel-this-mystery-and-learn-the-four-solutions/"><u>One AirPod Loud and Proud, The Other Quiet – Unravel This Mystery & Learn the Four Solutions</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/rhythmripper-software-overview-and-testing/"><u>RhythmRipper Software Overview & Testing</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/top-11-applicazioni-mac-per-masterizzare-i-disco-ottimizzate-per-la-scrittura-su-dvd/"><u>Top 11 Applicazioni Mac per Masterizzare I Disco Ottimizzate per La Scrittura Su DVD</u></a></li>
 </ul></div>
 

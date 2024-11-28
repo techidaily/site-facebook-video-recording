@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Step-by-Step Guide to Crafting Compelling Squares for Facebook\""
-date: 2024-11-13T18:12:36.009Z
-updated: 2024-11-19T20:09:32.247Z
+date: 2024-11-24T16:18:12.813Z
+updated: 2024-11-28T17:54:30.577Z
 tags:
   - ai video
   - ai facebook
@@ -60,10 +60,7 @@ Here are the facts and figures –
 If the video has links, a 25 characters’ link and 30 characters’ link description is what you need. If you post 360 videos, the aspect ratio tolerance needs to be 3%.
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
-  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to create square videos by Filmora
@@ -100,21 +97,11 @@ Here, you need to press ‘OK’ and export the file to your computer. Later you
 
 ![export video](https://images.wondershare.com/filmora/article-images/export-video-filmora.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 4: How to create square videos by Adobe Premiere
 
@@ -128,6 +115,10 @@ First you need to import video to Premiere Pro. Go to File > Import, and then se
 
 ![import video premiere](https://images.wondershare.com/filmora/article-images/import-video-premiere.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2：Sequence settings**
 
 Click Sequence in the top, and then select Sequence Settings. First to seclect ARRI Cinema to activiate the settings. In the video area, adjust the frame size. You need to keep horizontal and vertical number the same in order to create square video. Here, we adjsut it to 600\. Leave the rest options the same. Click OK.
@@ -135,15 +126,16 @@ Click Sequence in the top, and then select Sequence Settings. First to seclect A
 ![Sequence settings](https://images.wondershare.com/filmora/article-images/sequence-setting.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 3：Export**
 
 Export your video once the changes are satisfactory and enjoy!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Bottom Line
 
@@ -152,13 +144,6 @@ From the above article, we are sure that square videos on Facebook are significa
 **You may also like:** [How to Schedule a Post on Your Facebook: The Ultimate Guide >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -177,21 +162,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-solving-the-yous-problem-seeing-myself-on-social-media/"><u>[New] In 2024, Solving the 'You's Problem Seeing Myself on Social Media</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-snapsnatcher-live-stream-repository-for-2024/"><u>[New] SnapSnatcher - Live Stream Repository for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/he-ultimate-gear-list-for-any-aspiring-vlogger-top-12-cameras/"><u>[New] The Ultimate Gear List for Any Aspiring Vlogger - Top 12 Cameras</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-top-nvidia-and-amd-gpus-for-4k-workstations/"><u>[New] Top NVIDIA & AMD GPUs for 4K Workstations</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-2023s-leading-youtube-engagement-tools/"><u>[Updated] In 2024, 2023'S Leading YouTube Engagement Tools</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-stealthy-facebook-video-navigator-for-2024/"><u>[Updated] Stealthy Facebook Video Navigator for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-converging-zoom-and-fb-live-for-professional-broadcasts/"><u>2024 Approved Converging ZOOM and FB Live for Professional Broadcasts</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-tricks-to-upgrade-streaming-quality-on-mobile-apps-like-facebook/"><u>2024 Approved Tricks to Upgrade Streaming Quality on Mobile Apps Like Facebook</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/captivating-your-network-streamlining-content-via-wirecast-to-facebook/"><u>Captivating Your Network Streamlining Content via Wirecast to Facebook</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-7-ways-to-unlock-a-locked-motorola-moto-e13-phone-by-drfone-android/"><u>In 2024, 7 Ways to Unlock a Locked Motorola Moto E13 Phone</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-delete-icloud-account-from-apple-iphone-6-without-password-by-drfone-ios/"><u>In 2024, How to Delete iCloud Account From Apple iPhone 6 without Password?</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Read This Guide to Find a Reliable Alternative to Fake GPS On Apple iPhone 14 Plus | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-unraveling-image-mysteries-the-triple-tactic-fb-backward-search/"><u>In 2024, Unraveling Image Mysteries The Triple-Tactic FB Backward Search</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/peer-to-peer-fb-video-grabber-for-2024/"><u>Peer-to-Peer FB Video Grabber for 2024</u></a></li>
-<li><a href="https://techidaily.com/three-solutions-to-hard-reset-vivo-s17-drfone-by-drfone-reset-android-reset-android/"><u>Three Solutions to Hard Reset Vivo S17? | Dr.fone</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-beam-local-content-to-chromecast-easy-setup-for-windows-mac-android-and-ios-users-for-2024/"><u>Updated Beam Local Content to Chromecast Easy Setup for Windows, Mac, Android, and iOS Users for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-syncing-your-phone-with-facebook-videos-on-appletv/"><u>[New] 2024 Approved Syncing Your Phone with Facebook Videos on AppleTV</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-how-can-i-watch-facebook-videos-on-my-apple-tv-for-2024/"><u>[New] How Can I Watch Facebook Videos on My Apple TV for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-the-ultimate-guide-to-increasing-fb-likes-with-top-apps-for-2024/"><u>[New] The Ultimate Guide to Increasing FB Likes with Top Apps for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-time-is-money-the-best-facebook-schedulers-reviewed/"><u>[Updated] 2024 Approved Time Is Money The Best Facebook Schedulers Reviewed</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-facebooks-unique-media-the-top-ios-downloader-tools-revealed-today/"><u>[Updated] In 2024, Facebook's Unique Media The Top iOS Downloader Tools Revealed Today</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-the-ultimate-list-of-firefox-plugins-for-easy-facebook-video-retrieval-2023-edition-for-2024/"><u>[Updated] The Ultimate List of Firefox Plugins for Easy Facebook Video Retrieval, 2023 Edition for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-voice-history-holder-iphone-2024-innovation/"><u>[Updated] Voice History Holder - iPhone 2024 Innovation</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-elevate-engagement-10-effective-facebook-video-tips/"><u>2024 Approved Elevate Engagement 10 Effective Facebook Video Tips</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-mobilesync-facebook-video-grabber/"><u>2024 Approved Mobilesync Facebook Video Grabber</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-professional-insights-crafting-and-sharing-360-videos-on-fb/"><u>2024 Approved Professional Insights Crafting & Sharing 360 Videos on FB</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-photos-files-on-y27-5g-by-fonelab-android-recover-photos/"><u>Complete guide for recovering photos files on Y27 5G.</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-error-495-while-downloadupdating-android-apps-on-oppo-a56s-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Error 495 While Download/Updating Android Apps On Oppo A56s 5G | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-vivo-t2x-5g-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Vivo T2x 5G to Any iOS Devices | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-unleash-your-phones-potential-the-ultimate-montage-application-guide/"><u>In 2024, Unleash Your Phone's Potential The Ultimate Montage Application Guide</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210131388-9781761035562-psychic-development/"><u>Psychic Development | Free Book</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/techniques-pour-copier-sans-pertes-une-dvd-sous-macos-guide-expert/"><u>Techniques Pour Copier Sans Pertes Une DVD Sous macOS - Guide Expert</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/unlock-hidden-space-on-your-iphone-the-ultimate-decluttering-tutorial-for-more-gigs/"><u>Unlock Hidden Space on Your iPhone: The Ultimate Decluttering Tutorial for More Gigs</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Unveiling Inauthentic Accounts on Brand Pages for 2024"
-date: 2024-11-12T19:49:57.829Z
-updated: 2024-11-20T01:52:05.646Z
+date: 2024-11-23T17:05:44.422Z
+updated: 2024-11-28T21:24:16.879Z
 tags:
   - ai video
   - ai facebook
@@ -51,16 +51,7 @@ You can gauge the quality of engagement from the comments on influencers’ cont
 ![inspect facebook comment](https://images.wondershare.com/filmora/article-images/facebook-comment.JPG)
 
 <!-- affiliate ads begin -->
-<span id="1770526">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 2: Calculate Engagement rate
@@ -70,22 +61,16 @@ You can gauge the quality of engagement from the comments on influencers’ cont
 ![facebook engagement rate](https://images.wondershare.com/filmora/article-images/engagement-rate-facebook.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 3: Check tendency chart
 
 Fake followers on Facebook can be detected if all of a sudden follower count increases. At times organic posts also garner high followers if it goes viral, but if the hike is not for a viral post, then it screams fake! When an unknown influencer has a sudden spike in followers and then a gradual decline, you need to understand that the influencer had a strong engagement rate. Nameless influencers can be through followers, comments and likes. Using third party tools you can gauge the tendency chart.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Step 4: Locate Follower country
 
@@ -96,6 +81,10 @@ For tracking fake followers on Facebook, you need to know their location. Knowin
 You can try [Phlanx](https://phlanx.com/) for analyzing Facebook followers for influencers. The most credible features of this tool are ‘influencer contract generator’, ‘product trials’, and ‘collaborations’. This tool helps you work with brands, contact influencers, measure engagement, and create contracts. Using the right tool will enhance your followers on Facebook for influencer and bring a new dimension for your business.
 
 ![Phlanx](https://images.wondershare.com/filmora/article-images/Phlanx.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -108,10 +97,7 @@ Knowing these aspects, you will be able to protect your brand page and garner ge
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
-  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -129,19 +115,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-get-fb-videos-down-as-mp4-swiftly-and-simply/"><u>[New] Get FB Videos Down as MP4 – Swiftly & Simply</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-elite-10-volume-augmenters-for-all-os/"><u>[New] In 2024, Elite 10 Volume Augmenters for All OS</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-backwards-viewing-a-new-lens-for-analyzing-youtube-content/"><u>[Updated] 2024 Approved Backwards Viewing A New Lens for Analyzing YouTube Content</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-profile-persona-painting-crafting-an-animated-imagery/"><u>[Updated] 2024 Approved Profile Persona Painting Crafting an Animated Imagery</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-how-to-capture-and-stream-in-stunning-hd-fb-for-2024/"><u>[Updated] How to Capture and Stream in Stunning HD (FB) for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-secrets-to-exposing-videos-in-the-news-feed/"><u>[Updated] In 2024, Secrets to Exposing Videos in the News Feed</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-the-complete-guide-to-facebook-dominance-business-edition/"><u>2024 Approved The Complete Guide to Facebook Dominance Business Edition</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-oppo-reno-9a-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Oppo Reno 9A | Dr.fone</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/cutting-edge-speedy-frame-compiler/"><u>Cutting Edge Speedy Frame Compiler</u></a></li>
-<li><a href="https://app-tips.techidaily.com/new-advancements-for-ai-tasks-with-latest-kubernetes-version-released-insights-from-tech-experts-at-zdnet/"><u>New Advancements for AI Tasks with Latest Kubernetes Version Released, Insights From Tech Experts at ZDNET</u></a></li>
-<li><a href="https://win-blog.techidaily.com/optimize-your-system-a-guide-to-easily-navigating-windows-11-settings-with-13-tips-and-tricks/"><u>Optimize Your System: A Guide to Easily Navigating Windows 11 Settings with 13 Tips and Tricks</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ltimate-how-to-for-your-youtube-music-collection/"><u>The Ultimate How-To for Your YouTube Music Collection</u></a></li>
-<li><a href="https://some-skills.techidaily.com/unlocking-creative-potential-animated-text-techniques-ig-stories-for-2024/"><u>Unlocking Creative Potential Animated Text Techniques IG Stories for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/unraveling-the-process-of-gaining-facebooks-blue-badge/"><u>Unraveling the Process of Gaining Facebook's Blue Badge</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-a-comprehensive-approach-to-live-video-on-websites/"><u>[New] 2024 Approved A Comprehensive Approach to Live Video on Websites</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-igniting-online-trends-crafting-viral-facebook-posts/"><u>[New] 2024 Approved Igniting Online Trends Crafting Viral Facebook Posts</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-exploring-previous-images-3-inverse-search-methods-on-social-media/"><u>[New] Exploring Previous Images 3 Inverse Search Methods on Social Media</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-the-blueprint-to-youtube-wealth-smart-strategies-for-facebook-video-marketing/"><u>[New] In 2024, The Blueprint to YouTube Wealth Smart Strategies for Facebook Video Marketing</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-ranking-the-best-non-sportful-activities-at-first-row/"><u>[New] Ranking the Best Non-Sportful Activities at First Row</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-transform-your-iphone-into-a-content-powerhouse-with-best-fb-video-downloaders-for-ios/"><u>[New] Transform Your iPhone Into a Content Powerhouse with Best FB Video Downloaders for iOS</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-15-techniques-to-ensure-facebook-videos-are-spotlighted-for-2024/"><u>[Updated] 15 Techniques to Ensure Facebook Videos Are Spotlighted for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-net-adapter-fb-stories-saver-app/"><u>[Updated] 2024 Approved Net Adapter FB Stories Saver App</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-tinting-truths-crafting-perfect-imagery/"><u>[Updated] Tinting Truths Crafting Perfect Imagery</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-best-video-titling-solutions-online-now/"><u>2024 Approved Best Video Titling Solutions Online Now</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/discover-the-cutting-edge-technology-in-the-newly-released-apple-iphone/"><u>Discover the Cutting-Edge Technology in the Newly Released Apple iPhone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-why-is-ipogo-not-working-on-xiaomi-redmi-k70-pro-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Xiaomi Redmi K70 Pro? Fixed | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/revolutionizing-usage-the-impact-of-apples-iphone-nfc-expansion-on-third-party-developers-and-end-users-alike-insights/"><u>Revolutionizing Usage: The Impact of Apple's iPhone NFC Expansion on Third-Party Developers and End Users Alike | Insights</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/tailoring-twitter-threads-for-maximum-impact-chatgpt/"><u>Tailoring Twitter Threads for Maximum Impact (ChatGPT)</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-fine-art-of-focusing-enhanced-zoom-on-roblox-games-for-2024/"><u>The Fine Art of Focusing Enhanced Zoom on Roblox Games for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Optimizing FB  Techniques for Shooting & Posting 360 Vids for 2024\""
-date: 2024-11-17T19:52:09.972Z
-updated: 2024-11-20T01:40:41.838Z
+date: 2024-11-21T20:24:54.463Z
+updated: 2024-11-28T17:14:41.666Z
 tags:
   - ai video
   - ai facebook
@@ -34,6 +34,10 @@ thumbnail: https://thmb.techidaily.com/67c52f8f8d1e1c526acfd18d30076a8ec8c694652
 * [Part 3: How to Upload 360 Video to Facebook](#part3)
 * [Part 4: Facebook 360 Video & Gear VR](#part4)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What is 360 Degree Video?
 
  Most of the cameras these days are capable enough to capture shoots with 170 degree wide coverage and in case if you want to show the scene behind the camera then it becomes essential to use two 170 degree FOV cameras back to back. Hence, for capturing all six directions in a single footage you may require connecting 6 cameras together while adjusting their focus in different directions. The resultant content is known as 360 degree video. Many smart algorithms have been developed by professionals to get these videos stitched together to develop complete 360 degree content in a single footage. This is something like standing in the centre of a sphere and viewing everything in all directions.
@@ -41,6 +45,10 @@ thumbnail: https://thmb.techidaily.com/67c52f8f8d1e1c526acfd18d30076a8ec8c694652
  These 360 degree videos have inspired the concept of virtual reality but these equipments are quite expensive. But as soon as the technology is gaining popularity, chances are to get VR gear at lower price in near future.
 
  So, now you may be thinking hard that how this feature is useful for Facebook users. Actually, Facebook has recently enabled its users to upload 360 videos directly to their pages, groups or profiles so that audience can stay engaged. This is really interesting.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to make a 360 Degree video on Facebook?
 
@@ -60,6 +68,10 @@ thumbnail: https://thmb.techidaily.com/67c52f8f8d1e1c526acfd18d30076a8ec8c694652
 
  In case if you are using any other device to capture your 360 degree videos then you may need to make manual adjustments for your 360 video formats.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to upload 360 degree videos on Facebook
 
  Uploading 360 video to Facebook is easy, just follow the steps below:
@@ -70,23 +82,9 @@ thumbnail: https://thmb.techidaily.com/67c52f8f8d1e1c526acfd18d30076a8ec8c694652
 
 ![Facebook 360 video upload](https://images.wondershare.com/filmora/article-images/facebook-360-video-upload.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Step 3: Now select the option “This video was recorded in 360° format”. It will help your app to generate automated control for 360 degree content.
 
 ![Facebook 360 Controls](https://images.wondershare.com/filmora/article-images/facebook-360-controls.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Step 4: Go to **360 Controls** tab and make settings for field or view as well as more initial camera orientations.
 
@@ -95,10 +93,7 @@ thumbnail: https://thmb.techidaily.com/67c52f8f8d1e1c526acfd18d30076a8ec8c694652
  Note that Facebook 360 live platform allows maximum 30 minutes for a 360 degree video and the maxim supported file size goes up to 5GB only. So you can prepare your media file accordingly.
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook 360 Video & Gear VR
@@ -124,10 +119,7 @@ thumbnail: https://thmb.techidaily.com/67c52f8f8d1e1c526acfd18d30076a8ec8c694652
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -145,18 +137,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-undetected-consumer-of-life-streams-fb-for-2024/"><u>[New] Undetected Consumer of Life Streams (FB) for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-exploring-why-your-social-media-doesnt-suggest-videos/"><u>[Updated] 2024 Approved Exploring Why Your Social Media Doesn’t Suggest Videos</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-guiding-you-to-enable-auto-video-feature-on-facebook/"><u>[Updated] Guiding You to Enable Auto-Video Feature on Facebook</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-facebook-media-extractor-music-mode/"><u>2024 Approved Facebook Media Extractor – Music Mode</u></a></li>
-<li><a href="https://extra-information.techidaily.com/ace-tiktok-live-leveraging-zoom-capabilities-for-2024/"><u>Ace TikTok Live Leveraging Zoom Capabilities for 2024</u></a></li>
-<li><a href="https://win-forum.techidaily.com/comparing-major-platforms-the-battle-of-facebook-twitter-instagram-and-youtube/"><u>Comparing Major Platforms: The Battle of Facebook, Twitter, Instagram and YouTube</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/discover-prime-disneyplus-titles-for-an-unbeatable-viewing-experience/"><u>Discover Prime Disney+ Titles for an Unbeatable Viewing Experience</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/how-to-share-videos-on-facebook-in-2024/"><u>How to Share Videos on Facebook, In 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-quick-quirks-making-manipulations-more-minimal/"><u>In 2024, Quick Quirks Making Manipulations More Minimal</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/perfect-pixels-in-a-tap-iphone-and-androids-best-skin-editors/"><u>Perfect Pixels in a Tap IPhone & Android's Best Skin Editors</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/start-your-lighting-journey-with-studio-agg814-kit/"><u>Start Your Lighting Journey with Studio AGG814 Kit</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/top-10-fingerprint-lock-apps-to-lock-your-nokia-105-classic-phone-by-drfone-android/"><u>Top 10 Fingerprint Lock Apps to Lock Your Nokia 105 Classic Phone</u></a></li>
-<li><a href="https://program-issues.techidaily.com/troubleshooting-the-dark-display-error-for-magic-the-gathering-arena-players/"><u>Troubleshooting the Dark Display Error for Magic: The Gathering Arena Players</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-leveraging-social-integration-auto-play-youtube-videos-on-fb-pages/"><u>[New] 2024 Approved Leveraging Social Integration Auto-Play Youtube Videos on FB Pages</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-broadcast-without-breaks-2023-guides-to-overcoming-livestream-disruptions-on-fb-for-2024/"><u>[New] Broadcast Without Breaks 2023 Guides to Overcoming Livestream Disruptions on FB for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-navigating-immediate-account-suspension-due-to-copyright-violations-for-2024/"><u>[New] Navigating Immediate Account Suspension Due to Copyright Violations for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-decoding-the-magic-behind-seamless-musical-segments/"><u>[Updated] 2024 Approved Decoding the Magic Behind Seamless Musical Segments</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-leading-online-tools-select-your-new-photo-background/"><u>[Updated] 2024 Approved Leading Online Tools Select Your New Photo Background</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-creating-a-personal-brand-on-facebook/"><u>[Updated] In 2024, Creating a Personal Brand on Facebook</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-exploring-the-top-8-facebook-extractors-for-films/"><u>2024 Approved Exploring the Top 8 Facebook Extractors for Films</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-professional-fb-cover-setups-to-skyrocket-engagement/"><u>2024 Approved Professional FB Cover Setups to Skyrocket Engagement</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/a-step-by-step-guide-free-transformation-of-mp4-videos-into-ogv-using-movavis-software/"><u>A Step-by-Step Guide: Free Transformation of MP4 Videos Into OGV Using Movavi's Software</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/best-hidden-downloaders-1-8-unveiled/"><u>Best Hidden Downloaders - #1-8 Unveiled</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/easing-freezes-tips-for-smooth-photobooth-footage/"><u>Easing Freezes Tips for Smooth Photobooth Footage</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-go-joystick-on-nokia-c300-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Nokia C300? | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-many-attempts-to-unlock-iphone-15-pro-max-drfone-by-drfone-ios/"><u>In 2024, How Many Attempts To Unlock iPhone 15 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-motorola-moto-g34-5g-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Motorola Moto G34 5G to BlackBerry | Dr.fone</u></a></li>
+<li><a href="https://win-awesome.techidaily.com/mp4-ogm-movavi/"><u>바이트가 부족한 인터넷 연결을 위해 오클리지 MP4를 무료 OGM로 전환하기: 모바일과의 원활한 호환성 – Movavi</u></a></li>
 </ul></div>
 

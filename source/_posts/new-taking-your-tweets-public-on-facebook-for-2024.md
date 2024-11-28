@@ -1,7 +1,7 @@
 ---
 title: "[New] Taking Your Tweets Public on Facebook for 2024"
-date: 2024-11-14T17:11:27.620Z
-updated: 2024-11-19T22:26:31.490Z
+date: 2024-11-23T22:32:44.285Z
+updated: 2024-11-28T20:15:15.007Z
 tags:
   - ai video
   - ai facebook
@@ -25,9 +25,17 @@ thumbnail: https://thmb.techidaily.com/678fddf7ae4566a62c5d9f963bb3c78467acea0fb
 
  Mar 27, 2024• Proven solutions
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Why share Twitter posts to Facebook?
 
  In today's fast paced life, it's time-consuming to manage multiple accounts on different social media platforms manually. Fortunately, you can set your Twitter account and sync it with Facebook to kill two birds with a single stone. You can post Tweets to Facebook automatically as updates, sparing your personal intervention. Automatic posting of Tweets on Facebook ensures your friends on both platforms get your updates without the extra work.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Post Tweets to Facebook – Step by Step guide
 
@@ -40,10 +48,7 @@ thumbnail: https://thmb.techidaily.com/678fddf7ae4566a62c5d9f963bb3c78467acea0fb
 ![post tweet on facebook 1](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Once you login to your Twitter account, tap on your profile picture on the top right corner of the screen, next to the ‘Tweet' tab.
@@ -51,30 +56,24 @@ thumbnail: https://thmb.techidaily.com/678fddf7ae4566a62c5d9f963bb3c78467acea0fb
 
 ![post tweet on facebook 2](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
-  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 1. Now, hit the ‘Connect to Facebook' option under Applications. You will be prompted with a popup to log in, in case you haven't logged in to Facebook on the same browser. Enter the details and log in.
 
 ![post tweet on facebook 3](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. Upon being prompted for permission from Twitter to access your Facebook information, click ‘Continue as \[Facebook Profile/user name\]' to continue.
 
 ![post tweet on facebook 4](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 1. Now you need to configure the ‘Select the privacy settings' to decide who is going to receive your Twitter updates on Facebook. When you post Tweets to Facebook, by default your friends will get to see them.
 2. Now, you need to tap ‘OK' and finish the process. The Tweets and Retweets will be posted to your Facebook with your Twitter username, though the replies for the Tweets won't be posted in Facebook.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: Tools for managing your social media accounts
 
@@ -186,13 +185,6 @@ thumbnail: https://thmb.techidaily.com/678fddf7ae4566a62c5d9f963bb3c78467acea0fb
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -208,18 +200,21 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-expertly-design-fb-ads-get-help-from-free-video-creation-toolkit/"><u>[New] Expertly Design FB Ads – Get Help From Free Video Creation Toolkit</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-audiovisual-elements-in-eye-catching-fb-advertising/"><u>[New] In 2024, Audiovisual Elements in Eye-Catching FB Advertising</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-breakthrough-social-media-moves-sharing-youtube-videos-to-fb/"><u>[New] In 2024, Breakthrough Social Media Moves Sharing YouTube Videos to FB</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-legal-fb-audio-hoarder-lfah/"><u>[New] In 2024, Legal FB Audio Hoarder (LFAH)</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-unravel-the-power-of-wmp-in-audio-transition-from-cds-for-2024/"><u>[New] Unravel the Power of WMP in Audio Transition From Cds for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-what-are-luts-and-how-they-change-your-photography-for-2024/"><u>[New] What Are LUTs and How They Change Your Photography for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-secrets-unveiled-amplifying-profile-visibility/"><u>[Updated] Secrets Unveiled Amplifying Profile Visibility</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-pro-level-performance-a-compre-cookie-box/"><u>2024 Approved Pro-Level Performance A Compre Cookie Box</u></a></li>
-<li><a href="https://win11.techidaily.com/cut-the-cost-boost-quality-wins-finest-players/"><u>Cut the Cost, Boost Quality: Win's Finest Players</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-captioning-in-fcpx-a-beginners-guide-to-adding-subtitles/"><u>In 2024, Captioning in FCPX A Beginners Guide to Adding Subtitles</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-community-cinema-collector-pro/"><u>In 2024, Community Cinema Collector Pro</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/in-2024-simplified-guide-to-incorporating-ken-burns-effect-in-camtasa/"><u>In 2024, Simplified Guide to Incorporating Ken Burns Effect in Camtasa</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/polite-expressions-a-guide-to-saying-thank-you-in-30-languages-152-trimmed-to-fit/"><u>Polite Expressions: A Guide to Saying Thank You in 30 Languages (152) [Trimmed to Fit]</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-mastering-soundtrack-addition-to-social-media-videos-on-facebook/"><u>[New] 2024 Approved Mastering Soundtrack Addition to Social Media Videos on Facebook</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-how-to-make-picture-in-picture-videos-on-mac-os-sierra/"><u>[New] How to Make Picture in Picture Videos on Mac OS Sierra</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-the-essential-list-for-selecting-the-best-free-streaming-apps-on-phones-for-2024/"><u>[New] The Essential List for Selecting the Best Free Streaming Apps on Phones for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-unleashing-creativity-crafting-compelling-fb-video-campaigns-for-2024/"><u>[New] Unleashing Creativity Crafting Compelling FB Video Campaigns for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-visual-storytelling-on-facebook-crafting-compelling-slideshows-for-2024/"><u>[New] Visual Storytelling on Facebook Crafting Compelling Slideshows for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-record-breaking-youtube-content-watch-counts/"><u>[Updated] In 2024, Record Breaking YouTube Content Watch Counts</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-revolutionize-your-social-media-game-personalizing-twitter-video-images/"><u>[Updated] In 2024, Revolutionize Your Social Media Game Personalizing Twitter Video Images</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-reacting-when-youre-seen-in-a-video-on-fb-messenger/"><u>[Updated] Reacting When You're Seen In a Video On FB Messenger</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-the-abcs-of-creative-facebook-advertising-a-guidebook/"><u>[Updated] The ABCs of Creative Facebook Advertising A Guidebook</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/a-simple-way-to-disengage-sound-effects-in-your-pc-running-windows-10/"><u>A Simple Way to Disengage Sound Effects in Your PC Running Windows 10</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/decoding-facebooks-automatic-video-advancements-for-2024/"><u>Decoding Facebook's Automatic Video Advancements for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/elevate-your-engagement-with-real-time-tweets/"><u>Elevate Your Engagement with Real-Time Tweets</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-navigating-googles-complexities-for-easy-podcast-upload/"><u>In 2024, Navigating Google's Complexities for Easy Podcast Upload</u></a></li>
+<li><a href="https://win-advanced.techidaily.com/navigating-the-void-what-happens-when-you-hit-a-page-cannot-be-displayed-error/"><u>Navigating the Void: What Happens When You Hit a 'Page Cannot Be Displayed' Error</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/the-roadmap-for-success-mastering-the-art-of-fb-reel-production/"><u>The Roadmap for Success Mastering the Art of FB Reel Production</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/unveiling-the-secrets-of-obs-game-capture-for-2024/"><u>Unveiling the Secrets of OBS Game Capture for 2024</u></a></li>
 </ul></div>
 
