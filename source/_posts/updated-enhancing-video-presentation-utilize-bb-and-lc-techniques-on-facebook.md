@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Enhancing Video Presentation  Utilize BB and LC Techniques on Facebook\""
-date: 2024-11-22T19:21:24.786Z
-updated: 2024-11-28T16:43:20.599Z
+date: 2024-12-02T21:46:42.265Z
+updated: 2024-12-07T21:03:05.838Z
 tags:
   - ai video
   - ai facebook
@@ -53,10 +53,6 @@ This method is suitable for users whose source videos are not in square format (
 
 ![automatic-letterbox](https://images.wondershare.com/filmora/article-images/automatic-letterbox.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * 4\. Add a subtitle under **Titles** tab to the letterbox at the top and bottom and custom the texts you want.
 
 ![add-letterbox-title](https://images.wondershare.com/filmora/article-images/add-letterbox-title.jpg)
@@ -68,6 +64,10 @@ And you can also go to the **Elements** tab, and add some creative elements such
 * 5\. Export the square video to local computer in mp4 or other supported formats
 
 ![filmora9-export-panel](https://images.wondershare.com/filmora/article-images/filmora9-export-panel.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * 6\. Upload the exported square video to Facebook, and show how it looks like on Facebook.
 
@@ -81,17 +81,9 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 
 ![import-square-video](https://images.wondershare.com/filmora/article-images/import-square-video.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * 2\. Then drag and drop your source video to the timeline. No black bars will appear automatically like in Method 1
 
 ![no-letterbox](https://images.wondershare.com/filmora/article-images/no-letterbox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * 3\. To create a letterbox, choose the option **Titles**. Now you will be shown a variety of subtitles and credit styles
 * 4\. Select **Subtitles**, then add a subtitle style that has a black background to your video, such as Subtitle 1,2,3, etc.
@@ -99,27 +91,27 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 ![add-doll-subtitle](https://images.wondershare.com/filmora/article-images/add-doll-subtitle.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * 5\. You will see that the subtitle appears on the video in real time. Here you can adjust the width and height of the subtitle. Make it so that that black bar covers the lower end of the video completely and delete the text
 
 ![custom-letterbox](https://images.wondershare.com/filmora/article-images/custom-letterbox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * 6\. Drag and drop the subtitle again from the Titles-Subtitles option. This time for the top section of the video
 
 ![add-subtitle-again](https://images.wondershare.com/filmora/article-images/add-subtitle-again.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * 7\. You can input your own texts in the box or delete the text as you want, and you will be left with a video that has black bars on the top and bottom
 
 ![get-both-letterbox](https://images.wondershare.com/filmora/article-images/get-both-letterbox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * 8\. Export the video to your computer or phone in mp4, then upload it to Facebook, and finally, you will see the magic!
@@ -127,7 +119,7 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 ![post-my-video](https://images.wondershare.com/filmora/article-images/post-my-video.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## To Sum up
@@ -136,7 +128,15 @@ Adding a letterbox, then designing your own texts, elements and filters will bri
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -153,24 +153,21 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-hitching-a-ride-in-high-flying-tiktok-live-shows-for-2024/"><u>[New] Hitching a Ride in High-Flying TikTok Live Shows for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-affiliate-allies-for-small-channels-an-easy-approach/"><u>[New] In 2024, Affiliate Allies for Small Channels An Easy Approach</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-the-shutters-symphony-top-techniques-for-exquisite-images/"><u>[New] The Shutter's Symphony Top Techniques for Exquisite Images</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-expert-strategies-for-managing-facebook-lives-in-two-screens/"><u>[Updated] 2024 Approved Expert Strategies for Managing Facebook Lives in Two Screens</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-cutting-edge-tactics-for-grabbing-your-favorite-fb-vids-for-2024/"><u>[Updated] Cutting Edge Tactics for Grabbing Your Favorite FB Vids for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-how-to-prevent-and-mend-streaming-hiccups-in-fb-livestran-for-2024/"><u>[Updated] How to Prevent and Mend Streaming Hiccups in FB Livestran for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-setting-up-facebook-live-your-roku-route/"><u>[Updated] In 2024, Setting Up Facebook LIVE Your Roku Route</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-signal-profileshots-guide-dimensions-file-type-minutes/"><u>[Updated] In 2024, Signal Profileshots Guide Dimensions, File Type, Minutes</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-streamlining-your-site-facebook-live-integration-guide/"><u>[Updated] In 2024, Streamlining Your Site Facebook LIVE Integration Guide</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-start-with-simple-understanding-facebook-metrics-for-newbies-for-2024/"><u>[Updated] Start with Simple Understanding Facebook Metrics for Newbies for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/how-to-make-a-youtube-intro-video/"><u>2024 | How to Make a YouTube Intro Video？</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/add-emotional-depth-learn-to-create-a-ken-burns-effect-in-minutes-for-2024/"><u>Add Emotional Depth Learn to Create a Ken Burns Effect in Minutes for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/from-adventure-to-audience-transforming-gopro-footage-with-social-media/"><u>From Adventure to Audience Transforming Gopro Footage with Social Media</u></a></li>
-<li><a href="https://program-issues.techidaily.com/god-of-war-action-packed-first-person-shooter-now-available-for-windows-gamers/"><u>God of War Action-Packed First Person Shooter Now Available for Windows Gamers!</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/how-to-install-drivers-for-your-xbox-360-gaming-pad-online/"><u>How To Install Drivers For Your Xbox 360 Gaming Pad Online</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/new-2024-approved-the-ultimate-mac-movie-making-handbook-2023-edition/"><u>New 2024 Approved The Ultimate Mac Movie Making Handbook (2023 Edition)</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/simplified-techniques-for-crafting-captions-on-fb-videos/"><u>Simplified Techniques for Crafting Captions on FB Videos</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/understanding-the-limitations-exploring-why-modern-gpt-3-alternatives-lack-unauthorized-modifications/"><u>Understanding the Limitations: Exploring Why Modern GPT-3 Alternatives Lack Unauthorized Modifications</u></a></li>
-<li><a href="https://common-error.techidaily.com/winning-the-battle-against-graphics-card-restrictions-your-ultimate-fix-for-fortnite-on-windows/"><u>Winning the Battle Against Graphics Card Restrictions – Your Ultimate Fix for Fortnite on Windows</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-guiding-iphone-and-android-owners-to-fix-video-sending-problems-in-fb-chat/"><u>[New] 2024 Approved Guiding iPhone & Android Owners to Fix Video Sending Problems in FB Chat</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-unlocking-profit-the-step-by-step-guide-to-assess-your-youtube-earnings/"><u>[New] In 2024, Unlocking Profit The Step-by-Step Guide to Assess Your YouTube Earnings</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-social-media-strategies-for-showcasing-your-video-content-for-2024/"><u>[New] Social Media Strategies for Showcasing Your Video Content for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-total-guide-ultimate-video-show-experience-in-24/"><u>[New] Total Guide Ultimate Video Show Experience in '24</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-decoding-the-latest-shifts-in-facebook-landscape/"><u>[Updated] 2024 Approved Decoding the Latest Shifts in Facebook Landscape</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-expertly-choosing-the-leading-5-facebook-video-grabers/"><u>[Updated] 2024 Approved Expertly Choosing the Leading 5 Facebook Video Grabers</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-how-to-live-stream-360-videos-on-facebook/"><u>[Updated] 2024 Approved How to Live Stream 360 Videos on Facebook</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-hitting-your-targets-with-these-8-social-media-planners-for-2024/"><u>[Updated] Hitting Your Targets with These 8 Social Media Planners for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-innovative-tech-for-your-instant-sharing-needs-on-facebook/"><u>[Updated] Innovative Tech for Your Instant Sharing Needs on Facebook</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-photo-viewer-revival-techniques-for-enhanced-windows-11-experience/"><u>[Updated] Photo Viewer Revival Techniques for Enhanced Windows 11 Experience</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-why-do-my-photoshoot-videos-grind-to-a-halt/"><u>[Updated] Why Do My Photoshoot Videos Grind to a Halt?</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-exploring-ways-to-share-youtube-videos-on-social-media-platforms-fb/"><u>2024 Approved Exploring Ways to Share YouTube Videos on Social Media Platforms (FB)</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-unveiling-the-most-reliable-9-mic-devices-for-recording/"><u>2024 Approved Unveiling the Most Reliable 9 Mic Devices for Recording</u></a></li>
+<li><a href="https://discover-deluxe.techidaily.com/generate-amazing-flash-flipbooks-for-zero-cost-a-guide-to-using-text-to-flipbook-converter-tools/"><u>Generate Amazing Flash Flipbooks for Zero Cost: A Guide to Using Text-to-FlipBook Converter Tools!</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-perfect-presentations-with-a-personal-touch-adding-audio/"><u>In 2024, Perfect Presentations with a Personal Touch Adding Audio</u></a></li>
+<li><a href="https://extra-support.techidaily.com/redefining-visual-storytelling-with-vidas-advanced-tools-for-2024/"><u>Redefining Visual Storytelling with Vida's Advanced Tools for 2024</u></a></li>
 </ul></div>
 

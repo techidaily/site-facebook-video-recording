@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Unfold Time  How To Watch Previous FB Content\""
-date: 2024-11-25T20:10:43.200Z
-updated: 2024-11-28T19:49:20.887Z
+date: 2024-12-06T16:23:17.486Z
+updated: 2024-12-07T16:56:01.120Z
 tags:
   - ai video
   - ai facebook
@@ -44,7 +44,7 @@ Facebook stories are a short generated collection of photos and videos that the 
 You can share the content on Facebook stories, which will appear at the top of the Facebook news feed. Also, if you are confused about how to view old stories on Facebook, users need to Tap on friends’ circle at the top area of the application, and while watching the story, one could also reply with a direct message feature.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to See Old Facebook Stories on Desktop?
@@ -57,16 +57,12 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 
 ![facebook old stories more](https://images.wondershare.com/filmora/article-images/2021/facebook-old-stories-more.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3:** Now just tap on the “Story Archive” option from the list.
 
 ![facebook story archive](https://images.wondershare.com/filmora/article-images/2021/facebook-story-archive.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 4:** After this, you would be shown all the stories sequentially in the Story Archives section.
@@ -85,13 +81,13 @@ You can find and see the old stories on Facebook with the help of the archived s
 
 ![watch old stories facebook](https://images.wondershare.com/filmora/article-images/2021/watch-old-stories-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 4:** Scroll towards the right and select on Story Archives tab.
 
 ![story archive facebook mobile](https://images.wondershare.com/filmora/article-images/2021/story-archive-facebook-mobile.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 5:** Now you would get to see all the old stories you have created sequentially from newest to oldest order.
 
@@ -105,13 +101,13 @@ The only chance is that if your friend has uploaded those stories on highlights 
 
 ![see friends old fb story](https://images.wondershare.com/filmora/article-images/2021/see-friends-old-fb-story.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 An old highlighted story shared by your friend would appear on your friend’s profile below the Friends section and above create post option as Story Highlights.
 
 So for the above discussed all ways the only must thing is to setting archive on which would allow you to re-watch stories again and solve your doubt of how to view old stories on Facebook.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 5: How to Create Facebook Videos with Ease?
 
@@ -163,6 +159,10 @@ Happy editing!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -178,19 +178,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-the-essentials-of-creating-memorable-fb-slideshows/"><u>[New] 2024 Approved The Essentials of Creating Memorable FB Slideshows</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-unraveling-the-mysteries-of-instagrams-video-timeframe/"><u>[New] 2024 Approved Unraveling the Mysteries of Instagram's Video Timeframe</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-proven-ways-to-archive-your-whatsapp-chat-history-efficiently-for-2024/"><u>[New] Proven Ways to Archive Your WhatsApp Chat History Efficiently for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-crafting-viral-covers-for-your-facebook-profile/"><u>[Updated] In 2024, Crafting Viral Covers for Your Facebook Profile</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-the-ultimate-guide-to-shoot-and-upload-immersive-footage-on-fb-for-2024/"><u>[Updated] The Ultimate Guide to Shoot & Upload Immersive Footage on FB for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-watch-over-instagrams-friendship-shifts-for-2024/"><u>[Updated] Watch Over Instagram's Friendship Shifts for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/movavim4awebm/"><u>無須付費 - MOVAVI網站直接轉成M4A格式的WEBM影片</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/discarding-virtual-gatherings-on-fb-pcsmartphones/"><u>Discarding Virtual Gatherings on FB, PC/Smartphones</u></a></li>
-<li><a href="https://discover-hacks.techidaily.com/enhance-your-videos-with-these-top-5-color-correction-utilities-on-android-and-iphone/"><u>Enhance Your Videos with These Top 5 Color Correction Utilities on Android and iPhone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-acquiring-large-format-fb-videos-effortlessly/"><u>In 2024, Acquiring Large-Format FB Videos Effortlessly</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-best-anti-tracker-software-for-vivo-v30-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Best Anti Tracker Software For Vivo V30 Pro | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-step-by-step-facebook-live-on-roku-platform/"><u>In 2024, Step-by-Step Facebook Live on Roku Platform</u></a></li>
-<li><a href="https://windows11.techidaily.com/the-simple-trick-to-finding-your-installed-application-home/"><u>The Simple Trick to Finding Your Installed Application Home</u></a></li>
-<li><a href="https://windows11.techidaily.com/win11-terminal-default-setting-restoration-guide/"><u>Win11 Terminal: Default Setting Restoration Guide</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-from-recording-to-revealing-uploading-high-quality-vr-on-fb-for-2024/"><u>[New] From Recording to Revealing Uploading High-Quality VR on FB for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-spectacular-sites-featuring-rich-3d-and-golden-text/"><u>[New] In 2024, Spectacular Sites Featuring Rich 3D and Golden Text</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-gastronomes-blueprint-filming-feasts/"><u>[New] The Gastronome’s Blueprint Filming Feasts</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-tiktok-content-creation-navigating-copyright-rules/"><u>[New] TikTok Content Creation Navigating Copyright Rules</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-android-music-integration-a-guide-to-social-media-playlists/"><u>[Updated] Android Music Integration A Guide to Social Media Playlists</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-facebooks-novelty-the-leading-five-new-features-unraveled/"><u>[Updated] Facebook's Novelty The Leading Five New Features Unraveled</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-top-5-chrome-plug-ins-for-snatching-fb-videos/"><u>[Updated] In 2024, Top 5 Chrome Plug-Ins for Snatching FB Videos</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-turn-any-surface-into-a-broadcasting-space-with-vlcs-webcam-feature/"><u>2024 Approved Turn Any Surface Into a Broadcasting Space with VLC’s Webcam Feature</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/capturing-virtual-conversations-in-real-time/"><u>Capturing Virtual Conversations in Real Time</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/digital-doppelganger-deliberation-building-caricatured-characters-for-2024/"><u>Digital Doppelganger Deliberation Building Caricatured Characters for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-streamline-your-media-experience-with-pip-in-safari/"><u>In 2024, Streamline Your Media Experience with PIP in Safari</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-complete-macos-11-big-sur-evolution-explained/"><u>In 2024, The Complete MacOS 11 Big Sur Evolution Explained</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-art-of-alteration-a-guide-to-video-color-correction-11-parts/"><u>The Art of Alteration A Guide to Video Color Correction (11 Parts)</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/the-ultimate-playbook-for-splitting-views-in-facebook-livestreams/"><u>The Ultimate Playbook for Splitting Views in Facebook Livestreams</u></a></li>
+<li><a href="https://common-error.techidaily.com/top-strategies-to-resolve-windows-11-update-issue-error-0x800f0922/"><u>Top Strategies to Resolve Windows 11 Update Issue: Error 0X800F0922</u></a></li>
+<li><a href="https://howto.techidaily.com/why-is-my-vivo-v27-offline-troubleshooting-guide-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Is My Vivo V27 Offline? Troubleshooting Guide | Dr.fone</u></a></li>
 </ul></div>
 

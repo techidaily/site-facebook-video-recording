@@ -1,7 +1,7 @@
 ---
 title: "\"[New] From Zero to Hero  Establishing a New Social Media Presence (Facebook)\""
-date: 2024-11-26T21:57:59.099Z
-updated: 2024-11-28T17:39:22.564Z
+date: 2024-12-03T04:32:37.702Z
+updated: 2024-12-07T17:40:22.910Z
 tags:
   - ai video
   - ai facebook
@@ -30,7 +30,7 @@ thumbnail: https://thmb.techidaily.com/a172e0efcea75add6ab8eef1d0430a010e6f31545
  So, follow these guidelines to get started with a new Facebook account.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Create a Facebook Account
@@ -41,6 +41,10 @@ thumbnail: https://thmb.techidaily.com/a172e0efcea75add6ab8eef1d0430a010e6f31545
 
 ![facebook create account](https://images.wondershare.com/filmora/article-images/facebook-create-account.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Then enter your accurate and working mobile number or users can also prefer to update their email ID. It will be useful to get updates regarding their facebook account. Up date your desired secure password, birthday details and gender information. Once you enter this information, you will receive a verification code via SMS (if you have entered Mobile Number) or a link in email (if you have entered your email ID). Confirm your identity using this code or email link as your account will be created only after this verification.
 
 #### Step 2.Set up Privacy Settings
@@ -50,19 +54,23 @@ thumbnail: https://thmb.techidaily.com/a172e0efcea75add6ab8eef1d0430a010e6f31545
 ![facebook settings option](https://images.wondershare.com/filmora/article-images/facebook-settings-option.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  A new settings window will open and you will find so many options in a navigation pane located at left hand side. Select privacy settings from this long list.
 
 ![facebook privacy settings](https://images.wondershare.com/filmora/article-images/facebook-privacy-settings.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  You will find different options for content audience: Public, Friends, Specific Friends and Only Me, chose any of these as per your need. Note that privacy settings can be also adjusted at the time of new post updates.
 
 ![facebook public settings](https://images.wondershare.com/filmora/article-images/facebook-public-settings.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Step 3.Complete Profile Information
@@ -93,10 +101,6 @@ thumbnail: https://thmb.techidaily.com/a172e0efcea75add6ab8eef1d0430a010e6f31545
 
 ![facebook search bar](https://images.wondershare.com/filmora/article-images/facebook-search-bar.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Import:** Facebook also allows users to directly import their contacts. It can search contacts via Gmail, Outlook, Yahoo, AIM, Live Messenger etc. Simply move to find friend page to get started with this feature.
 
 ![facebook find friends](https://images.wondershare.com/filmora/article-images/facebook-find-friends.jpg)
@@ -104,10 +108,6 @@ thumbnail: https://thmb.techidaily.com/a172e0efcea75add6ab8eef1d0430a010e6f31545
  So finally, it is time to update an eye catching status for your friends on your new Facebook account.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -124,16 +124,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-facebook-videos-vertical-or-horizontal/"><u>[New] Facebook Videos; Vertical or Horizontal?</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-frugal-cloud-loft-economical-space-for-huge-file-stashes/"><u>[New] Frugal Cloud Loft Economical Space for Huge File Stashes</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-tech-savvy-tips-to-ensure-perfect-call-recording-on-facetime/"><u>[New] Tech-Savvy Tips to Ensure Perfect Call Recording on FaceTime</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-2024-approved-the-pathway-to-viral-fame-mastering-instagram-with-these-9-essential-strategies/"><u>[Updated] 2024 Approved The Pathway to Viral Fame Mastering Instagram with These 9 Essential Strategies</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-transforming-social-media-traffic-into-revenue/"><u>[Updated] 2024 Approved Transforming Social Media Traffic Into Revenue</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-fostering-connection-strategies-for-striking-fb-slideshows-for-2024/"><u>[Updated] Fostering Connection Strategies for Striking FB Slideshows for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-updated-compilation-prime-top-10-android-apps-for-facebook-video-download/"><u>2024 Approved Updated Compilation Prime Top 10 Android Apps for Facebook Video Download</u></a></li>
-<li><a href="https://discover-helper.techidaily.com/comment-recuperer-des-dossiers-disparus-dans-outlook-guide-complet/"><u>Comment Récupérer Des Dossiers Disparus Dans Outlook - Guide Complet</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-7-phone-number-locators-to-track-tecno-pova-6-pro-5g-location-drfone-by-drfone-virtual-android/"><u>Top 7 Phone Number Locators To Track Tecno Pova 6 Pro 5G Location | Dr.fone</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/trouvez-lequivalent-du-programme-robocopy-sur-macos-solutions-et-recommandations-avisees/"><u>Trouvez L'équivalent Du Programme Robocopy Sur macOS : Solutions Et Recommandations Avisées</u></a></li>
-<li><a href="https://howto.techidaily.com/why-is-my-motorola-moto-g14-offline-troubleshooting-guide-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Is My Motorola Moto G14 Offline? Troubleshooting Guide | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-15-techniques-to-ensure-facebook-videos-are-spotlighted/"><u>[New] 15 Techniques to Ensure Facebook Videos Are Spotlighted</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-build-a-fortified-mc-base-plan-6-10-for-2024/"><u>[New] Build a Fortified MC Base Plan #6-10 for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-essential-writing-habits-for-successful-fb-campaigns/"><u>[New] Essential Writing Habits for Successful FB Campaigns</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-setting-up-facebook-live-your-roku-route-for-2024/"><u>[New] Setting Up Facebook LIVE Your Roku Route for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-harmony-in-minutes-no-credit-due/"><u>[Updated] 2024 Approved Harmony in Minutes, No Credit Due</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-quick-fixes-to-resume-paused-stream-on-facebook/"><u>[Updated] 2024 Approved Quick Fixes to Resume Paused Stream on Facebook</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-harmonic-halo-melodies-enriching-chats-on-whatsapp-for-2024/"><u>[Updated] Harmonic Halo Melodies Enriching Chats on WhatsApp for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-jumpstart-your-collaboration-zooms-screen-share-essentials/"><u>[Updated] In 2024, Jumpstart Your Collaboration Zoom's Screen-Share Essentials</u></a></li>
+<li><a href="https://discover-community.techidaily.com/1-freemake-video-converter-evaluation-security-cost-free-features-and-value-assessment/"><u>1. Freemake Video Converter Evaluation: Security, Cost-Free Features & Value Assessment</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-digital-discussion-documentary-vault/"><u>2024 Approved Digital Discussion Documentary Vault</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-discontent-with-interconnected-virtual-worlds/"><u>Analyzing Discontent with Interconnected Virtual Worlds</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/beatbox-your-way-up-the-ultimate-guide-for-top-10-music-vids-for-2024/"><u>BeatBox Your Way Up The Ultimate Guide for Top 10 Music Vids for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/get-smart-savings-on-tech-save-80-when-you-purchase-the-ideal-lenovo/"><u>Get Smart Savings on Tech: Save $80 When You Purchase the Ideal Lenovo</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-t-mobile-iphone-12-pro-online-without-sim-card-by-drfone-ios/"><u>How to Unlock T-Mobile iPhone 12 Pro online without SIM Card?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-14-youtube-adsense-earnings-how-much-does-adsense-pay-per-1000-views/"><u>In 2024, 14- YouTube AdSense Earnings How Much Does AdSense Pay per 1,000 Views</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-the-art-of-bio-storytelling-on-social-media-platforms/"><u>In 2024, The Art of Bio Storytelling on Social Media Platforms</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/join-the-social-gaming-movement-xbox-and-fb-livestreams-for-2024/"><u>Join the Social Gaming Movement Xbox & FB Livestreams for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/solve-your-syncing-woes-restoring-live-updates-on-iphone-mail-app/"><u>Solve Your Syncing Woes: Restoring Live Updates on iPhone Mail App</u></a></li>
+<li><a href="https://fake-location.techidaily.com/which-is-the-best-fake-gps-joystick-app-on-oppo-reno-10-5g-drfone-by-drfone-virtual-android/"><u>Which is the Best Fake GPS Joystick App On Oppo Reno 10 5G? | Dr.fone</u></a></li>
 </ul></div>
 

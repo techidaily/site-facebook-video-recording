@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, From Strangers to Community  Your Facebook Onboarding Journey\""
-date: 2024-11-13T01:10:08.411Z
-updated: 2024-11-19T18:20:45.365Z
+date: 2024-12-05T21:41:18.369Z
+updated: 2024-12-07T18:40:55.083Z
 tags:
   - ai video
   - ai facebook
@@ -37,6 +37,10 @@ thumbnail: https://thmb.techidaily.com/24c4d966d5ae08b9992d6ca8e560b523aa54e9e6e
 
 ![facebook create account](https://images.wondershare.com/filmora/article-images/facebook-create-account.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Then enter your accurate and working mobile number or users can also prefer to update their email ID. It will be useful to get updates regarding their facebook account. Up date your desired secure password, birthday details and gender information. Once you enter this information, you will receive a verification code via SMS (if you have entered Mobile Number) or a link in email (if you have entered your email ID). Confirm your identity using this code or email link as your account will be created only after this verification.
 
 #### Step 2.Set up Privacy Settings
@@ -45,9 +49,17 @@ thumbnail: https://thmb.techidaily.com/24c4d966d5ae08b9992d6ca8e560b523aa54e9e6e
 
 ![facebook settings option](https://images.wondershare.com/filmora/article-images/facebook-settings-option.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  A new settings window will open and you will find so many options in a navigation pane located at left hand side. Select privacy settings from this long list.
 
 ![facebook privacy settings](https://images.wondershare.com/filmora/article-images/facebook-privacy-settings.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  You will find different options for content audience: Public, Friends, Specific Friends and Only Me, chose any of these as per your need. Note that privacy settings can be also adjusted at the time of new post updates.
 
@@ -81,9 +93,17 @@ thumbnail: https://thmb.techidaily.com/24c4d966d5ae08b9992d6ca8e560b523aa54e9e6e
 
 ![facebook search bar](https://images.wondershare.com/filmora/article-images/facebook-search-bar.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Import:** Facebook also allows users to directly import their contacts. It can search contacts via Gmail, Outlook, Yahoo, AIM, Live Messenger etc. Simply move to find friend page to get started with this feature.
 
 ![facebook find friends](https://images.wondershare.com/filmora/article-images/facebook-find-friends.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  So finally, it is time to update an eye catching status for your friends on your new Facebook account.
 
@@ -104,21 +124,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-unlocking-the-secrets-to-successful-360-streaming-on-fb/"><u>[New] 2024 Approved Unlocking the Secrets to Successful 360 Streaming on FB</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-boosting-youtube-descriptions-with-expert-templates/"><u>[New] Boosting YouTube Descriptions with Expert Templates</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-15-popular-youtube-intro-video-templates/"><u>[Updated] 2024 Approved 15 Popular YouTube Intro Video Templates</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-exploring-entertainment-youtubes-integration-with-fb/"><u>[Updated] Exploring Entertainment YouTube's Integration with FB</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-viral-hits-the-top-10-music-videos-on-fb-now/"><u>[Updated] Viral Hits The Top 10 Music Videos on FB Now</u></a></li>
-<li><a href="https://location-fake.techidaily.com/10-best-fake-gps-location-spoofers-for-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>10 Best Fake GPS Location Spoofers for Apple iPhone 8 | Dr.fone</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/10-tips-to-get-your-in-car-music-streaming-smoothly-on-android-auto/"><u>10 Tips to Get Your In-Car Music Streaming Smoothly on Android Auto</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-breaking-into-the-world-of-social-broadcasts-and-roku/"><u>In 2024, Breaking Into the World of Social Broadcasts & Roku</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-elevate-engagement-youtube-seo-must-haves/"><u>In 2024, Elevate Engagement - YouTube SEO Must-Haves</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-seek-all-sharing-in-a-group-chat-via-messenger/"><u>[New] 2024 Approved Seek All Sharing in a Group Chat via Messenger</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-experience-professional-facebook-profile-picture-design-with-these-tools/"><u>[New] In 2024, Experience Professional Facebook Profile Picture Design with These Tools</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-top-7-social-media-screen-grabs/"><u>[New] Top 7 Social Media Screen Grabs</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-online-event-replay-collectors/"><u>[Updated] 2024 Approved Online Event Replay Collectors</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-engage-audiences-flawlessly-with-live-screenshares/"><u>[Updated] In 2024, Engage Audiences Flawlessly with Live Screenshares</u></a></li>
+<li><a href="https://fox-links.techidaily.com/augmented-reality-how-android-enhances-viewing-experience-for-2024/"><u>Augmented Reality How Android Enhances Viewing Experience for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/cyberpunk-2077-sound-malfunction-troubleshooting-guide-for-windows-11-gamers/"><u>Cyberpunk 2077 Sound Malfunction Troubleshooting Guide for Windows 11 Gamers</u></a></li>
+<li><a href="https://discover-best.techidaily.com/enhance-site-analytics-with-our-cookiebot-integration-solutions/"><u>Enhance Site Analytics with Our Cookiebot Integration Solutions</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/fiverr-cover-content-proportions/"><u>Fiverr Cover Content Proportions</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-activation-lock-on-mac-for-apple-iphone-12-pro-by-drfone-ios/"><u>How To Bypass iCloud Activation Lock on Mac For Apple iPhone 12 Pro?</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/how-to-enable-and-watch-fubotv-channels-on-your-fire-stick/"><u>How to Enable and Watch FuboTV Channels on Your Fire Stick</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-life360-shows-wrong-location-on-vivo-y56-5g-drfone-by-drfone-virtual-android/"><u>How to Fix Life360 Shows Wrong Location On Vivo Y56 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-proven-techniques-to-amplify-your-youtube-presence/"><u>In 2024, Proven Techniques to Amplify Your YouTube Presence</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/maximizing-screen-real-estate-on-fb-media/"><u>Maximizing Screen Real Estate on Fb Media</u></a></li>
+<li><a href="https://fox-that.techidaily.com/overcome-apple-transaction-denial-with-these-6-effective-fixes/"><u>Overcome Apple Transaction Denial with These 6 Effective Fixes</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/premier-mp4-to-fb-video-transforming-tools/"><u>Premier MP4 to FB Video Transforming Tools</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/ultimate-protection-sleek-and-durable-ipad-pro-13-inch-cases-reviewed/"><u>Ultimate Protection: Sleek & Durable iPad Pro 13-Inch Cases Reviewed</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

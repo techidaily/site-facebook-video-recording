@@ -1,7 +1,7 @@
 ---
 title: "[New] 2023 | How to Find Videos on Facebook for 2024"
-date: 2024-11-15T02:07:13.526Z
-updated: 2024-11-19T18:10:33.070Z
+date: 2024-12-05T18:28:38.837Z
+updated: 2024-12-07T19:20:35.953Z
 tags:
   - ai video
   - ai facebook
@@ -121,19 +121,6 @@ Suppose you were watching a video that you wanted to save, but somehow it got di
 
 Here, we will help you find the Recently Watched Videos on PC and phone.
 
-<!-- affiliate ads begin -->
-<span id="1492813">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Finding Recently Watched Videos on Computer
 
 To find Facebook videos that you have watched recently on the computer, follow the steps given below.
@@ -194,6 +181,10 @@ You will see three dots beside the "Add to Story" button. Click on them. This wi
 
 ![Click on the Three Dots](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-14.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 5: Go to “Activity Log”**
 
 From the Profile Settings, click on “Activity Log” and then scroll down. Click on “Logged actions and other activity.”
@@ -201,6 +192,10 @@ From the Profile Settings, click on “Activity Log” and then scroll down. Cli
 ![Go to “Activity Log”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-15.png)
 
 ![Click on “Logged actions and other activity.” ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-16.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 6: Click on “Videos you’ve watched.”**
 
@@ -240,13 +235,6 @@ Part 1: [How to Find Saved Videos on Facebook on PC or Mobile?](#step1)
 
 Part 2: [How to Find Videos on Facebook You Recently Watched?](#step2)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 1\. How to Find Saved Videos on Facebook on PC or Mobile?
 
 Since you can use Facebook on both PC and mobile, we will give you instructions with respect to both.
@@ -274,10 +262,7 @@ Once you log in, you will see your News Feed. On the left side of your screen, a
 ![Search for the “Saved” tab](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-3.png)
 
 <!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 4: Click on Saved**
@@ -318,6 +303,10 @@ In order to view the saved video quickly, click on “See All” under the Most 
 
 ![Click on “See All”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-7.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 5: Filter the Items**
 
 Click on the Filter icon, and a dropdown list will appear. To view all the videos, select "Videos" from the list.
@@ -329,13 +318,6 @@ Click on the Filter icon, and a dropdown list will appear. To view all the video
 Scroll through the videos to find the one you want.
 
 The steps given above will lead you to your Saved videos.
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
-  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2\. How to Find Videos on Facebook You Recently Watched?
 
@@ -362,13 +344,6 @@ On the top right corner of the screen, you will see your name; click on it to go
 Under your profile, on the right, you will see three dots. Click on them to access the dropdown menu.
 
 ![Click on the Three Dots](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-10.png)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 4: Go to Activity Log**
 
@@ -416,6 +391,10 @@ From the Profile Settings, click on “Activity Log” and then scroll down. Cli
 
 ![Go to “Activity Log”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-15.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Click on “Logged actions and other activity.” ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-16.png)
 
 **Step 6: Click on “Videos you’ve watched.”**
@@ -425,6 +404,10 @@ From the list of activities, tap on “Videos you’ve watched.”
 ![Click on “Videos you’ve watched.” ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-17.png)
 
 The screen will display all the videos you have watched recently. Watch the one you were looking for and enjoy!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Side note
 
@@ -574,13 +557,6 @@ From the list of activities, select “Videos you’ve watched.” This will dis
 
 ![Select “Videos you’ve watched”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-12.png)
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
-  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Finding Recently Watched Videos on Phone
 
 Now, let's see how it works on the mobile. Follow the step-by-step guideline.
@@ -611,13 +587,6 @@ From the Profile Settings, click on “Activity Log” and then scroll down. Cli
 
 ![Go to “Activity Log”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-15.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Click on “Logged actions and other activity.” ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-16.png)
 
 **Step 6: Click on “Videos you’ve watched.”**
@@ -625,6 +594,10 @@ From the Profile Settings, click on “Activity Log” and then scroll down. Cli
 From the list of activities, tap on “Videos you’ve watched.”
 
 ![Click on “Videos you’ve watched.” ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-17.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The screen will display all the videos you have watched recently. Watch the one you were looking for and enjoy!
 
@@ -678,6 +651,10 @@ Here, log in to your Facebook account.
 
 ![Log in to your account](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-2.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3: Search for the "Saved” tab.**
 
 Once you log in, you will see your News Feed. On the left side of your screen, a panel is visible. In that panel, you will see a “Saved” tab.
@@ -716,6 +693,10 @@ In the Menu, scroll down to see the "Saved" tab. Click on it.
 
 ![Go to Saved](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-6.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4: Click on “See All”**
 
 In order to view the saved video quickly, click on “See All” under the Most Recent tab.
@@ -727,13 +708,6 @@ In order to view the saved video quickly, click on “See All” under the Most 
 Click on the Filter icon, and a dropdown list will appear. To view all the videos, select "Videos" from the list.
 
 ![Filter the Items](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-8.png)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 6: Watch the Video**
 
@@ -822,6 +796,10 @@ From the list of activities, tap on “Videos you’ve watched.”
 ![Click on “Videos you’ve watched.” ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-17.png)
 
 The screen will display all the videos you have watched recently. Watch the one you were looking for and enjoy!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Side note
 
@@ -860,19 +838,22 @@ We hope it helps!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-live-follower-tracker-software/"><u>[New] Live Follower Tracker Software</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-targeted-thought-leadership-with-profound-fb-video-strategies/"><u>[New] Targeted Thought Leadership with Profound FB Video Strategies</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-beginners-blueprint-for-launching-a-vlog-series-on-product-critiques/"><u>[Updated] Beginner's Blueprint for Launching a Vlog Series on Product Critiques</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-from-twitters-tube-to-your-whatsapp-buddy-list/"><u>[Updated] From Twitter's Tube to Your WhatsApp Buddy List</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-mastering-trends-top-10-instagram-tags-to-elevate-your-presence/"><u>[Updated] In 2024, Mastering Trends Top 10 Instagram Tags to Elevate Your Presence</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-the-pursuit-of-ultra-clarity-the-4k-z32x-reviewed/"><u>[Updated] The Pursuit of Ultra Clarity The 4K Z32X Reviewed</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-transform-the-virtual-arena-engage-with-ease-during-live-streaming-for-2024/"><u>[Updated] Transform the Virtual Arena Engage with Ease During Live Streaming for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-pixel-perfect-facebook-recording-tools/"><u>2024 Approved Pixel-Perfect Facebook Recording Tools</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/crafting-the-ideal-mc-village-abode/"><u>Crafting the Ideal MC Village Abode</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-messages-from-vivo-by-fonelab-android-recover-messages/"><u>Easy steps to recover deleted messages from Vivo</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/gpt-series-breakdown-what-sets-apart-gpt-4-from-its-turbocharged-cousins-gpt-4turbo-and-gpt-4o/"><u>GPT Series Breakdown: What Sets Apart GPT-4 From Its Turbocharged Cousins GPT-4Turbo & GPT-4o</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-hide-and-seek-with-fb-episodes/"><u>In 2024, Hide-and-Seek with FB Episodes</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/navigating-the-world-of-fb-instream-ads-a-comprehensive-setup-manual-for-2024/"><u>Navigating the World of FB Instream Ads A Comprehensive Setup Manual for 2024</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/resolving-the-issue-fixing-multi-audio-services-not-operating/"><u>Resolving the Issue: Fixing Multi-Audio Services Not Operating</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-accelerating-operations-discover-the-leading-scheduling-tools/"><u>[New] 2024 Approved Accelerating Operations Discover the Leading Scheduling Tools</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-efficient-mp4-conversion-software-facebook-targeted/"><u>[New] 2024 Approved Efficient MP4 Conversion Software (Facebook Targeted)</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-how-to-activate-and-customize-zooms-virtual-screen-mode/"><u>[New] 2024 Approved How to Activate and Customize Zoom's Virtual Screen Mode</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-essential-steps-for-mp3-streams-on-youtube-for-2024/"><u>[New] Essential Steps for MP3 Streams on Youtube for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-clear-facebook-broadcast-laptops-and-phones-included/"><u>[New] In 2024, Clear Facebook Broadcast Laptops and Phones Included</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-explore-all-content-jointly-shared-photos-and-vids/"><u>[Updated] Explore All Content Jointly Shared Photos & Vids</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-buzzfeed-gurus-flashing-with-snapchat/"><u>[Updated] In 2024, BuzzFeed Gurus Flashing with Snapchat</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-dive-into-360-videos-iphone-edition-for-facebook-posts/"><u>[Updated] In 2024, Dive Into 360 Videos IPhone Edition for Facebook Posts</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-fbs-top-songs-on-screen-a-step-by-step-vlog-series/"><u>2024 Approved FB's Top Songs on Screen A Step-by-Step Vlog Series</u></a></li>
+<li><a href="https://fox-shield.techidaily.com/easy-steps-to-restore-accidentally-deleted-outlook-pst-files-instantly/"><u>Easy Steps to Restore Accidentally Deleted Outlook PST Files Instantly</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-share-location-in-messenger-on-oneplus-nord-n30-se-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share Location in Messenger On OnePlus Nord N30 SE? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-proven-ways-in-how-to-hide-location-on-life360-for-realme-note-50-drfone-by-drfone-virtual-android/"><u>In 2024, Proven Ways in How To Hide Location on Life360 For Realme Note 50 | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-vivo-v29e-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Vivo V29e | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/pixel-perfect-facebook-recording-tools/"><u>Pixel-Perfect Facebook Recording Tools</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-your-photos-after-note-30-pro-has-been-deleted-by-fonelab-android-recover-photos/"><u>Recover your photos after Note 30 Pro has been deleted.</u></a></li>
+<li><a href="https://techtrends.techidaily.com/troubleshooting-guide-restoring-functionality-of-a-non-responsive-amazon-firestick-remote/"><u>Troubleshooting Guide: Restoring Functionality of a Non-Responsive Amazon Firestick Remote</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/turning-pre-recorded-videos-into-a-captivating-live-experience-on-fb-for-2024/"><u>Turning Pre-Recorded Videos Into a Captivating Live Experience on FB for 2024</u></a></li>
 </ul></div>
 

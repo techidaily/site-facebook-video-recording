@@ -1,7 +1,7 @@
 ---
 title: "[New] How to Search People on Facebook Quickly (2 Ways Included) for 2024"
-date: 2024-11-22T16:52:27.070Z
-updated: 2024-11-28T19:19:36.269Z
+date: 2024-12-03T17:55:53.707Z
+updated: 2024-12-08T00:46:49.943Z
 tags:
   - ai video
   - ai facebook
@@ -35,7 +35,7 @@ Here are two ways to search people on Facebook. The second option also helps you
 * [**Part 2: How to search people using Search Is Back**](#part2)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How to search people on Facebook
@@ -44,6 +44,10 @@ Here are two ways to search people on Facebook. The second option also helps you
 
 Open Facebook on your computer – Firstly, open a web browser and get to the Facebook website. You can find the log in fields on the top right corner of the page. Input your user ID and password and hit the login button at the side to proceed further.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Step 2: Check your list of Friends on Facebook
 
 On the header tool icons, click on your name and you are directed to your Facebook wall or timeline. Just below your cover image, click the friend’s tab, to reach the Friends page that shows all your friends on Facebook.
@@ -51,7 +55,7 @@ On the header tool icons, click on your name and you are directed to your Facebo
 ![facebook friends tab](https://images.wondershare.com/filmora/article-images/facebook-friends-tab.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 3: Friends Finder Page
@@ -65,12 +69,16 @@ To reach the friend’s finder page, click on “find friends” from the friend
 On the top right of old friends search, you can find the “search for your friends” filters. To search your old friends by name, you have to enter their part or full names in the name field and look for them. To find your friends by their location, you may enter your friend’s hometown city’s name in the hometown field to search them by the place when they earlier lived in. To find your school friends or High school and university friends, you may enter the schools’ name and search for them. For searching your old colleagues, you may enter the company or employer’s name and find people who worked in the same organization.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 5: Check the results
 
 On the left panel, you can find several names matching your search filter. You just need to scroll and check the displayed list to see if any of your old friends are there in the list. Once you find your old friends, click on the “add friends” button beside their name and the person is added to your official list of friends on Facebook.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How to search people using Search Is Back
 
@@ -80,17 +88,9 @@ On a browser open the [Search is Back site](https://searchisback.com/). You can 
 
 ![search is back](https://images.wondershare.com/filmora/article-images/search-is-back.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. Input your Interest
 
 In the second step, you need to input your choices or you can see it as filters. From the search for option, you may choose all people, friends, non-friends, or friends of friends. You may also filter gender, relationship status, location, company, school, language spoken and if an employer, you may also search people by job title.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3\. Add People as Friends
 
@@ -115,7 +115,7 @@ If you want to make Facebook videos, try to use [Filmora](https://tools.techidai
 [](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
@@ -135,24 +135,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-conquer-youtube-searches-with-these-top-11-seo-strategies/"><u>[New] 2024 Approved Conquer YouTube Searches with These Top 11 SEO Strategies</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-reddit-poster-canvas-ratio/"><u>[New] 2024 Approved Reddit Poster Canvas Ratio</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-elite-7-film-downloader-apps/"><u>[New] Elite 7 Film Downloader Apps</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-integrate-harmony-in-media-posts-facebooks-sound-guide/"><u>[New] In 2024, Integrate Harmony in Media Posts Facebook's Sound Guide</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-mastering-facebook-broadcasts-android-and-ios-tips/"><u>[New] In 2024, Mastering Facebook Broadcasts Android & iOS Tips</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-the-hunt-for-hit-tunes-and-viral-videos-on-fb-for-2024/"><u>[New] The Hunt for Hit Tunes and Viral Videos on FB for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-windowsmac-securely-download-facebook-media/"><u>[New] Windows/Mac Securely Download Facebook Media</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-crossing-thresholds-in-ctas-anticipating-fb-ad-shifts/"><u>[Updated] Crossing Thresholds in CTAs Anticipating FB Ad Shifts</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-fix-the-facebook-message-shows-its-you-in-this-video/"><u>[Updated] Fix the Facebook Message Shows It's You in This Video</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-how-to-take-advantage-of-itunes-for-video-capture/"><u>[Updated] In 2024, How to Take Advantage of iTunes for Video Capture</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-revolutionize-facebook-ads-creative-video-tactics-revealed-for-2024/"><u>[Updated] Revolutionize Facebook Ads Creative Video Tactics Revealed for 2024</u></a></li>
-<li><a href="https://location-fake.techidaily.com/10-best-fake-gps-location-spoofers-for-xiaomi-14-pro-drfone-by-drfone-virtual-android/"><u>10 Best Fake GPS Location Spoofers for Xiaomi 14 Pro | Dr.fone</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/1723341729304-approach-define-easements-and-discuss-their-implications-on-land-use/"><u>Approach: Define Easements and Discuss Their Implications on Land Use</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/enhanced-user-experience-with-advanced-tracking-solutions-powered-by-cookiebot-technology/"><u>Enhanced User Experience with Advanced Tracking Solutions - Powered by Cookiebot Technology</u></a></li>
-<li><a href="https://article-posts.techidaily.com/mastering-podcast-descriptions-insights-with-examples-for-2024/"><u>Mastering Podcast Descriptions Insights with Examples for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/reinvent-storytelling-the-path-to-better-narratives-starts-here-for-2024/"><u>Reinvent Storytelling – The Path to Better Narratives Starts Here for 2024</u></a></li>
-<li><a href="https://techidaily.com/the-way-to-get-back-lost-messages-from-honor-70-lite-5g-by-fonelab-android-recover-messages/"><u>The way to get back lost messages from Honor 70 Lite 5G</u></a></li>
-<li><a href="https://common-error.techidaily.com/troubleshooting-tips-for-windows-update-failure-with-error-0x8007001f/"><u>Troubleshooting Tips for Windows Update Failure with Error 0X8007001F</u></a></li>
-<li><a href="https://howto.techidaily.com/why-does-my-tecno-spark-10-pro-keep-turning-off-by-itself-6-fixes-are-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Does My Tecno Spark 10 Pro Keep Turning Off By Itself? 6 Fixes Are Here | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-unlimited-realms-top-10-no-cost-roleplaying-worlds/"><u>[New] 2024 Approved Unlimited Realms Top 10 No-Cost Roleplaying Worlds</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-upgrading-to-high-def-facebook-broadcasts/"><u>[New] 2024 Approved Upgrading to High-Def Facebook Broadcasts</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-top-quality-fb-pic-and-movie-creator-no-cost/"><u>[New] In 2024, Top Quality FB Pic & Movie Creator (No Cost)</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-seamless-imovie-files-to-vimeo-integration-tips/"><u>[New] Seamless iMovie Files to Vimeo Integration Tips</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-forging-a-massive-online-following-on-facebook/"><u>[Updated] 2024 Approved Forging a Massive Online Following on Facebook</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-top-5-youtube-video-marketing-strategies/"><u>[Updated] 2024 Approved Top 5 YouTube Video Marketing Strategies</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-nokia-c12-pro-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Nokia C12 Pro | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-quick-recording-tips-for-your-next-google-meet-video-call/"><u>In 2024, Quick Recording Tips for Your Next Google Meet Video Call</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/lenovo-usb-drivers-not-working-heres-how-you-can-easily-repair-them/"><u>Lenovo USB Drivers Not Working? Here's How You Can Easily Repair Them!</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/modern-photo-editing-wonders-frame-integration-essentials-2023/"><u>Modern Photo Editing Wonders Frame Integration Essentials, 2023</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-powerdirector-competitors-best-mobile-video-editors-for-android-and-ios/"><u>New PowerDirector Competitors Best Mobile Video Editors for Android & iOS</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/superior-facebook-extras-secure-video-grab-and-firefox-use/"><u>Superior Facebook Extras Secure Video Grab & Firefox Use</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-top-online-video-editing-tools-for-vertical-videos/"><u>Updated Top Online Video Editing Tools for Vertical Videos</u></a></li>
 </ul></div>
 

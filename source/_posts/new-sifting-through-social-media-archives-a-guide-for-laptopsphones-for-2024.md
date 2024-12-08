@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Sifting Through Social Media Archives  A Guide for Laptops/Phones for 2024\""
-date: 2024-11-25T17:13:18.386Z
-updated: 2024-11-28T21:56:11.212Z
+date: 2024-12-03T17:28:07.177Z
+updated: 2024-12-07T16:39:48.998Z
 tags:
   - ai video
   - ai facebook
@@ -38,7 +38,7 @@ Facebook has a complex interface, but it will be much easier to navigate it once
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How to View Old Stories on iPhone/Android Facebook App?
@@ -60,7 +60,7 @@ By clicking on the **More option**, you will see a few more options appear. Clic
 On the story archive option, you will see three dots on the top right option. It provides you with a choice to save stories or not. You can turn on the save archives option to save every story you post so that you can view it later.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to View Stories on Facebook Desktop?
@@ -78,7 +78,7 @@ Once you click on the story archive, all your **old stories** will appear in seq
 **Note:** You can only view stories through the above process if you have turned on your story archive option. Click on settings to turn it on or off as per your choice.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to View A Friend’s Old Facebook Story?
@@ -99,10 +99,6 @@ People make a **series of highlights** and name them accordingly. If the story i
 
 **Note:** A person or a user has to click on the star highlight sign to save stories for the future. If they do not select the highlight option, stories will disappear after 24 hours, and there is no way to view them in the future. Hence, this option is only applicable when a user has saved their stories for public view.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 4: How to Save Posts from Your Stories Archive to Your Device?
 
 We tend not to save stories to our devices when clicking them directly from the Facebook app. However, you can save a post to your device from the stories archive using simple steps. Let's see how to do it:
@@ -118,6 +114,10 @@ After visiting the story archive, click on the story you wish to save. Click on 
 **Step 3: Save story**
 
 After you click three dots, you will see a save and delete photo option. Click on the **save option** to download it to your device.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 5: How to See Old Stories on a Facebook Business Page?
 
@@ -142,7 +142,7 @@ Facebook is an excellent platform to interact with your audience, and the story 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -160,19 +160,22 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-enhancing-your-online-presence-with-fb-live/"><u>[New] In 2024, Enhancing Your Online Presence with FB Live</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-essentials-unleashed-8-products-that-are-changing-the-business-landscape/"><u>[New] In 2024, Essentials Unleashed 8 Products That Are Changing the Business Landscape</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-the-quintessential-fb-video-list-for-you-for-2024/"><u>[New] The Quintessential FB Video List for You for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-bring-your-gopro-adventures-online-facebookperiscope-livestream-setup/"><u>[Updated] 2024 Approved Bring Your Gopro Adventures Online Facebook/Periscope Livestream Setup</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-fan-favorite-films-reimagined-7-replacements/"><u>[Updated] 2024 Approved Fan-Favorite Films Reimagined - #7 Replacements</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-tech-insight-saving-meetings-on-devices/"><u>[Updated] 2024 Approved Tech Insight Saving Meetings on Devices</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-a-comprehensive-breakdown-of-live-streaming-and-downloading-tv/"><u>[Updated] In 2024, A Comprehensive Breakdown of Live Streaming and Downloading TV</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-top-photo-storage-sites/"><u>2024 Approved Top Photo Storage Sites</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/essential-driver-downloads-for-hp-officejet-pro-8740-on-windows-operating-systems-win11-win10-win8/"><u>Essential Driver Downloads for HP Officejet Pro 8740 on Windows Operating Systems (Win11, Win10, Win8)</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/expert-ff-video-extractor-kit-efficient-file-grabbing-firefox-compatibility/"><u>Expert FF Video Extractor Kit Efficient File Grabbing, Firefox Compatibility</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/gratuit-online-konverteren-van-mpe-naar-gif-veilig-en-efficient-met-movavi/"><u>Gratuit Online Konverteren Van MPE Naar GIF - Veilig en Efficiënt Met Movavi</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-revolutionize-your-facebook-presence-with-these-10-strategies/"><u>In 2024, Revolutionize Your Facebook Presence with These 10 Strategies</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-step-by-step-process-to-craft-memorable-gifs-from-any-youtube-video-on-devices/"><u>In 2024, Step-by-Step Process to Craft Memorable GIFs From Any YouTube Video on Devices</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/online-persona-transformation-rendering-your-cartoon-self-for-2024/"><u>Online Persona Transformation Rendering Your Cartoon Self for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-superior-fb-video-player-reviews-10-to-1/"><u>[New] 2024 Approved Superior FB Video Player Reviews #10 to #1</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-explore-free-fb-visual-creation-tools-best/"><u>[New] Explore Free FB Visual Creation Tools - Best</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-stepwise-guide-to-uploading-and-livestreaming-video-recordings-for-2024/"><u>[New] Stepwise Guide to Uploading and Livestreaming Video Recordings for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-elevate-your-fb-ad-campaigns-top-20-strategies-for-successful-videos/"><u>[Updated] In 2024, Elevate Your FB Ad Campaigns Top 20 Strategies for Successful Videos</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-integrating-youtube-into-your-social-media-strategy-facebook/"><u>[Updated] In 2024, Integrating YouTube Into Your Social Media Strategy - Facebook</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-first-steps-on-social-landscape-creating-a-facebook-account/"><u>2024 Approved First Steps on Social Landscape Creating a Facebook Account</u></a></li>
+<li><a href="https://win-wonderful.techidaily.com/1728481618965-windows-11/"><u>修復 Windows 11 更新過程中出現錯誤的有效技巧</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bring-everywhere-you-go-huawei-plus-mondly/"><u>Bring Everywhere You Go - Huawei + Mondly</u></a></li>
+<li><a href="https://fox-triigers.techidaily.com/easy-guide-retrieve-deleted-pictures-from-an-sd-card-without-spending-a-penny/"><u>Easy Guide: Retrieve Deleted Pictures From an SD Card Without Spending a Penny</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/harmonizing-musical-pieces-with-cross-sound-techniques-for-2024/"><u>Harmonizing Musical Pieces with Cross-Sound Techniques for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-5-ways-to-track-oneplus-ace-2-without-app-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Ways to Track OnePlus Ace 2 without App | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-first-steps-on-social-landscape-creating-a-facebook-account/"><u>In 2024, First Steps on Social Landscape Creating a Facebook Account</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/open-source-fb-songs-downloader/"><u>Open Source FB Songs Downloader</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/social-streamers-guide-broadcast-from-phone-subscriber-free-edition/"><u>Social Streamer's Guide Broadcast From Phone, Subscriber-Free Edition</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/speak-now-ask-anyth-market-research-expert-on-how-businesses-can-use-chatbots-in-customer-service-to-enhance-brand-experience-and-reduce-costs/"><u>Speak Now, Ask Anyth Market Research Expert on How Businesses Can Use Chatbots in Customer Service to Enhance Brand Experience and Reduce Costs.</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/top-5-premier-5g-notebooks-expert-picks-from-zdnet/"><u>Top 5 Premier 5G Notebooks - Expert Picks From ZDNet</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/ultimate-guide-to-downloading-and-using-winx-dvd-ripper-for-hd-quality-conversions-gratis/"><u>Ultimate Guide to Downloading and Using WinX DVD Ripper for HD Quality Conversions (Gratis)</u></a></li>
 </ul></div>
 

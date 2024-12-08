@@ -1,7 +1,7 @@
 ---
 title: "\"[New] From Silent Videos to Engaging Content  Swiftly Add Captions on FB\""
-date: 2024-11-13T21:55:57.127Z
-updated: 2024-11-19T17:46:57.404Z
+date: 2024-12-07T03:51:06.147Z
+updated: 2024-12-08T04:34:42.093Z
 tags:
   - ai video
   - ai facebook
@@ -35,6 +35,10 @@ Step 1: First of all, you need to move to your video library. In case if you fin
 
 ![add caption facebook](https://images.wondershare.com/filmora/article-images/add-caption-video-library.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step 2: Now use edit video button it will help you to reach at Captions Tab. It offers two selections: Generate or Upload SRT file.
 
 #### Upload SRT File option
@@ -65,10 +69,7 @@ It is also possible to delete Facebook video captions with ease. Click the trash
 Save all updates when you are satisfied with preview.
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Edit Facebook Video Text/Subtitles with Wondershare Filmora
@@ -77,18 +78,15 @@ It is convenient to create captions in Facebook with the automatic generate tool
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Here are few simple to follow steps
 
 #### Step 1: Import your desired Video File
 
 ![drag n drop timeline](https://images.wondershare.com/filmora/article-images/drag-n-drop-timeline.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 First if all, you need to add your video file to Wondershare Filmora timeline. Note that it is good to import videos to Media Library first and then access them for editing via library only so that your original video files can stay safe. Use drag and drop feature or Add files option to get your files from Media Library to Timeline.
 
@@ -108,16 +106,7 @@ Once you have finished the text based editing task then hit the Export option av
 ![output format](https://images.wondershare.com/filmora/article-images/output-format.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1975555">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -125,10 +114,7 @@ Once you have finished the text based editing task then hit the Export option av
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -146,18 +132,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-deciphering-the-art-of-reversed-visual-searches-online-fb/"><u>[New] Deciphering the Art of Reversed Visual Searches Online (FB)</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-how-to-download-facebook-story-5-methods/"><u>[New] In 2024, How to Download Facebook Story [5 Methods]</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2023-sound-savvy-with-facebook-downloader-for-2024/"><u>[Updated] 2023 Sound Savvy with Facebook Downloader for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-leading-tactics-sourcing-high-quality-photo-and-video-backdrops/"><u>[Updated] 2024 Approved Leading Tactics Sourcing High-Quality Photo & Video Backdrops</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-elevate-your-virtual-engagement-with-snap-capabilities-in-meet/"><u>[Updated] Elevate Your Virtual Engagement with Snap Capabilities in Meet</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-addressing-over-encoded-obs-media/"><u>[Updated] In 2024, Addressing Over-Encoded OBS Media</u></a></li>
-<li><a href="https://fox-web3.techidaily.com/cf2/"><u>「無料で効果的なCFカードデータ復元ツール2つの特集：全容分析」</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-revolutionizing-screen-experience-lgs-2023-bp550/"><u>2024 Approved Revolutionizing Screen Experience - LG's 2023 BP550</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/auto-gpt-vs-gpt-4-practical-value/"><u>Auto-GPT Vs. GPT-4: Practical Value?</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/break-free-from-windows-10-photos-discover-the-best-image-editing-tools-for-2024/"><u>Break Free From Windows 10 Photos Discover the Best Image Editing Tools for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-breaking-records-olympics-showcase-for-short-tracks/"><u>In 2024, Breaking Records Olympics Showcase for Short Tracks</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-optimizing-facebook-videos-for-hd-broadcasts-and-beyond/"><u>In 2024, Optimizing Facebook Videos for HD Broadcasts and Beyond</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/seamless-conversion-with-powerful-cookiebot-technology-solutions/"><u>Seamless Conversion with Powerful Cookiebot Technology Solutions</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-top-tip-how-to-create-a-quick-and-easy-google-collage-photo/"><u>[New] Top Tip How to Create a Quick and Easy Google Collage Photo</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-a-novices-guide-to-selecting-key-gopro-enhancements/"><u>[Updated] A Novice's Guide to Selecting Key GoPro Enhancements</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-elite-callers-on-windows-top-8-sorted/"><u>[Updated] Elite Callers on Windows Top 8 Sorted</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-experience-the-pinnacle-of-free-fb-image-and-vfx-crafting/"><u>[Updated] Experience the Pinnacle of Free FB Image and VFX Crafting</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-facebook-ads-transformed-predicting-the-trends-for-next-year/"><u>[Updated] Facebook Ads Transformed Predicting the Trends for Next Year</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-innovative-methods-iphoneipad-recording-2023-revealed/"><u>[Updated] In 2024, Innovative Methods IPhone/iPad Recording [2023 Revealed]</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-musical-integration-for-social-storytelling-platforms/"><u>[Updated] In 2024, Musical Integration for Social Storytelling Platforms</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-pursuit-for-full-viewable-content-from-friends-on-direct-chat-platforms-for-2024/"><u>[Updated] Pursuit for Full Viewable Content From Friends on Direct Chat Platforms for 2024</u></a></li>
+<li><a href="https://fox-tips.techidaily.com/essential-guide-discovering-the-best-free-spreadsheet-programs-instead-of-excel/"><u>Essential Guide: Discovering the Best Free Spreadsheet Programs Instead of Excel</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-the-ultimate-battle-royale-star-wars-squadrons-gameplay-breakdown/"><u>Experience the Ultimate Battle Royale: Star Wars Squadrons Gameplay Breakdown</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-a-samsung-galaxy-z-flip-5-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a Samsung Galaxy Z Flip 5 Phone That Is Locked | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/the-essential-guide-for-gopro-live-streams-to-social-media-hubs-for-2024/"><u>The Essential Guide for GoPro Live Streams to Social Media Hubs for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: How to Fix Phasmophobia VR Not Working
-date: 2024-11-18T00:51:45.643Z
-updated: 2024-11-19T20:35:52.639Z
+date: 2024-11-30T17:15:18.287Z
+updated: 2024-12-08T01:11:55.442Z
 tags:
   - win11
   - win10
@@ -42,7 +42,15 @@ thumbnail: https://thmb.techidaily.com/4d92bee2eba99f34da43a3826fc4e46ce3e4a6c22
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/1-4-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Once applying the changes, you can relaunch Zoom and see if the camera is able to work correctly. If not, check out the next fix below.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 2 – Close other programs that use the camera
 
@@ -52,30 +60,13 @@ thumbnail: https://thmb.techidaily.com/4d92bee2eba99f34da43a3826fc4e46ce3e4a6c22
 ![](https://images.drivereasy.com/wp-content/uploads/2020/10/1-1-10.jpg)
 2. Right-click the application you want to shut down and click**End task** .  
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/2-2-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
-  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Restart Zoom and test. If the error reoccurs, continue to the next solution.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 3 – Adjust the Zoom settings
 
@@ -85,6 +76,10 @@ thumbnail: https://thmb.techidaily.com/4d92bee2eba99f34da43a3826fc4e46ce3e4a6c22
 2. Click the**gear icon** at the top right corner.  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/2-6.jpg)
 3. Select the**Video** tab. Then choose the correct camera from the drop-down menu.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Check if the Zoom video issue is solved now. If not, there are two more fixes to try.
 
@@ -103,15 +98,12 @@ thumbnail: https://thmb.techidaily.com/4d92bee2eba99f34da43a3826fc4e46ce3e4a6c22
 ![](https://images.drivereasy.com/wp-content/uploads/2021/04/de-borderless.jpg)
 3. Click the**Update** button next to the flagged webcam driver to automatically download the correct version of this driver, then you can manually install it (you can do this with the**FREE version** ).  
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094428/7443" target="_top" id="2094428">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094428" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094428/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Or click**Update All** to automatically download and install the correct version of all the drivers that are missing or out of date on your system (this requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you‘ll be prompted to upgrade when you click**Update All** ).  
 ![](https://images.drivereasy.com/wp-content/uploads/2021/04/update-webcam-driver-driver-easy.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **The Pro version of Driver Easy** comes with full technical support.  
  If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
@@ -127,10 +119,7 @@ thumbnail: https://thmb.techidaily.com/4d92bee2eba99f34da43a3826fc4e46ce3e4a6c22
 2. Scroll to locate Zoom. Right-click it and click**Uninstall** .  
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/02/6-2.jpg)
@@ -160,20 +149,15 @@ See if the newly installed restore its camera functionality.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-clickbait-crafting-secrets-to-facebooks-favorites/"><u>[New] 2024 Approved Clickbait Crafting Secrets to Facebook's Favorites</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/new-step-by-step-guide-to-perfecting-videos-in-youtube-studio/"><u>[New] Step-by-Step Guide to Perfecting Videos in YouTube Studio</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2023-streamline-facebook-vids-to-smooth-mp3-for-2024/"><u>[Updated] 2023 Streamline Facebook Vids to Smooth MP3 for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-fb-vids-to-mp4-downloader-efficient-and-effective/"><u>[Updated] 2024 Approved FB Vids to MP4 Downloader – Efficient & Effective</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-tips-for-posting-wide-angle-photos-to-facebook-from-smartphones/"><u>[Updated] 2024 Approved Tips for Posting Wide Angle Photos to Facebook From Smartphones</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-innovative-advertising-on-fb-unlocking-your-brands-potential-for-2024/"><u>[Updated] Innovative Advertising on FB Unlocking Your Brand's Potential for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-techniques-for-live-broadcasting-recorded-videographies-on-fb/"><u>[Updated] Techniques for Live Broadcasting Recorded Videographies on FB</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-vivo-s17t-by-drfone-android/"><u>Complete Review & Guide to Techeligible FRP Bypass and More For Vivo S17t</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/effortless-upgrades-download-the-latest-pioneer-dj-ddj-sx2-controller-software/"><u>Effortless Upgrades: Download the Latest Pioneer DJ DDJ-SX2 Controller Software</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/enhance-your-broadcasts-using-manycams-advanced-webcam-solutions-and-features/"><u>Enhance Your Broadcasts Using ManyCam's Advanced Webcam Solutions and Features</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/free-and-easy-top-8-fb-link-exporters-for-23-online/"><u>Free and Easy Top 8 FB Link Exporters for '23 Online</u></a></li>
-<li><a href="https://common-error.techidaily.com/how-to-restore-keyboard-illumination-on-windows-and-macos-computers/"><u>How to Restore Keyboard Illumination on Windows and macOS Computers</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/no-sign-of-life-on-your-laptop-screen/"><u>No Sign of Life on Your Laptop Screen?</u></a></li>
-<li><a href="https://common-error.techidaily.com/1723210989175-resolve-your-valorant-startup-hang-up-steps-to-end-infinite-loading/"><u>Resolve Your Valorant Startup Hang-Up: Steps to End Infinite Loading</u></a></li>
-<li><a href="https://win-forum.techidaily.com/the-quintessential-social-networking-giants-unpacking-facebook-twitter-instagram-and-youtube/"><u>The Quintessential Social Networking Giants: Unpacking Facebook, Twitter, Instagram & Youtube</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-enhance-social-gaming-experience-xbox-to-fb-livestream/"><u>[New] 2024 Approved Enhance Social Gaming Experience Xbox to FB Livestream</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/levate-your-online-presence-mastering-youtube-edits-in-premiere-for-2024/"><u>[New] Elevate Your Online Presence Mastering YouTube Edits in Premiere for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-integrating-youtube-videos-into-facebook-sharing-options/"><u>[New] In 2024, Integrating YouTube Videos Into Facebook Sharing Options</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-navigating-high-definition-video-production-in-the-facebook-era/"><u>[New] Navigating High Definition Video Production in the Facebook Era</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-moments-replay-module/"><u>[Updated] In 2024, Moments Replay Module</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-top-notch-assistance-highest-rated-iphone-ringtone-makers/"><u>2024 Approved Top-Notch Assistance Highest Rated iPhone Ringtone Makers</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-vivo-y36i-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Vivo Y36i? | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/indispensable-top-vr-movie-adventures-for-2024/"><u>Indispensable Top VR Movie Adventures for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/1723208642252-troubleshoot-your-unresponsive-logitech-keyboard-fast/"><u>Troubleshoot Your Unresponsive Logitech Keyboard Fast!</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/unlocking-the-meaning-behind-windows-folders-x-marked/"><u>Unlocking: The Meaning Behind Windows Folders X-Marked</u></a></li>
 </ul></div>
 
