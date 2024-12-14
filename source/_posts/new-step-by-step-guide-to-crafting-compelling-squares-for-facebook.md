@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Step-by-Step Guide to Crafting Compelling Squares for Facebook\""
-date: 2024-12-03T22:48:20.498Z
-updated: 2024-12-07T17:35:28.897Z
+date: 2024-12-09T01:13:04.540Z
+updated: 2024-12-13T16:04:58.567Z
 tags:
   - ai video
   - ai facebook
@@ -36,6 +36,10 @@ In this article, we are going to explain how to create square videos that you ca
 * [**Part2: How to create square videos by Filmora**](#part3)
 * [**Part2: How to create square videos by Adobe Premiere**](#part4)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: Why you should choose square videos
 
 Do you have any idea about when should you go square for Facebook videos? These videos occupy around [78% extra space of the mobile feed or News feed](https://www.adweek.com/digital/instagrams-box-shaped-videos-are-influencing-facebook-marketers-172490/)than landscape ones which makes it an ultimate choice for Instagram and Facebook videos.
@@ -69,10 +73,6 @@ The software can do whatever you wish in video and image editing, starting from 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 1: Import video**
 
 First of all, you need to install the software on your Windows/Mac computer and then launch it. Go to the timeline panel media files and select the file after tapping the thumbnail. It gets imported to the Filmora interface.
@@ -80,7 +80,7 @@ First of all, you need to install the software on your Windows/Mac computer and 
 ![tupi](https://images.wondershare.com/filmora/article-images/import-video-filmora.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 2: Crop the video**
@@ -88,6 +88,10 @@ First of all, you need to install the software on your Windows/Mac computer and 
 You got to right click on the selected video and then select ‘Crop & Zoom’ from the dropdown list.
 
 ![crop and zoom](https://images.wondershare.com/filmora/article-images/crop-and-zoom.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3: Open the edit panel**
 
@@ -101,14 +105,10 @@ Here, you need to press ‘OK’ and export the file to your computer. Later you
 
 ![export video](https://images.wondershare.com/filmora/article-images/export-video-filmora.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: How to create square videos by Adobe Premiere
@@ -123,15 +123,15 @@ First you need to import video to Premiere Pro. Go to File > Import, and then se
 
 ![import video premiere](https://images.wondershare.com/filmora/article-images/import-video-premiere.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 2：Sequence settings**
 
 Click Sequence in the top, and then select Sequence Settings. First to seclect ARRI Cinema to activiate the settings. In the video area, adjust the frame size. You need to keep horizontal and vertical number the same in order to create square video. Here, we adjsut it to 600\. Leave the rest options the same. Click OK.
 
 ![Sequence settings](https://images.wondershare.com/filmora/article-images/sequence-setting.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3：Export**
 
@@ -162,24 +162,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-cloaked-observer-of-facebook-snapshots/"><u>[New] 2024 Approved Cloaked Observer of Facebook Snapshots</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-elevating-visual-clarity-in-digital-facebook-broadcasts-for-2024/"><u>[New] Elevating Visual Clarity in Digital Facebook Broadcasts for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-obs-studio-guide-android-broadcast-optimization-for-2024/"><u>[New] OBS Studio Guide Android Broadcast Optimization for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-amplify-your-facebook-presence-with-mobile-music-files-for-2024/"><u>[Updated] Amplify Your Facebook Presence with Mobile Music Files for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-understanding-facebooks-video-privacy-settings/"><u>[Updated] In 2024, Understanding Facebook's Video Privacy Settings</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-streamline-your-views-the-ultimate-8-fb-movie-download-guide/"><u>[Updated] Streamline Your Views The Ultimate #8 FB Movie Download Guide</u></a></li>
-<li><a href="https://fox-http.techidaily.com/10-unlicensed-sounds-to-help-you-reach-zen-state/"><u>10 Unlicensed Sounds to Help You Reach Zen State</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-elite-8-augmenting-tools-for-professional-broadcasts/"><u>2024 Approved Elite 8 Augmenting Tools for Professional Broadcasts</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/fast-fixes-for-constantly-running-pc-fans-expert-advice/"><u>Fast Fixes for Constantly Running PC Fans - Expert Advice</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-after-format-on-meizu-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos from Android Gallery after format on Meizu</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-essential-arsenal-for-modern-enterprise-top-trending-gadgets-and-tech-to-own/"><u>In 2024, Essential Arsenal for Modern Enterprise Top Trending Gadgets and Tech To Own</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-restoring-rightful-representation-amidst-misguided-chatter/"><u>In 2024, Restoring Rightful Representation Amidst Misguided Chatter</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-the-ultimate-creator-toolkit-commanding-video-kingdoms/"><u>In 2024, The Ultimate Creator Toolkit Commanding Video Kingdoms</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-honor-70-lite-5g-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 Honor 70 Lite 5G Android SIM Unlock APK</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-uncover-and-revive-inaudible-fb-video-posts-the-ultimate-list-of-12-fixes/"><u>In 2024, Uncover & Revive Inaudible FB Video Posts – The Ultimate List of 12 Fixes</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/signal-profileshots-guide-dimensions-file-type-minutes-for-2024/"><u>Signal Profileshots Guide Dimensions, File Type, Minutes for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/the-top-pick-for-new-dronists-a-deep-look-at-syma-x5c-for-2024/"><u>The Top Pick for New Dronists – A Deep Look at Syma X5C for 2024</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-realme-c53-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Realme C53 | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unboxing-and-testing-the-sony-xbr65x850f-the-perfect-blend-of-quality-and-price-for-a-65-4k-tv/"><u>Unboxing and Testing the Sony XBR65X850F - The Perfect Blend of Quality and Price for a 65 4K TV</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-essential-tips-for-effective-fb-live-split-screens/"><u>[New] In 2024, Essential Tips for Effective FB Live Split Screens</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-insider-advice-crafting-the-best-ps3-gaming-recordings/"><u>[Updated] 2024 Approved Insider Advice Crafting the Best PS3 Gaming Recordings</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-the-irrelevance-of-licensing-in-truth/"><u>[Updated] 2024 Approved The Irrelevance of Licensing in Truth</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-cultivating-a-loyal-viewership-base-on-youtube/"><u>[Updated] Cultivating a Loyal Viewership Base on Youtube</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-the-ultimate-laptop-and-mobile-roadmap-for-old-facebook-stories/"><u>[Updated] In 2024, The Ultimate Laptop & Mobile Roadmap for Old Facebook Stories</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-tiktok-and-twittersphere-crossover-the-viral-vids-for-2024/"><u>[Updated] TikTok and Twittersphere Crossover The Viral Vids for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/expert-filmmakers-speedy-setup-secrets-for-diy-projects/"><u>Expert Filmmaker's Speedy Setup Secrets for DIY Projects</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-xiaomi-redmi-note-13-5g-android-system-webview-crash-2024-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Xiaomi Redmi Note 13 5G Android System Webview Crash 2024 Issue | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-3utools-virtual-location-not-working-on-honor-x50i-fix-now-drfone-by-drfone-virtual-android/"><u>In 2024, 3uTools Virtual Location Not Working On Honor X50i? Fix Now | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-master-the-art-of-live-content-utilizing-wirecast-for-fb/"><u>In 2024, Master the Art of Live Content Utilizing Wirecast for FB</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-unlocking-apple-iphone-12-lock-screen-3-foolproof-methods-that-actually-work-by-drfone-ios/"><u>In 2024, Unlocking Apple iPhone 12 Lock Screen 3 Foolproof Methods that Actually Work</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/navigating-gmail-and-zoom-for-productive-video-collaboration-for-2024/"><u>Navigating Gmail and Zoom for Productive Video Collaboration for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/srt-to-sub-guide-practical-conversion-methods/"><u>SRT to SUB Guide Practical Conversion Methods</u></a></li>
 </ul></div>
 

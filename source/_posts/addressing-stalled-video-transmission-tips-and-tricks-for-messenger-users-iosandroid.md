@@ -1,7 +1,7 @@
 ---
 title: "\"Addressing Stalled Video Transmission  Tips and Tricks for Messenger Users iOS/Android\""
-date: 2024-09-08T01:56:44.077Z
-updated: 2024-09-13T11:03:32.690Z
+date: 2024-12-11T20:36:43.874Z
+updated: 2024-12-14T00:39:30.416Z
 tags:
   - ai video
   - ai facebook
@@ -40,446 +40,7 @@ Sometimes due to an issue, Facebook Messenger cannot send videos or photos; that
 ## Why Can Facebook Messenger Not Send Videos and Photos
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115920/19272" target="_top" id="2115920">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115920" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115920/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-### **Reason 1: Network Problem**
-
-One of the most common problems is when your messages, photos, or videos are not sent on Facebook Messenger is a network issue. Either your Wi-Fi is not working properly, or there is an issue with your cell carrier. You may have run out of data allowance, or the signals might not be strong enough to upload your videos or photos.
-
-### **Reason 2: Phone Storage Issue**
-
-Another reason why Facebook messenger is not sending messages could be that your device's storage is full or its cache memory has reached its maximum and is not registering anything new that is being fed into the application.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118304/7443" target="_top" id="2118304">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118304" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118304/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-### **Reason 3: File Size Exceeding Limit**
-
-One of the reasons that may be the cause of the failed photo or video upload can be that the file you are trying to upload exceeds the limits set by Facebook messenger. Messenger allows the size of any media file, photo, or video not to exceed 25 MB. If the size exceeds the limit, Facebook Messenger will show an error.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-### **Reason 4: Session Expired**
-
-Facebook Messenger has a certain time limit after which your login session expires. It will give you a prompt saying the login session has expired. That can also be a reason why Messenger is not sending videos and photos.
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-### **Reason 5: Restricted/Blocked**
-
-Suppose your messages have not been delivered, and you see a hollow circle beside your text message or video/photo. In that case, there is an unfortunate chance that you may have been restricted or blocked by the recipient while you were sending your message.
-
-Another chance is that the recipient may have deactivated their account right after you pressed sent, and that is why Messenger may not have delivered your message, photo, or video.
-
-## How to Fix Messenger on iPhone and Android
-
-Here are the fixes to the issues mentioned above. Some fixes may be the same on both iPhone and Android, while others may vary depending upon your device's operating system.
-
-### **Fix 1: Network Settings**
-
-Please check your Wi-Fi connection, restart your router, and reconnect to your Wi-Fi network. If you are using cellular data, the issue may be that the signals are weak, or your data plan may have expired. Check your data plan or contact your carrier.
-
-In case of weaker signals, drop down your notification panel and set toggle on your Android or swipe down from the top to open the control center on your iPhone/iOS device. Tap the airplane mode/flight mode, denoted by a plane symbol. Please turn it on and wait for all connections to be shut off. Then tap it again, and all connections will be turned on.
-
-![Click on Aeroplane icon](https://images.wondershare.com/filmora/article-images/2021/facebook-messenger-not-sending-videos-1.png)
-
-![Click on Aeroplane icon](https://images.wondershare.com/filmora/article-images/2021/facebook-messenger-not-sending-videos-2.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-Doing this will connect your device to the nearest cell tower and improve signal quality, and your messages, videos, and photos will be sent on Facebook Messenger.
-
-### **Fix 2: Phone Storage Issue**
-
-This is a relatively easy fix in devices using the Android operating system rather than devices with iOS. Go to settings, click on Apps, and scroll down to Messenger. By tapping on Messenger, it will open the App info menu of Messenger.
-
-![Click on Apps](https://images.wondershare.com/filmora/article-images/2021/facebook-messenger-not-sending-videos-3.png)
-
-![Click on Messenger App](https://images.wondershare.com/filmora/article-images/2021/facebook-messenger-not-sending-videos-4.png)
-
-The menu will show you different options along with some stats as well. Tap on storage, and you will see the details of how Messenger is using the storage of your device.
-
-![Click on storage](https://images.wondershare.com/filmora/article-images/2021/facebook-messenger-not-sending-videos-5.png)
-
-At the bottom, you will see two main options, clear cache and clear data in this menu. At first, tap on clear cache, and it will clear all the temporary settings and extra data that you do not need.
-
-![Clear Cache on Android](https://images.wondershare.com/filmora/article-images/2021/facebook-messenger-not-sending-videos-6.png)
-
-This will hopefully solve the problem. If clearing cache does not help, tap on clear data. Clearing data will delete your account from the device, reset all permissions and settings.
-
-You will need to sign in to Facebook Messenger again, but do not worry; it will not delete your pictures, videos, or personal data. Try to send any video or photo, and it will surely be effective, and your problem of Messenger not sending videos, photos or messages will be solved.
-
-However, in iOS, you will have to restart your device by pressing and holding the power button until the power slider appears on the screen. Slide it to turn off your iOS device and wait for it to shut down completely. Power on the device again by pressing and holding the power button. This will clear some cache, but eventually, you might have to delete and reinstall Facebook Messenger.
-
-![Go to settings, click on General then click on iPhone storage](https://images.wondershare.com/filmora/article-images/2021/facebook-messenger-not-sending-videos-7.png)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-![Select the app and Clear cache](https://images.wondershare.com/filmora/article-images/2021/facebook-messenger-not-sending-videos-8.png)
-
-<!-- affiliate ads begin -->
-<span id="1983473">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-Head down to the settings, General, iPhone storage, and scroll down to Facebook Messenger. After tapping on Messenger, you will see an option to delete the app. Delete it and then open the App Store, from where you can easily reinstall Facebook messenger, and you will be good to go after logging in!
-
-### **Fix 3: File Size Issue**
-
-Facebook itself allows the uploading of files up to 4 GB. Still, Facebook Messenger is limited to 25 MB, and the reason your videos or photos might not be getting through is that your file size is exceeding Facebook Messenger's file size limit.
-
-One fix is that you can send the video or photo by directly sharing it from your file manager or gallery rather than choosing the file from messenger's inbuilt option. That might not always work.
-
-An easy solution is that you use any video editing software such as WonderShare Filmora for this job. WonderShare Filmora is a very powerful software with many features that you can use to edit your videos.
-
-The size issue can be solved by either cropping the video a little bit or simply exporting the video using WonderShare Filmora in a lower quality setting, e.g., If the video is in 1920 x 1080 resolution, you can export it in 1280 x 720 resolution. This will only affect the quality a little bit but will significantly reduce the size of your video, and it will easily get through Facebook Messenger's size limit.
-
-Another unpopular and unconventional fix to this issue is that you can compress the video into a zip file and then send it as a document to the other person or you can also upload it onto Google Drive or any online storage drive and share the link on Facebook Messenger so the other person can easily access the full-sized file in its original quality.
-
-### **Fix 4: Session Expired**
-
-This is a very simple issue with an even simpler fix. If your session has expired, it means that you have been logged in for too long and your hosting servers have timed out. Facebook Messenger will show either ‘Session Expired’ or ‘Session Timed Out’ depending on your software version.
-
-![Session Expired Facebook Messenger](https://images.wondershare.com/filmora/article-images/2021/facebook-messenger-not-sending-videos-9.png)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114265/17093" target="_top" id="2114265">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114265" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114265/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-All you have to do is press 'OK,' and it will take you to the login screen where you can put in your credentials, and you will be logged in to Facebook Messenger again, and then you can easily send messages, videos, and photos.
-
-### **Fix 5: Restricted/Blocked**
-
-Unfortunately, there is currently no fix to this issue. If someone has restricted you or blocked you on Facebook or Messenger, you cannot contact them or send them messages. You have to contact them through some other medium or application.
-
-## Bonus Tips
-
-<!-- affiliate ads begin -->
-<span id="1770544">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-### **Messages Not Sending on iPhone and Android**
-
-If your text messages are not sent, the most common issue can be a network problem. Either your signals are weak, or if you are using iMessage on iOS or its mirror service on Androids that uses Google Duo, it means that your internet or mobile data is not working.
-
-To fix the cellular signal issue, you have to toggle on Flight mode until it cuts off all connections and then toggles it off again to regain connectivity. Doing this will connect you to the nearest cellphone tower, and you will get the best possible network coverage. This will also help in providing better cellular data coverage as well.
-
-For Wi-Fi, either reconnect your phone to a different Wi-Fi network or manually restart your router, and that will hopefully solve the internet issue.
-
-## Conclusion
-
-Now that you know all the finicky tips and trips on fixing Facebook Messenger, not sending videos, photos, or messages, nothing can stop you from having a smooth and fun experience. You can now follow these easy fixes and seamlessly share memories with your friends, family, and loved ones in the form of videos, photos, and text messages.
-
-Now there is no need to worry regardless of what device you have or what operating system it has, iOS or Android; these fixes have got you covered!
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-[![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg) ](https://app.adjust.com/w06dr6m%5F19za1f6)
-
-[Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-[![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg) ](https://app.adjust.com/w06dr6m%5F19za1f6)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-[Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
-
-In this era of the internet and social media, people's connections and interactions have also changed. Most people have shifted from the traditional cellular SMS and MMS to online platforms that back up all your chats and make them accessible from multiple devices.
-
-Facebook is one of the most popular social media websites/applications, and now its Facebook Messenger is one of the top messaging apps in the entire world. You can easily send text messages, photos, videos, and voice notes.
-
-Sometimes due to an issue, Facebook Messenger cannot send videos or photos; that is what you will learn in this article and how to fix those issues.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-## Why Can Facebook Messenger Not Send Videos and Photos
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-### **Reason 1: Network Problem**
-
-One of the most common problems is when your messages, photos, or videos are not sent on Facebook Messenger is a network issue. Either your Wi-Fi is not working properly, or there is an issue with your cell carrier. You may have run out of data allowance, or the signals might not be strong enough to upload your videos or photos.
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-### **Reason 2: Phone Storage Issue**
-
-Another reason why Facebook messenger is not sending messages could be that your device's storage is full or its cache memory has reached its maximum and is not registering anything new that is being fed into the application.
-
-### **Reason 3: File Size Exceeding Limit**
-
-One of the reasons that may be the cause of the failed photo or video upload can be that the file you are trying to upload exceeds the limits set by Facebook messenger. Messenger allows the size of any media file, photo, or video not to exceed 25 MB. If the size exceeds the limit, Facebook Messenger will show an error.
-
-### **Reason 4: Session Expired**
-
-Facebook Messenger has a certain time limit after which your login session expires. It will give you a prompt saying the login session has expired. That can also be a reason why Messenger is not sending videos and photos.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115944/19272" target="_top" id="2115944">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115944" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115944/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-### **Reason 5: Restricted/Blocked**
-
-Suppose your messages have not been delivered, and you see a hollow circle beside your text message or video/photo. In that case, there is an unfortunate chance that you may have been restricted or blocked by the recipient while you were sending your message.
-
-Another chance is that the recipient may have deactivated their account right after you pressed sent, and that is why Messenger may not have delivered your message, photo, or video.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-## How to Fix Messenger on iPhone and Android
-
-Here are the fixes to the issues mentioned above. Some fixes may be the same on both iPhone and Android, while others may vary depending upon your device's operating system.
-
-### **Fix 1: Network Settings**
-
-Please check your Wi-Fi connection, restart your router, and reconnect to your Wi-Fi network. If you are using cellular data, the issue may be that the signals are weak, or your data plan may have expired. Check your data plan or contact your carrier.
-
-In case of weaker signals, drop down your notification panel and set toggle on your Android or swipe down from the top to open the control center on your iPhone/iOS device. Tap the airplane mode/flight mode, denoted by a plane symbol. Please turn it on and wait for all connections to be shut off. Then tap it again, and all connections will be turned on.
-
-![Click on Aeroplane icon](https://images.wondershare.com/filmora/article-images/2021/facebook-messenger-not-sending-videos-1.png)
-
-![Click on Aeroplane icon](https://images.wondershare.com/filmora/article-images/2021/facebook-messenger-not-sending-videos-2.png)
-
-Doing this will connect your device to the nearest cell tower and improve signal quality, and your messages, videos, and photos will be sent on Facebook Messenger.
-
-### **Fix 2: Phone Storage Issue**
-
-This is a relatively easy fix in devices using the Android operating system rather than devices with iOS. Go to settings, click on Apps, and scroll down to Messenger. By tapping on Messenger, it will open the App info menu of Messenger.
-
-![Click on Apps](https://images.wondershare.com/filmora/article-images/2021/facebook-messenger-not-sending-videos-3.png)
-
-![Click on Messenger App](https://images.wondershare.com/filmora/article-images/2021/facebook-messenger-not-sending-videos-4.png)
-
-The menu will show you different options along with some stats as well. Tap on storage, and you will see the details of how Messenger is using the storage of your device.
-
-![Click on storage](https://images.wondershare.com/filmora/article-images/2021/facebook-messenger-not-sending-videos-5.png)
-
-<!-- affiliate ads begin -->
-<span id="1983575">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-At the bottom, you will see two main options, clear cache and clear data in this menu. At first, tap on clear cache, and it will clear all the temporary settings and extra data that you do not need.
-
-![Clear Cache on Android](https://images.wondershare.com/filmora/article-images/2021/facebook-messenger-not-sending-videos-6.png)
-
-This will hopefully solve the problem. If clearing cache does not help, tap on clear data. Clearing data will delete your account from the device, reset all permissions and settings.
-
-You will need to sign in to Facebook Messenger again, but do not worry; it will not delete your pictures, videos, or personal data. Try to send any video or photo, and it will surely be effective, and your problem of Messenger not sending videos, photos or messages will be solved.
-
-However, in iOS, you will have to restart your device by pressing and holding the power button until the power slider appears on the screen. Slide it to turn off your iOS device and wait for it to shut down completely. Power on the device again by pressing and holding the power button. This will clear some cache, but eventually, you might have to delete and reinstall Facebook Messenger.
-
-![Go to settings, click on General then click on iPhone storage](https://images.wondershare.com/filmora/article-images/2021/facebook-messenger-not-sending-videos-7.png)
-
-![Select the app and Clear cache](https://images.wondershare.com/filmora/article-images/2021/facebook-messenger-not-sending-videos-8.png)
-
-Head down to the settings, General, iPhone storage, and scroll down to Facebook Messenger. After tapping on Messenger, you will see an option to delete the app. Delete it and then open the App Store, from where you can easily reinstall Facebook messenger, and you will be good to go after logging in!
-
-### **Fix 3: File Size Issue**
-
-Facebook itself allows the uploading of files up to 4 GB. Still, Facebook Messenger is limited to 25 MB, and the reason your videos or photos might not be getting through is that your file size is exceeding Facebook Messenger's file size limit.
-
-One fix is that you can send the video or photo by directly sharing it from your file manager or gallery rather than choosing the file from messenger's inbuilt option. That might not always work.
-
-An easy solution is that you use any video editing software such as WonderShare Filmora for this job. WonderShare Filmora is a very powerful software with many features that you can use to edit your videos.
-
-The size issue can be solved by either cropping the video a little bit or simply exporting the video using WonderShare Filmora in a lower quality setting, e.g., If the video is in 1920 x 1080 resolution, you can export it in 1280 x 720 resolution. This will only affect the quality a little bit but will significantly reduce the size of your video, and it will easily get through Facebook Messenger's size limit.
-
-Another unpopular and unconventional fix to this issue is that you can compress the video into a zip file and then send it as a document to the other person or you can also upload it onto Google Drive or any online storage drive and share the link on Facebook Messenger so the other person can easily access the full-sized file in its original quality.
-
-### **Fix 4: Session Expired**
-
-This is a very simple issue with an even simpler fix. If your session has expired, it means that you have been logged in for too long and your hosting servers have timed out. Facebook Messenger will show either ‘Session Expired’ or ‘Session Timed Out’ depending on your software version.
-
-![Session Expired Facebook Messenger](https://images.wondershare.com/filmora/article-images/2021/facebook-messenger-not-sending-videos-9.png)
-
-<!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-All you have to do is press 'OK,' and it will take you to the login screen where you can put in your credentials, and you will be logged in to Facebook Messenger again, and then you can easily send messages, videos, and photos.
-
-### **Fix 5: Restricted/Blocked**
-
-Unfortunately, there is currently no fix to this issue. If someone has restricted you or blocked you on Facebook or Messenger, you cannot contact them or send them messages. You have to contact them through some other medium or application.
-
-## Bonus Tips
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-### **Messages Not Sending on iPhone and Android**
-
-If your text messages are not sent, the most common issue can be a network problem. Either your signals are weak, or if you are using iMessage on iOS or its mirror service on Androids that uses Google Duo, it means that your internet or mobile data is not working.
-
-To fix the cellular signal issue, you have to toggle on Flight mode until it cuts off all connections and then toggles it off again to regain connectivity. Doing this will connect you to the nearest cellphone tower, and you will get the best possible network coverage. This will also help in providing better cellular data coverage as well.
-
-For Wi-Fi, either reconnect your phone to a different Wi-Fi network or manually restart your router, and that will hopefully solve the internet issue.
-
-<!-- affiliate ads begin -->
-<span id="1975555">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-## Conclusion
-
-Now that you know all the finicky tips and trips on fixing Facebook Messenger, not sending videos, photos, or messages, nothing can stop you from having a smooth and fun experience. You can now follow these easy fixes and seamlessly share memories with your friends, family, and loved ones in the form of videos, photos, and text messages.
-
-Now there is no need to worry regardless of what device you have or what operating system it has, iOS or Android; these fixes have got you covered!
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-[![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg) ](https://app.adjust.com/w06dr6m%5F19za1f6)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-[Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-[![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg) ](https://app.adjust.com/w06dr6m%5F19za1f6)
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-[Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
-
-In this era of the internet and social media, people's connections and interactions have also changed. Most people have shifted from the traditional cellular SMS and MMS to online platforms that back up all your chats and make them accessible from multiple devices.
-
-Facebook is one of the most popular social media websites/applications, and now its Facebook Messenger is one of the top messaging apps in the entire world. You can easily send text messages, photos, videos, and voice notes.
-
-Sometimes due to an issue, Facebook Messenger cannot send videos or photos; that is what you will learn in this article and how to fix those issues.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-## Why Can Facebook Messenger Not Send Videos and Photos
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Reason 1: Network Problem**
@@ -494,23 +55,9 @@ Another reason why Facebook messenger is not sending messages could be that your
 
 One of the reasons that may be the cause of the failed photo or video upload can be that the file you are trying to upload exceeds the limits set by Facebook messenger. Messenger allows the size of any media file, photo, or video not to exceed 25 MB. If the size exceeds the limit, Facebook Messenger will show an error.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **Reason 4: Session Expired**
 
 Facebook Messenger has a certain time limit after which your login session expires. It will give you a prompt saying the login session has expired. That can also be a reason why Messenger is not sending videos and photos.
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123471/16836" target="_top" id="2123471">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123471" border="0" alt="https://techidaily.com" width="234" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123471/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **Reason 5: Restricted/Blocked**
 
@@ -519,10 +66,7 @@ Suppose your messages have not been delivered, and you see a hollow circle besid
 Another chance is that the recipient may have deactivated their account right after you pressed sent, and that is why Messenger may not have delivered your message, photo, or video.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Fix Messenger on iPhone and Android
@@ -538,35 +82,12 @@ In case of weaker signals, drop down your notification panel and set toggle on y
 ![Click on Aeroplane icon](https://images.wondershare.com/filmora/article-images/2021/facebook-messenger-not-sending-videos-1.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115917/19272" target="_top" id="2115917">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115917" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115917/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Click on Aeroplane icon](https://images.wondershare.com/filmora/article-images/2021/facebook-messenger-not-sending-videos-2.png)
 
-<!-- affiliate ads begin -->
-<span id="1498635">
-					<video width="320" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Doing this will connect your device to the nearest cell tower and improve signal quality, and your messages, videos, and photos will be sent on Facebook Messenger.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **Fix 2: Phone Storage Issue**
 
@@ -574,20 +95,10 @@ This is a relatively easy fix in devices using the Android operating system rath
 
 ![Click on Apps](https://images.wondershare.com/filmora/article-images/2021/facebook-messenger-not-sending-videos-3.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Click on Messenger App](https://images.wondershare.com/filmora/article-images/2021/facebook-messenger-not-sending-videos-4.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The menu will show you different options along with some stats as well. Tap on storage, and you will see the details of how Messenger is using the storage of your device.
@@ -599,10 +110,7 @@ At the bottom, you will see two main options, clear cache and clear data in this
 ![Clear Cache on Android](https://images.wondershare.com/filmora/article-images/2021/facebook-messenger-not-sending-videos-6.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 This will hopefully solve the problem. If clearing cache does not help, tap on clear data. Clearing data will delete your account from the device, reset all permissions and settings.
@@ -615,27 +123,7 @@ However, in iOS, you will have to restart your device by pressing and holding th
 
 ![Select the app and Clear cache](https://images.wondershare.com/filmora/article-images/2021/facebook-messenger-not-sending-videos-8.png)
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Head down to the settings, General, iPhone storage, and scroll down to Facebook Messenger. After tapping on Messenger, you will see an option to delete the app. Delete it and then open the App Store, from where you can easily reinstall Facebook messenger, and you will be good to go after logging in!
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **Fix 3: File Size Issue**
 
@@ -671,13 +159,6 @@ To fix the cellular signal issue, you have to toggle on Flight mode until it cut
 
 For Wi-Fi, either reconnect your phone to a different Wi-Fi network or manually restart your router, and that will hopefully solve the internet issue.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 Now that you know all the finicky tips and trips on fixing Facebook Messenger, not sending videos, photos, or messages, nothing can stop you from having a smooth and fun experience. You can now follow these easy fixes and seamlessly share memories with your friends, family, and loved ones in the form of videos, photos, and text messages.
@@ -687,13 +168,6 @@ Now there is no need to worry regardless of what device you have or what operati
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg) ](https://app.adjust.com/w06dr6m%5F19za1f6)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -712,10 +186,7 @@ Sometimes due to an issue, Facebook Messenger cannot send videos or photos; that
 ## Why Can Facebook Messenger Not Send Videos and Photos
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Reason 1: Network Problem**
@@ -725,13 +196,6 @@ One of the most common problems is when your messages, photos, or videos are not
 ### **Reason 2: Phone Storage Issue**
 
 Another reason why Facebook messenger is not sending messages could be that your device's storage is full or its cache memory has reached its maximum and is not registering anything new that is being fed into the application.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **Reason 3: File Size Exceeding Limit**
 
@@ -747,23 +211,9 @@ Suppose your messages have not been delivered, and you see a hollow circle besid
 
 Another chance is that the recipient may have deactivated their account right after you pressed sent, and that is why Messenger may not have delivered your message, photo, or video.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Fix Messenger on iPhone and Android
 
 Here are the fixes to the issues mentioned above. Some fixes may be the same on both iPhone and Android, while others may vary depending upon your device's operating system.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **Fix 1: Network Settings**
 
@@ -773,27 +223,7 @@ In case of weaker signals, drop down your notification panel and set toggle on y
 
 ![Click on Aeroplane icon](https://images.wondershare.com/filmora/article-images/2021/facebook-messenger-not-sending-videos-1.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128844/7443" target="_top" id="2128844">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128844" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128844/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Click on Aeroplane icon](https://images.wondershare.com/filmora/article-images/2021/facebook-messenger-not-sending-videos-2.png)
-
-<!-- affiliate ads begin -->
-<span id="1983588">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Doing this will connect your device to the nearest cell tower and improve signal quality, and your messages, videos, and photos will be sent on Facebook Messenger.
 
@@ -805,35 +235,9 @@ This is a relatively easy fix in devices using the Android operating system rath
 
 ![Click on Messenger App](https://images.wondershare.com/filmora/article-images/2021/facebook-messenger-not-sending-videos-4.png)
 
-<!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 The menu will show you different options along with some stats as well. Tap on storage, and you will see the details of how Messenger is using the storage of your device.
 
 ![Click on storage](https://images.wondershare.com/filmora/article-images/2021/facebook-messenger-not-sending-videos-5.png)
-
-<!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 At the bottom, you will see two main options, clear cache and clear data in this menu. At first, tap on clear cache, and it will clear all the temporary settings and extra data that you do not need.
 
@@ -851,12 +255,135 @@ However, in iOS, you will have to restart your device by pressing and holding th
 
 Head down to the settings, General, iPhone storage, and scroll down to Facebook Messenger. After tapping on Messenger, you will see an option to delete the app. Delete it and then open the App Store, from where you can easily reinstall Facebook messenger, and you will be good to go after logging in!
 
+### **Fix 3: File Size Issue**
+
+Facebook itself allows the uploading of files up to 4 GB. Still, Facebook Messenger is limited to 25 MB, and the reason your videos or photos might not be getting through is that your file size is exceeding Facebook Messenger's file size limit.
+
+One fix is that you can send the video or photo by directly sharing it from your file manager or gallery rather than choosing the file from messenger's inbuilt option. That might not always work.
+
+An easy solution is that you use any video editing software such as WonderShare Filmora for this job. WonderShare Filmora is a very powerful software with many features that you can use to edit your videos.
+
+The size issue can be solved by either cropping the video a little bit or simply exporting the video using WonderShare Filmora in a lower quality setting, e.g., If the video is in 1920 x 1080 resolution, you can export it in 1280 x 720 resolution. This will only affect the quality a little bit but will significantly reduce the size of your video, and it will easily get through Facebook Messenger's size limit.
+
+Another unpopular and unconventional fix to this issue is that you can compress the video into a zip file and then send it as a document to the other person or you can also upload it onto Google Drive or any online storage drive and share the link on Facebook Messenger so the other person can easily access the full-sized file in its original quality.
+
+### **Fix 4: Session Expired**
+
+This is a very simple issue with an even simpler fix. If your session has expired, it means that you have been logged in for too long and your hosting servers have timed out. Facebook Messenger will show either ‘Session Expired’ or ‘Session Timed Out’ depending on your software version.
+
+![Session Expired Facebook Messenger](https://images.wondershare.com/filmora/article-images/2021/facebook-messenger-not-sending-videos-9.png)
+
+All you have to do is press 'OK,' and it will take you to the login screen where you can put in your credentials, and you will be logged in to Facebook Messenger again, and then you can easily send messages, videos, and photos.
+
+### **Fix 5: Restricted/Blocked**
+
+Unfortunately, there is currently no fix to this issue. If someone has restricted you or blocked you on Facebook or Messenger, you cannot contact them or send them messages. You have to contact them through some other medium or application.
+
+## Bonus Tips
+
+### **Messages Not Sending on iPhone and Android**
+
+If your text messages are not sent, the most common issue can be a network problem. Either your signals are weak, or if you are using iMessage on iOS or its mirror service on Androids that uses Google Duo, it means that your internet or mobile data is not working.
+
+To fix the cellular signal issue, you have to toggle on Flight mode until it cuts off all connections and then toggles it off again to regain connectivity. Doing this will connect you to the nearest cellphone tower, and you will get the best possible network coverage. This will also help in providing better cellular data coverage as well.
+
+For Wi-Fi, either reconnect your phone to a different Wi-Fi network or manually restart your router, and that will hopefully solve the internet issue.
+
+## Conclusion
+
+Now that you know all the finicky tips and trips on fixing Facebook Messenger, not sending videos, photos, or messages, nothing can stop you from having a smooth and fun experience. You can now follow these easy fixes and seamlessly share memories with your friends, family, and loved ones in the form of videos, photos, and text messages.
+
+Now there is no need to worry regardless of what device you have or what operating system it has, iOS or Android; these fixes have got you covered!
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+[![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg) ](https://app.adjust.com/w06dr6m%5F19za1f6)
+
+[Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+[![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg) ](https://app.adjust.com/w06dr6m%5F19za1f6)
+
+[Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+In this era of the internet and social media, people's connections and interactions have also changed. Most people have shifted from the traditional cellular SMS and MMS to online platforms that back up all your chats and make them accessible from multiple devices.
+
+Facebook is one of the most popular social media websites/applications, and now its Facebook Messenger is one of the top messaging apps in the entire world. You can easily send text messages, photos, videos, and voice notes.
+
+Sometimes due to an issue, Facebook Messenger cannot send videos or photos; that is what you will learn in this article and how to fix those issues.
+
+## Why Can Facebook Messenger Not Send Videos and Photos
+
+### **Reason 1: Network Problem**
+
+One of the most common problems is when your messages, photos, or videos are not sent on Facebook Messenger is a network issue. Either your Wi-Fi is not working properly, or there is an issue with your cell carrier. You may have run out of data allowance, or the signals might not be strong enough to upload your videos or photos.
+
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+### **Reason 2: Phone Storage Issue**
+
+Another reason why Facebook messenger is not sending messages could be that your device's storage is full or its cache memory has reached its maximum and is not registering anything new that is being fed into the application.
+
+### **Reason 3: File Size Exceeding Limit**
+
+One of the reasons that may be the cause of the failed photo or video upload can be that the file you are trying to upload exceeds the limits set by Facebook messenger. Messenger allows the size of any media file, photo, or video not to exceed 25 MB. If the size exceeds the limit, Facebook Messenger will show an error.
+
+### **Reason 4: Session Expired**
+
+Facebook Messenger has a certain time limit after which your login session expires. It will give you a prompt saying the login session has expired. That can also be a reason why Messenger is not sending videos and photos.
+
+### **Reason 5: Restricted/Blocked**
+
+Suppose your messages have not been delivered, and you see a hollow circle beside your text message or video/photo. In that case, there is an unfortunate chance that you may have been restricted or blocked by the recipient while you were sending your message.
+
+Another chance is that the recipient may have deactivated their account right after you pressed sent, and that is why Messenger may not have delivered your message, photo, or video.
+
+## How to Fix Messenger on iPhone and Android
+
+Here are the fixes to the issues mentioned above. Some fixes may be the same on both iPhone and Android, while others may vary depending upon your device's operating system.
+
+### **Fix 1: Network Settings**
+
+Please check your Wi-Fi connection, restart your router, and reconnect to your Wi-Fi network. If you are using cellular data, the issue may be that the signals are weak, or your data plan may have expired. Check your data plan or contact your carrier.
+
+In case of weaker signals, drop down your notification panel and set toggle on your Android or swipe down from the top to open the control center on your iPhone/iOS device. Tap the airplane mode/flight mode, denoted by a plane symbol. Please turn it on and wait for all connections to be shut off. Then tap it again, and all connections will be turned on.
+
+![Click on Aeroplane icon](https://images.wondershare.com/filmora/article-images/2021/facebook-messenger-not-sending-videos-1.png)
+
+![Click on Aeroplane icon](https://images.wondershare.com/filmora/article-images/2021/facebook-messenger-not-sending-videos-2.png)
+
+Doing this will connect your device to the nearest cell tower and improve signal quality, and your messages, videos, and photos will be sent on Facebook Messenger.
+
+### **Fix 2: Phone Storage Issue**
+
+This is a relatively easy fix in devices using the Android operating system rather than devices with iOS. Go to settings, click on Apps, and scroll down to Messenger. By tapping on Messenger, it will open the App info menu of Messenger.
+
+![Click on Apps](https://images.wondershare.com/filmora/article-images/2021/facebook-messenger-not-sending-videos-3.png)
+
+![Click on Messenger App](https://images.wondershare.com/filmora/article-images/2021/facebook-messenger-not-sending-videos-4.png)
+
+The menu will show you different options along with some stats as well. Tap on storage, and you will see the details of how Messenger is using the storage of your device.
+
+![Click on storage](https://images.wondershare.com/filmora/article-images/2021/facebook-messenger-not-sending-videos-5.png)
+
+At the bottom, you will see two main options, clear cache and clear data in this menu. At first, tap on clear cache, and it will clear all the temporary settings and extra data that you do not need.
+
+![Clear Cache on Android](https://images.wondershare.com/filmora/article-images/2021/facebook-messenger-not-sending-videos-6.png)
+
+This will hopefully solve the problem. If clearing cache does not help, tap on clear data. Clearing data will delete your account from the device, reset all permissions and settings.
+
+You will need to sign in to Facebook Messenger again, but do not worry; it will not delete your pictures, videos, or personal data. Try to send any video or photo, and it will surely be effective, and your problem of Messenger not sending videos, photos or messages will be solved.
+
+However, in iOS, you will have to restart your device by pressing and holding the power button until the power slider appears on the screen. Slide it to turn off your iOS device and wait for it to shut down completely. Power on the device again by pressing and holding the power button. This will clear some cache, but eventually, you might have to delete and reinstall Facebook Messenger.
+
+![Go to settings, click on General then click on iPhone storage](https://images.wondershare.com/filmora/article-images/2021/facebook-messenger-not-sending-videos-7.png)
+
+![Select the app and Clear cache](https://images.wondershare.com/filmora/article-images/2021/facebook-messenger-not-sending-videos-8.png)
+
+Head down to the settings, General, iPhone storage, and scroll down to Facebook Messenger. After tapping on Messenger, you will see an option to delete the app. Delete it and then open the App Store, from where you can easily reinstall Facebook messenger, and you will be good to go after logging in!
 
 ### **Fix 3: File Size Issue**
 
@@ -870,25 +397,149 @@ The size issue can be solved by either cropping the video a little bit or simply
 
 Another unpopular and unconventional fix to this issue is that you can compress the video into a zip file and then send it as a document to the other person or you can also upload it onto Google Drive or any online storage drive and share the link on Facebook Messenger so the other person can easily access the full-sized file in its original quality.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **Fix 4: Session Expired**
 
 This is a very simple issue with an even simpler fix. If your session has expired, it means that you have been logged in for too long and your hosting servers have timed out. Facebook Messenger will show either ‘Session Expired’ or ‘Session Timed Out’ depending on your software version.
 
 ![Session Expired Facebook Messenger](https://images.wondershare.com/filmora/article-images/2021/facebook-messenger-not-sending-videos-9.png)
 
+All you have to do is press 'OK,' and it will take you to the login screen where you can put in your credentials, and you will be logged in to Facebook Messenger again, and then you can easily send messages, videos, and photos.
+
+### **Fix 5: Restricted/Blocked**
+
+Unfortunately, there is currently no fix to this issue. If someone has restricted you or blocked you on Facebook or Messenger, you cannot contact them or send them messages. You have to contact them through some other medium or application.
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+## Bonus Tips
+
+### **Messages Not Sending on iPhone and Android**
+
+If your text messages are not sent, the most common issue can be a network problem. Either your signals are weak, or if you are using iMessage on iOS or its mirror service on Androids that uses Google Duo, it means that your internet or mobile data is not working.
+
+To fix the cellular signal issue, you have to toggle on Flight mode until it cuts off all connections and then toggles it off again to regain connectivity. Doing this will connect you to the nearest cellphone tower, and you will get the best possible network coverage. This will also help in providing better cellular data coverage as well.
+
+For Wi-Fi, either reconnect your phone to a different Wi-Fi network or manually restart your router, and that will hopefully solve the internet issue.
+
+## Conclusion
+
+Now that you know all the finicky tips and trips on fixing Facebook Messenger, not sending videos, photos, or messages, nothing can stop you from having a smooth and fun experience. You can now follow these easy fixes and seamlessly share memories with your friends, family, and loved ones in the form of videos, photos, and text messages.
+
+Now there is no need to worry regardless of what device you have or what operating system it has, iOS or Android; these fixes have got you covered!
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+[![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg) ](https://app.adjust.com/w06dr6m%5F19za1f6)
+
+[Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+[![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg) ](https://app.adjust.com/w06dr6m%5F19za1f6)
+
+[Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+In this era of the internet and social media, people's connections and interactions have also changed. Most people have shifted from the traditional cellular SMS and MMS to online platforms that back up all your chats and make them accessible from multiple devices.
+
+Facebook is one of the most popular social media websites/applications, and now its Facebook Messenger is one of the top messaging apps in the entire world. You can easily send text messages, photos, videos, and voice notes.
+
+Sometimes due to an issue, Facebook Messenger cannot send videos or photos; that is what you will learn in this article and how to fix those issues.
+
+## Why Can Facebook Messenger Not Send Videos and Photos
+
+### **Reason 1: Network Problem**
+
+One of the most common problems is when your messages, photos, or videos are not sent on Facebook Messenger is a network issue. Either your Wi-Fi is not working properly, or there is an issue with your cell carrier. You may have run out of data allowance, or the signals might not be strong enough to upload your videos or photos.
+
+### **Reason 2: Phone Storage Issue**
+
+Another reason why Facebook messenger is not sending messages could be that your device's storage is full or its cache memory has reached its maximum and is not registering anything new that is being fed into the application.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+### **Reason 3: File Size Exceeding Limit**
+
+One of the reasons that may be the cause of the failed photo or video upload can be that the file you are trying to upload exceeds the limits set by Facebook messenger. Messenger allows the size of any media file, photo, or video not to exceed 25 MB. If the size exceeds the limit, Facebook Messenger will show an error.
+
+### **Reason 4: Session Expired**
+
+Facebook Messenger has a certain time limit after which your login session expires. It will give you a prompt saying the login session has expired. That can also be a reason why Messenger is not sending videos and photos.
+
+### **Reason 5: Restricted/Blocked**
+
+Suppose your messages have not been delivered, and you see a hollow circle beside your text message or video/photo. In that case, there is an unfortunate chance that you may have been restricted or blocked by the recipient while you were sending your message.
+
+Another chance is that the recipient may have deactivated their account right after you pressed sent, and that is why Messenger may not have delivered your message, photo, or video.
+
+## How to Fix Messenger on iPhone and Android
+
+Here are the fixes to the issues mentioned above. Some fixes may be the same on both iPhone and Android, while others may vary depending upon your device's operating system.
+
+### **Fix 1: Network Settings**
+
+Please check your Wi-Fi connection, restart your router, and reconnect to your Wi-Fi network. If you are using cellular data, the issue may be that the signals are weak, or your data plan may have expired. Check your data plan or contact your carrier.
+
+In case of weaker signals, drop down your notification panel and set toggle on your Android or swipe down from the top to open the control center on your iPhone/iOS device. Tap the airplane mode/flight mode, denoted by a plane symbol. Please turn it on and wait for all connections to be shut off. Then tap it again, and all connections will be turned on.
+
+![Click on Aeroplane icon](https://images.wondershare.com/filmora/article-images/2021/facebook-messenger-not-sending-videos-1.png)
+
+![Click on Aeroplane icon](https://images.wondershare.com/filmora/article-images/2021/facebook-messenger-not-sending-videos-2.png)
+
+Doing this will connect your device to the nearest cell tower and improve signal quality, and your messages, videos, and photos will be sent on Facebook Messenger.
+
+### **Fix 2: Phone Storage Issue**
+
+This is a relatively easy fix in devices using the Android operating system rather than devices with iOS. Go to settings, click on Apps, and scroll down to Messenger. By tapping on Messenger, it will open the App info menu of Messenger.
+
+![Click on Apps](https://images.wondershare.com/filmora/article-images/2021/facebook-messenger-not-sending-videos-3.png)
+
+![Click on Messenger App](https://images.wondershare.com/filmora/article-images/2021/facebook-messenger-not-sending-videos-4.png)
+
+The menu will show you different options along with some stats as well. Tap on storage, and you will see the details of how Messenger is using the storage of your device.
+
+![Click on storage](https://images.wondershare.com/filmora/article-images/2021/facebook-messenger-not-sending-videos-5.png)
+
+At the bottom, you will see two main options, clear cache and clear data in this menu. At first, tap on clear cache, and it will clear all the temporary settings and extra data that you do not need.
+
+![Clear Cache on Android](https://images.wondershare.com/filmora/article-images/2021/facebook-messenger-not-sending-videos-6.png)
+
+This will hopefully solve the problem. If clearing cache does not help, tap on clear data. Clearing data will delete your account from the device, reset all permissions and settings.
+
+You will need to sign in to Facebook Messenger again, but do not worry; it will not delete your pictures, videos, or personal data. Try to send any video or photo, and it will surely be effective, and your problem of Messenger not sending videos, photos or messages will be solved.
+
+However, in iOS, you will have to restart your device by pressing and holding the power button until the power slider appears on the screen. Slide it to turn off your iOS device and wait for it to shut down completely. Power on the device again by pressing and holding the power button. This will clear some cache, but eventually, you might have to delete and reinstall Facebook Messenger.
+
+![Go to settings, click on General then click on iPhone storage](https://images.wondershare.com/filmora/article-images/2021/facebook-messenger-not-sending-videos-7.png)
+
+![Select the app and Clear cache](https://images.wondershare.com/filmora/article-images/2021/facebook-messenger-not-sending-videos-8.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+Head down to the settings, General, iPhone storage, and scroll down to Facebook Messenger. After tapping on Messenger, you will see an option to delete the app. Delete it and then open the App Store, from where you can easily reinstall Facebook messenger, and you will be good to go after logging in!
+
+### **Fix 3: File Size Issue**
+
+Facebook itself allows the uploading of files up to 4 GB. Still, Facebook Messenger is limited to 25 MB, and the reason your videos or photos might not be getting through is that your file size is exceeding Facebook Messenger's file size limit.
+
+One fix is that you can send the video or photo by directly sharing it from your file manager or gallery rather than choosing the file from messenger's inbuilt option. That might not always work.
+
+An easy solution is that you use any video editing software such as WonderShare Filmora for this job. WonderShare Filmora is a very powerful software with many features that you can use to edit your videos.
+
+The size issue can be solved by either cropping the video a little bit or simply exporting the video using WonderShare Filmora in a lower quality setting, e.g., If the video is in 1920 x 1080 resolution, you can export it in 1280 x 720 resolution. This will only affect the quality a little bit but will significantly reduce the size of your video, and it will easily get through Facebook Messenger's size limit.
+
+Another unpopular and unconventional fix to this issue is that you can compress the video into a zip file and then send it as a document to the other person or you can also upload it onto Google Drive or any online storage drive and share the link on Facebook Messenger so the other person can easily access the full-sized file in its original quality.
+
+### **Fix 4: Session Expired**
+
+This is a very simple issue with an even simpler fix. If your session has expired, it means that you have been logged in for too long and your hosting servers have timed out. Facebook Messenger will show either ‘Session Expired’ or ‘Session Timed Out’ depending on your software version.
+
+![Session Expired Facebook Messenger](https://images.wondershare.com/filmora/article-images/2021/facebook-messenger-not-sending-videos-9.png)
 
 All you have to do is press 'OK,' and it will take you to the login screen where you can put in your credentials, and you will be logged in to Facebook Messenger again, and then you can easily send messages, videos, and photos.
 
@@ -937,5 +588,18 @@ Now there is no need to worry regardless of what device you have or what operati
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-connecting-the-dots-televisions-meet-facebook-lives/"><u>[New] In 2024, Connecting the Dots Televisions Meet Facebook Lives</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-master-the-art-of-virality-top-facebook-video-marketing-strategies/"><u>[New] In 2024, Master the Art of Virality Top Facebook Video Marketing Strategies</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-step-by-step-tech-livestream-setup-pcmaclaptop-for-fb/"><u>[New] In 2024, Step-by-Step Tech Livestream Setup (PC/Mac/Laptop) for FB</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-periscope-pro-the-in-depth-usage-guidebook-for-2024/"><u>[New] Periscope Pro The In-Depth Usage Guidebook for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-quintessential-screenplays-among-varied-genres/"><u>[New] Quintessential Screenplays Among Varied Genres</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-supercharge-your-online-sales-strategy-with-the-best-15-social-media-insight-apps-for-2024/"><u>[New] Supercharge Your Online Sales Strategy with the Best 15 Social Media Insight Apps for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/acer-chromebook-cb5-516-gex-reviewed-excellence-in-streaming-play-on-chrome-os/"><u>Acer Chromebook CB5-516-GEX Reviewed: Excellence in Streaming Play on Chrome OS</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/como-convertir-archivos-wmv-en-mp3-de-forma-gratuita-en-linea-con-conversor-audio-video/"><u>Cómo Convertir Archivos WMV en MP3 De Forma Gratuita en Línea Con Conversor Audio Video</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-best-3-software-to-transfer-files-tofrom-your-oppo-a78-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Best 3 Software to Transfer Files to/from Your Oppo A78 via a USB Cable | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/seamless-integration-of-slideshows-into-facebook-layouts-for-2024/"><u>Seamless Integration of Slideshows Into Facebook Layouts for 2024</u></a></li>
+<li><a href="https://win-popular.techidaily.com/troubleshooting-your-pc-understanding-the-reasons-behind-boot-failures-guidance-by-yl-computing/"><u>Troubleshooting Your PC: Understanding the Reasons Behind Boot Failures - Guidance by YL Computing</u></a></li>
+</ul></div>
 

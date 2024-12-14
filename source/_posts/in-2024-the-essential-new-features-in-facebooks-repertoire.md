@@ -1,7 +1,7 @@
 ---
 title: "In 2024, The Essential New Features in Facebook's Repertoire"
-date: 2024-09-12T23:11:17.742Z
-updated: 2024-09-18T00:17:10.998Z
+date: 2024-12-12T21:53:03.921Z
+updated: 2024-12-13T22:42:30.564Z
 tags:
   - ai video
   - ai facebook
@@ -47,11 +47,19 @@ thumbnail: https://thmb.techidaily.com/15a61f0827860e342a65d573fdf8ef935cbe188b5
 
  One more interesting thing to know about this recent update to Facebook is that it now contains so many interactive filters that users can easily apply to their photos to impress the audience. If you are a biased Snapchat user then this feature can help you to move to Facebook app soon.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. Facebook Live
 
  Earlier, Facebook users were utilizing Facebook Live API to live stream on Facebook from their smartphone or tablet. But now it is possible to start broadcasting directly from your Laptop or Personal desktop computer using Facebook Live Feature. Further, Admins can also tag others as Live Contributors during streaming process on pages. You can also add comments to live broadcasts which were not possible earlier. So it is right time to explore the new Facebook Live feature on your device, you will easily find it on top of the news feeds.
 
  Related: [How to invite people to create a split screen live streaming](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. Advertising Capabilities
 
@@ -61,6 +69,10 @@ thumbnail: https://thmb.techidaily.com/15a61f0827860e342a65d573fdf8ef935cbe188b5
 * It is now possible to merge ad breaks of about 25 seconds into live videos. That’s really impressive.
 
 [How to make better Facebook video ads](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5\. Group Videos
 
@@ -121,6 +133,10 @@ Follow @Shanoon Cox
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -134,6 +150,10 @@ Follow @Shanoon Cox
  There is no doubt to say that Facebook is one of the most interactive social media applications. And the great news is that developers keep on updating it time to time with new set of features. Some of you may not be aware about the changes that were made to Facebook platform but they are actually very interesting and useful. No matter whether you are using Facebook for your personal needs or it is an important business promotion platform for you; in both cases you will be benefited with new features of Facebook. So, why not to stay tuned to these latest trends and make most out of them to engage your audience on social media.
 
  The article below will provide you detailed information about five new Facebook features that were added recently in 2018\. Stay here on this page.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 1\. Facebook 360
 
@@ -153,13 +173,6 @@ Follow @Shanoon Cox
 
  One more interesting thing to know about this recent update to Facebook is that it now contains so many interactive filters that users can easily apply to their photos to impress the audience. If you are a biased Snapchat user then this feature can help you to move to Facebook app soon.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 3\. Facebook Live
 
  Earlier, Facebook users were utilizing Facebook Live API to live stream on Facebook from their smartphone or tablet. But now it is possible to start broadcasting directly from your Laptop or Personal desktop computer using Facebook Live Feature. Further, Admins can also tag others as Live Contributors during streaming process on pages. You can also add comments to live broadcasts which were not possible earlier. So it is right time to explore the new Facebook Live feature on your device, you will easily find it on top of the news feeds.
@@ -167,10 +180,7 @@ Follow @Shanoon Cox
  Related: [How to invite people to create a split screen live streaming](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Advertising Capabilities
@@ -183,10 +193,7 @@ Follow @Shanoon Cox
 [How to make better Facebook video ads](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. Group Videos
@@ -227,13 +234,6 @@ Follow @Shanoon Cox
 
  One more interesting thing to know about this recent update to Facebook is that it now contains so many interactive filters that users can easily apply to their photos to impress the audience. If you are a biased Snapchat user then this feature can help you to move to Facebook app soon.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 3\. Facebook Live
 
  Earlier, Facebook users were utilizing Facebook Live API to live stream on Facebook from their smartphone or tablet. But now it is possible to start broadcasting directly from your Laptop or Personal desktop computer using Facebook Live Feature. Further, Admins can also tag others as Live Contributors during streaming process on pages. You can also add comments to live broadcasts which were not possible earlier. So it is right time to explore the new Facebook Live feature on your device, you will easily find it on top of the news feeds.
@@ -241,10 +241,7 @@ Follow @Shanoon Cox
  Related: [How to invite people to create a split screen live streaming](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Advertising Capabilities
@@ -287,5 +284,20 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-evaluating-digital-stabilization-practicality-over-pixels/"><u>[New] 2024 Approved Evaluating Digital Stabilization Practicality Over Pixels</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-from-beginner-to-master-a-stepwise-guide-for-excellent-posts-for-2024/"><u>[New] From Beginner to Master A Stepwise Guide for Excellent Posts for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-enabling-autoplay-youtube-videos-in-social-media-network/"><u>[New] In 2024, Enabling Autoplay Youtube Videos in Social Media Network</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-unlock-follower-growth-secrets-on-facebook-in-10-simple-ways/"><u>[New] Unlock Follower Growth Secrets on Facebook in 10 Simple Ways</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-googleplus-photo-frame-settings/"><u>[Updated] 2024 Approved Google+ Photo Frame Settings</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-identifying-deceptive-accounts-a-guide-for-marketers/"><u>[Updated] 2024 Approved Identifying Deceptive Accounts A Guide for Marketers</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-from-good-to-great-elevating-your-ads-facebook-impact-for-2024/"><u>[Updated] From Good to Great Elevating Your Ads' Facebook Impact for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-10-proven-methods-for-boosting-fb-search-rankings/"><u>[Updated] In 2024, 10 Proven Methods for Boosting FB Search Rankings</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-maximize-your-content-impact-with-insights-from-social-blade-on-youtube-for-2024/"><u>[Updated] Maximize Your Content Impact with Insights From Social Blade on YouTube for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-top-6-social-media-platforms-for-business/"><u>2024 Approved Top 6 Social Media Platforms for Business</u></a></li>
+<li><a href="https://windows11.techidaily.com/accelerate-vm-performance-on-windows-6-precise-tips-and-tricks/"><u>Accelerate VM Performance on Windows: 6 Precise Tips & Tricks</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/clear-screen-techniques-focus-on-your-message-not-the-ambiance/"><u>Clear Screen Techniques Focus on Your Message, Not the Ambiance</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/guide-to-mirror-your-samsung-galaxy-z-flip-5-to-other-android-devices-drfone-by-drfone-android/"><u>Guide to Mirror Your Samsung Galaxy Z Flip 5 to Other Android devices | Dr.fone</u></a></li>
+</ul></div>
 

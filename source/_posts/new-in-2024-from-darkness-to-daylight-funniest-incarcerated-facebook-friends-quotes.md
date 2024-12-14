@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, From Darkness to Daylight  Funniest Incarcerated Facebook Friends Quotes\""
-date: 2024-12-02T23:33:32.016Z
-updated: 2024-12-07T17:17:19.572Z
+date: 2024-12-11T18:04:49.057Z
+updated: 2024-12-13T19:12:07.427Z
 tags:
   - ai video
   - ai facebook
@@ -45,7 +45,7 @@ Also, this penalty could be for few hours to 21 days of restrictive actions.
 ![facebook jail](https://images.wondershare.com/filmii/article-images/facebook-jail.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: 10 Best Out of Facebook Jail Memes
@@ -60,11 +60,19 @@ Fresh out of Facebook jail … So excited!!! Can’t wait!!!
 
 ![released from facebook jail](https://images.wondershare.com/filmora/article-images/2021/released-from-facebook-jail.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 When you’re released from Facebook jail knowing you haven’t been rehabilitated, you may wanna say, “Sup, bitches?”
 
 #### 3\. Fresh Outa Facebook Jail
 
 ![fresh outa facebook jail](https://images.wondershare.com/filmora/article-images/2021/fresh-outa-facebook-jail.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 This was me - Fresh out of Facebook jail in this morning!
 
@@ -84,6 +92,10 @@ After having been through a hard time in Facebook jail, what your comment sectio
 
 ![funny gary outta fb jail](https://images.wondershare.com/filmora/article-images/2021/funny-gary-outta-fb-jail.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 This is how Funny Gary Out of Facebook Jail.
 
 #### 7\. Come Back from FB Jail
@@ -97,7 +109,7 @@ How did I come back from Facebook jail and look for the MF that reported me.
 ![back from fb jail](https://images.wondershare.com/filmora/article-images/2021/back-from-fb-jail.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 I am bacccck from Facebook jail. Fantastic!!!
@@ -106,15 +118,15 @@ I am bacccck from Facebook jail. Fantastic!!!
 
 ![outa fb jail 15th time](https://images.wondershare.com/filmora/article-images/2021/outa-fb-jail-15th-time.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Now that I am outa Facebook jail for the 15th time. What type of mischief shall I do to get banned again?
 
 #### 10\. Outa FB Jail and Play
 
 ![outa facebook jail play](https://images.wondershare.com/filmora/article-images/2021/outa-facebook-jail-play.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Out of Facebook Jail!!! Let’s play bitches!
 
@@ -125,10 +137,6 @@ We all come across many memes across social media and sometimes do feel that how
 #### 1\. [Filmora meme maker](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![edit memes filmroa meme maker](https://images.wondershare.com/filmora/article-images/edit-memes-filmroa-meme-maker.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 If you are tired of searching for the best Facebook meme generator then Filmora meme maker is undoubtedly the best choice for you. It is a fast yet free meme maker and you need to add any image or GIF then add text, colors, resize as you need, and lastly export it in PNG, JPG, GIF, etc. formats easily. Also even if you are new to this Facebook jail meme-making thing then trust me Filmora is the right choice for you because of its easy interface.
 
@@ -146,10 +154,6 @@ This Facebook meme generator offers benefits such as adding customizable images 
 
 Canva's name is not at all unknown to anybody related to the designing field. It is an amazing online free tool helping as a Facebook meme generator too. It has so many templates available you just need to pick the right one for you and proceed. It is surely the best choice for funny Facebook memes and especially Facebook jail memes. You will get color/font options, resize, crop, flip, etc. options to create the best memes. Canva is a very user-friendly online tool and it has a very easy-to-use design which makes an overall creating experience very smooth.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 4: How to Make Your Facebook Jail Meme?
 
 Well if you are having to confused about how to make funny Facebook jail memes then you need to pick an effective Facebook meme generator tool for you. There are many such tools but Filmora meme maker is the ideal option to solve your need.
@@ -162,15 +166,15 @@ So here below is the step by step guide you can follow to create a meme:
 
 ![drag memes filmora meme maker](https://images.wondershare.com/filmora/article-images/drag-memes-filmora-meme-maker.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Once you open the Filmora meme generator on your browser you would get an option of import. You need to click on that or drag to import your files. Also, you can even import YouTube and Vimeo links for creating video memes.
 
 **Step 2: Edit your memes**
 
 ![edit memes filmroa meme maker](https://images.wondershare.com/filmora/article-images/edit-memes-filmroa-meme-maker.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Once you import your file you would get some editing options such as text, color, size, style, etc. You can choose the right text and color as per your need. Also, you can get options inputting the text inside or outside and also to choose the file format too.
 
@@ -183,10 +187,6 @@ At last, if you are done with the editing part click on Create option and then c
 So once you go through this article you would realize that the funny Facebook memes which we used to get to see are not so difficult to make with the right Facebook meme generators. Also trending out of Facebook jail memes is the task of only a few minutes. Here above-mentioned tools are surely the best ones and Filmora meme maker would help you in getting more popularity too.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -203,20 +203,18 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-tips-for-creating-engaging-fb-video-content/"><u>[New] 2024 Approved Tips for Creating Engaging FB Video Content</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-enhancing-roku-experience-for-facebook-live-broadcasts-for-2024/"><u>[New] Enhancing Roku Experience for Facebook Live Broadcasts for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-decoding-facebooks-absence-of-personalized-video-content/"><u>[New] In 2024, Decoding Facebook's Absence of Personalized Video Content</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-optimized-broadcast-sharing-live-streams-from-twitch/"><u>[New] In 2024, Optimized Broadcast Sharing Live Streams From Twitch</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-perfect-your-social-media-presence-wirecast-streaming-tips-for-2024/"><u>[New] Perfect Your Social Media Presence Wirecast Streaming Tips for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-fb-video-extraction-techniques-for-pc-and-mac-for-2024/"><u>[Updated] FB Video Extraction Techniques for PC & Mac for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-cutting-edge-tips-for-capturing-movies-on-everyday-tech/"><u>[Updated] In 2024, Cutting-Edge Tips for Capturing Movies on Everyday Tech</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-tactics-to-triumph-secrets-of-successful-social-media-videos/"><u>[Updated] In 2024, Tactics to Triumph Secrets of Successful Social Media Videos</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-reviewing-videoshow-in-its-fullest-for-24-edition/"><u>[Updated] Reviewing VideoShow in Its Fullest for '24 Edition</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-navigating-the-essence-of-photography-polarrs-edits-revealed/"><u>2024 Approved Navigating the Essence of Photography Polarr’s Edits Revealed</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/chroma-control-made-simple-with-these-11-expert-tips/"><u>Chroma Control Made Simple with These 11 Expert Tips</u></a></li>
-<li><a href="https://fox-useful.techidaily.com/refining-interaction-flows-between-parents-and-kids-strategies-and-tips/"><u>Refining Interaction Flows Between Parents and Kids: Strategies & Tips</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/scouring-social-media-locating-facebook-videos-for-2024/"><u>Scouring Social Media Locating Facebook Videos for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/spotlight-on-success-top-tiktok-tweets/"><u>Spotlight on Success Top TikTok Tweets</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/steps-to-overcome-windows-task-sequence-error-0x8007000f/"><u>Steps to Overcome Windows Task Sequence Error 0X8007000f</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2023-how-to-find-facebook-recently-watched-videos/"><u>[New] 2023 | How to Find Facebook Recently Watched Videos?</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-cutting-edge-techniques-quickly-developing-quality-captions-for-facebook-posts/"><u>[New] 2024 Approved Cutting-Edge Techniques Quickly Developing Quality Captions for Facebook Posts</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-enhance-video-to-fit-instagrams-visual-taste/"><u>[New] 2024 Approved Enhance Video to Fit Instagram's Visual Taste</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/astering-freefire-gameplay-essential-youtube-tips-for-2024/"><u>[New] Mastering FreeFire Gameplay Essential YouTube Tips for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/2024s-elite-selection-of-apps-for-visual-voice-messaging-services/"><u>2024'S Elite Selection of Apps for Visual Voice Messaging Services</u></a></li>
+<li><a href="https://win-dash.techidaily.com/canon-mf4695mf4695s-mx340-driver-download-compatible-with-windows-11-8-and-7/"><u>Canon MF4695/MF4695S (MX340) Driver Download: Compatible with Windows 11, 8 and 7</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/get-your-sony-wh-1000xm-series-microphone-functional-on-windows-troubleshooting-guide/"><u>Get Your Sony WH-1000XM Series Microphone Functional on Windows: Troubleshooting Guide</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-gps-location-on-oneplus-ace-2-easily-and-safely-drfone-by-drfone-virtual-android/"><u>How to Change GPS Location on OnePlus Ace 2 Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-how-to-fix-facebook-suggested-videos-not-showing-up/"><u>In 2024, How to Fix Facebook Suggested Videos Not Showing Up?</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-fix-iphone-13-pro-could-not-be-activatedreached-issue-by-drfone-ios/"><u>In 2024, How To Fix iPhone 13 Pro Could Not Be Activated/Reached Issue</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-inquiring-into-the-benefit-of-verified-online-self-portraits/"><u>In 2024, Inquiring Into the Benefit of Verified Online Self-Portraits</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/quick-and-simple-steps-freshen-up-your-windows-11-system-instantly/"><u>Quick & Simple Steps: Freshen Up Your Windows 11 System Instantly</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/the-social-networks-roadmap-making-the-most-of-daily-use/"><u>The Social Network's Roadmap Making the Most of Daily Use</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] How to Unlink Lively Logos From Your Profile (Mobile/PC)"
-date: 2024-12-06T01:19:02.157Z
-updated: 2024-12-08T02:43:03.820Z
+date: 2024-12-08T23:12:41.621Z
+updated: 2024-12-13T20:33:10.836Z
 tags:
   - ai video
   - ai facebook
@@ -37,7 +37,7 @@ A Facebook story will last for 24 hours. Once the 24 hours timeline is over, you
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How to Delete A Photo or Video from Facebook Story?
@@ -52,6 +52,10 @@ Let's begin with the mobile Facebook application:
 
 ![delete Facebook Story from mobile](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-mobile.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Delete Facebook Story from Desktop**
 
 **Step 1:** Visit Facebook via a browser. As the mobile app, it will show "your story" on the home page. Please click on that.
@@ -60,15 +64,15 @@ Let's begin with the mobile Facebook application:
 
 ![Facebook Story 3 dots](https://images.wondershare.com/filmora/article-images/facebook-story-three-dots.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3: There will be a Delete Photo option. You need to select that.**
 
 ![delete Facebook Story from desktop](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-desktop.jpg)
 
 **Step 4:** Finally, click on the Delete option again, and you are done. This Facebook story is removed.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How to Delete A Story from Facebook Story Archive?
 
@@ -84,7 +88,15 @@ If it is already enabled, follow these steps to delete the archived Facebook sto
 
 ![delete Facebook Story from archive](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-archive.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 This is how you will remove the stories from Facebook archived.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: How to Delete My Story on Facebook Messenger on iPhone, iPad, And Android?
 
@@ -110,14 +122,6 @@ You can make your stories visible to your friends, customize the viewers, or kee
 
 ![  Facebook Story privacy  ](https://images.wondershare.com/filmora/article-images/facebook-story-privacy.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 5: How to Hide Facebook Story from Specific People?
 
 Facebook has made sharing stories easy because of the multiple features it offers. Apart from controlling the story, you can even choose to hide the story from specific people. To do that, here's what you need to do.
@@ -129,7 +133,7 @@ Facebook has made sharing stories easy because of the multiple features it offer
 **Step 2:** You will be shown the complete list of people you are connected with on Facebook. Select the people you don't want to share your stories with, and then click on done.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 6: How to Delete Someone Else's Story on Your Facebook?
@@ -139,10 +143,6 @@ If you don't want to see someone else’s story, then you can mute their stories
 Visit the Stories section, and then tap on a story of a person that you don't want to see. There will be three dots on the top right, select it and then click on the Mute option, and the specific person's stories will be muted.
 
 ![ delete other's Facebook Story  ](https://images.wondershare.com/filmora/article-images/delete-people-facebook-story.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Conclusion**
 
@@ -165,21 +165,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-facebook-ads-transformed-predicting-the-trends-for-next-year/"><u>[New] Facebook Ads Transformed Predicting the Trends for Next Year</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-the-ultimate-flowchart-streaming-success-on-facebook-iphonesipads/"><u>[New] The Ultimate Flowchart Streaming Success on Facebook, iPhones/iPads</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-enhancing-income-through-the-science-of-youtube-trailer-creation/"><u>[Updated] 2024 Approved Enhancing Income Through the Science of YouTube Trailer Creation</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-skype-call-recording-tips-ensuring-clarity-across-platforms/"><u>[Updated] 2024 Approved Skype Call Recording Tips - Ensuring Clarity Across Platforms</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-smooth-operations-direct-backup-of-camera-roll-images-to-social-media-apps/"><u>[Updated] Smooth Operations Direct Backup of Camera Roll Images to Social Media Apps</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-vidgrabmaster-mobilepc-app-downloads/"><u>[Updated] VidGrabMaster Mobile/PC App Downloads</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-express-individuality-with-youtube-backgrounds/"><u>2024 Approved Express Individuality with YouTube Backgrounds</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/best-photo-restoration-compannies-of-2024-comprehensive-proscons-list/"><u>Best Photo Restoration Compannies of 2024: Comprehensive Pros/Cons List</u></a></li>
-<li><a href="https://howto.techidaily.com/full-solutions-to-fix-error-code-920-in-google-play-on-honor-play-7t-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Solutions to Fix Error Code 920 In Google Play on Honor Play 7T | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-broadcast-in-ultra-hd-on-the-social-network/"><u>In 2024, Broadcast in Ultra HD on the Social Network</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/making-your-mark-on-facebooks-algorithmic-landscape-for-2024/"><u>Making Your Mark on Facebook's Algorithmic Landscape for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/no-email-no-problem-master-the-art-of-recovering-your-facebook-account-without-contact-details/"><u>No Email? No Problem: Master the Art of Recovering Your Facebook Account Without Contact Details</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/quick-tips-eradicate-online-ads-from-your-feed/"><u>Quick Tips Eradicate Online Ads From Your Feed</u></a></li>
-<li><a href="https://fox-links.techidaily.com/secrets-to-enjoying-authentic-cricket-games-in-real-time/"><u>Secrets to Enjoying Authentic Cricket Games in Real-Time</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/understanding-watermarks-and-protecting-fb-pics-for-2024/"><u>Understanding Watermarks & Protecting FB Pics for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/unveiling-the-hidden-meanings-behind-facebooks-messenger-icon-for-2024/"><u>Unveiling the Hidden Meanings Behind Facebook's Messenger Icon for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-buzz-building-blueprints-igniting-interest-in-the-feed/"><u>[New] 2024 Approved Buzz-Building Blueprints Igniting Interest in the Feed</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-beginners-guide-to-best-entry-level-cams-2024/"><u>[New] Beginner's Guide to Best Entry-Level Cams 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-the-ultimate-compilation-top-6-downloader-apps-for-facebooks-lite-version/"><u>[New] The Ultimate Compilation Top 6 Downloader Apps for Facebook's Lite Version</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-tricks-to-upgrade-streaming-quality-on-mobile-apps-like-facebook/"><u>[New] Tricks to Upgrade Streaming Quality on Mobile Apps Like Facebook</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-transforming-challenges-into-triumphs-with-these-30-tips/"><u>[Updated] 2024 Approved Transforming Challenges Into Triumphs with These 30 Tips</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-mastering-obs-recording-setup-and-usage-tips-for-mac-users/"><u>[Updated] In 2024, Mastering OBS Recording Setup & Usage Tips for Mac Users</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-the-ultimate-plan-for-profit-from-instagram-content/"><u>[Updated] The Ultimate Plan for Profit From Instagram Content</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-launch-your-stream-top-8-youtube-revenue-tactics/"><u>2024 Approved Launch Your Stream Top 8 YouTube Revenue Tactics</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/explore-free-fb-visual-creation-tools-best/"><u>Explore Free FB Visual Creation Tools - Best</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-discreetly-see-fb-snapshots/"><u>In 2024, Discreetly See FB Snapshots</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-fb-hd-stream-to-local-storage/"><u>In 2024, FB HD Stream to Local Storage</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-iphone-6s-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 6s?</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/leveraging-cookiebot-technology-for-enhanced-user-engagement-and-growth/"><u>Leveraging Cookiebot Technology for Enhanced User Engagement and Growth</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/the-art-of-monetizing-snapchat-content-for-2024/"><u>The Art of Monetizing Snapchat Content for 2024</u></a></li>
+<li><a href="https://techidaily.com/this-is-how-you-can-recover-deleted-pictures-from-realme-c53-by-fonelab-android-recover-pictures/"><u>This is how you can recover deleted pictures from Realme C53.</u></a></li>
 </ul></div>
 

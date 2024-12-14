@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Instant Reachers' Handbook  Livestreaming on Facebook via Smartphones\""
-date: 2024-09-17T03:14:59.149Z
-updated: 2024-09-17T23:45:31.622Z
+date: 2024-12-11T16:49:13.380Z
+updated: 2024-12-14T00:31:09.917Z
 tags:
   - ai video
   - ai facebook
@@ -43,6 +43,10 @@ thumbnail: https://thmb.techidaily.com/f8511b1b508552460f630419c51d2d616ebcbf19d
 
 ![audience ](https://images.wondershare.com/filmora/article-images/audience.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  5\. Now you just need to tap on the **‘Go Live’** icon and start broadcasting.
 
 ![broadcast ](https://images.wondershare.com/filmora/article-images/broadcast.jpg)
@@ -53,9 +57,17 @@ thumbnail: https://thmb.techidaily.com/f8511b1b508552460f630419c51d2d616ebcbf19d
 
 ![switch ](https://images.wondershare.com/filmora/article-images/switch.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  8\. When you tap the top left button you get access to all the filters and colour overlays for you video.
 
 ![ video](https://images.wondershare.com/filmora/article-images/video.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  9\. Once you are finished with your broadcasting just tap on the **‘Finish’** button. You can choose to play your video, save it to your computer or upload it somewhere else. Now click on done and you will be directed to another page for editing.
 
@@ -105,11 +117,19 @@ Follow @Richard Bennett
 
 ![broadcast ](https://images.wondershare.com/filmora/article-images/broadcast.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  6\. While streaming you will see a **‘Live’** button in red colour right on top. Clicking on this button would allow you to see the length of your broadcast. Just below this you will be seeing the comments from your viewers.
 
  7\. The camera can be changed with the help of the switch button on the top right.
 
 ![switch ](https://images.wondershare.com/filmora/article-images/switch.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  8\. When you tap the top left button you get access to all the filters and colour overlays for you video.
 
@@ -118,13 +138,6 @@ Follow @Richard Bennett
  9\. Once you are finished with your broadcasting just tap on the **‘Finish’** button. You can choose to play your video, save it to your computer or upload it somewhere else. Now click on done and you will be directed to another page for editing.
 
 ![further editng ](https://images.wondershare.com/filmora/article-images/further-editng.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Notes and tips
 
@@ -162,16 +175,13 @@ Follow @Richard Bennett
 
 ![optional description ](https://images.wondershare.com/filmora/article-images/optional-description.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  4\. Now you need to select an audience for your video- you can make it public, friends or customize your audience.
 
 ![audience ](https://images.wondershare.com/filmora/article-images/audience.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
-  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  5\. Now you just need to tap on the **‘Go Live’** icon and start broadcasting.
 
@@ -192,16 +202,7 @@ Follow @Richard Bennett
 ![further editng ](https://images.wondershare.com/filmora/article-images/further-editng.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1899850">
-					<video width="486" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Notes and tips
@@ -228,11 +229,19 @@ Follow @Richard Bennett
 
  Facebook has recently launched a live feature which would allow the users to broadcast the important moments of their live to a large audience. The live feature on Facebook would allow you to reach out to the maximum number of audience who would be able to watch your videos live on Facebook. Every time you go live on Facebook your followers will be receiving notifications so that tune in to your broadcast just on time. There are loads of filters which you can apply to make your videos even more engaging.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Steps to go live using Facebook for Android and iOS
 
  1\. The first thing you need to do is log on to your Facebook account and click the **'whats on your mind'** button right above the Newsfeed icon on the FB app.
 
 ![News Feed ](https://images.wondershare.com/filmora/article-images/news-feed.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  2\. Now click the **‘Live Video’** button which comes in the shape of a person icon with a broadcast sign on the head. If you are using iOS then tap on **‘Live Video’**.
 
@@ -244,13 +253,6 @@ Follow @Richard Bennett
 
 ![audience ](https://images.wondershare.com/filmora/article-images/audience.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
-  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  5\. Now you just need to tap on the **‘Go Live’** icon and start broadcasting.
 
 ![broadcast ](https://images.wondershare.com/filmora/article-images/broadcast.jpg)
@@ -261,13 +263,6 @@ Follow @Richard Bennett
 
 ![switch ](https://images.wondershare.com/filmora/article-images/switch.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  8\. When you tap the top left button you get access to all the filters and colour overlays for you video.
 
 ![ video](https://images.wondershare.com/filmora/article-images/video.jpg)
@@ -275,6 +270,10 @@ Follow @Richard Bennett
  9\. Once you are finished with your broadcasting just tap on the **‘Finish’** button. You can choose to play your video, save it to your computer or upload it somewhere else. Now click on done and you will be directed to another page for editing.
 
 ![further editng ](https://images.wondershare.com/filmora/article-images/further-editng.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Notes and tips
 
@@ -313,5 +312,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-a-comprehensive-overview-recording-saving-and-sharing-youtube-videos-for-free/"><u>[New] In 2024, A Comprehensive Overview Recording, Saving & Sharing YouTube Videos for Free</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-unlocking-the-art-of-captions-a-short-guide-to-facebook-videos/"><u>[New] In 2024, Unlocking the Art of Captions A Short Guide to Facebook Videos</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-revamping-social-media-presence-efficient-changes-in-video-covers/"><u>[New] Revamping Social Media Presence Efficient Changes in Video Covers</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-from-vertical-vistas-to-virtual-viewers-fb-live-streaming-w-dji/"><u>[Updated] 2024 Approved From Vertical Vistas to Virtual Viewers FB Live Streaming W/ DJI</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-understanding-facebooks-chat-language-through-its-blue-signature-marker/"><u>[Updated] 2024 Approved Understanding Facebook's Chat Language Through Its Blue Signature Marker</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-dive-into-instagram-live-without-hesitation/"><u>[Updated] Dive Into Instagram Live Without Hesitation</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-enhancing-streaming-quality-using-obs-plus-zoom-for-2024/"><u>[Updated] Enhancing Streaming Quality Using OBS + Zoom for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-essential-zoom-skills-for-exceptional-audio-capture-in-podcasting/"><u>[Updated] In 2024, Essential Zoom Skills for Exceptional Audio Capture in Podcasting</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-leaders-in-likeability-the-best-app-list-on-androidiphone-for-2024/"><u>[Updated] Leaders in Likeability The Best App List on Android/iPhone for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-memorable-moments-quick-and-clean-xbox-screenshots-for-2024/"><u>[Updated] Memorable Moments, Quick & Clean Xbox Screenshots for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/drive-traffic-generate-leads-mastering-telegram-marketing/"><u>Drive Traffic, Generate Leads Mastering Telegram Marketing</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-migrate-android-data-from-vivo-y17s-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Migrate Android Data From Vivo Y17s to New Android Phone? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-full-tutorial-to-bypass-your-tecno-pop-8-face-lock-by-drfone-android/"><u>In 2024, Full Tutorial to Bypass Your Tecno Pop 8 Face Lock?</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-unlock-your-infinix-gt-10-pro-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>In 2024, Unlock Your Infinix GT 10 Pro Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
+</ul></div>
 
