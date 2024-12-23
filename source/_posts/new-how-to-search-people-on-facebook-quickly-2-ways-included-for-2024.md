@@ -1,7 +1,7 @@
 ---
 title: "[New] How to Search People on Facebook Quickly (2 Ways Included) for 2024"
-date: 2024-12-07T23:31:50.431Z
-updated: 2024-12-14T04:03:26.527Z
+date: 2024-12-20T03:55:20.286Z
+updated: 2024-12-23T01:41:35.523Z
 tags:
   - ai video
   - ai facebook
@@ -35,22 +35,14 @@ Here are two ways to search people on Facebook. The second option also helps you
 * [**Part 2: How to search people using Search Is Back**](#part2)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How to search people on Facebook
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Step 1: Log in to Facebook
 
 Open Facebook on your computer – Firstly, open a web browser and get to the Facebook website. You can find the log in fields on the top right corner of the page. Input your user ID and password and hit the login button at the side to proceed further.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Step 2: Check your list of Friends on Facebook
 
@@ -59,11 +51,7 @@ On the header tool icons, click on your name and you are directed to your Facebo
 ![facebook friends tab](https://images.wondershare.com/filmora/article-images/facebook-friends-tab.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 3: Friends Finder Page
@@ -73,7 +61,7 @@ To reach the friend’s finder page, click on “find friends” from the friend
 ![friends finder facebook](https://images.wondershare.com/filmora/article-images/friends-finder-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 4: Friends Search
@@ -84,13 +72,25 @@ On the top right of old friends search, you can find the “search for your frie
 
 On the left panel, you can find several names matching your search filter. You just need to scroll and check the displayed list to see if any of your old friends are there in the list. Once you find your old friends, click on the “add friends” button beside their name and the person is added to your official list of friends on Facebook.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: How to search people using Search Is Back
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Open and Select
 
 On a browser open the [Search is Back site](https://searchisback.com/). You can find four tabs at the top of the page. Click on the first tab, “Find People” and a page appears to select your picks from the available options.
 
 ![search is back](https://images.wondershare.com/filmora/article-images/search-is-back.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Input your Interest
 
@@ -135,17 +135,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2023s-leading-youtube-and-facebook-collaboration-8-essential-views/"><u>[Updated] 2023'S Leading YouTube & Facebook Collaboration - 8 Essential Views</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-6-proven-strategies-to-add-facebook-live-features-for-2024/"><u>[Updated] 6 Proven Strategies to Add Facebook Live Features for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-integrating-facebook-video-into-home-screen-apps/"><u>[Updated] In 2024, Integrating Facebook Video Into Home Screen Apps</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-maximizing-fb-ad-success-a-step-by-step-animated-guide-for-2024/"><u>[Updated] Maximizing FB Ad Success A Step-by-Step Animated Guide for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-premier-selection-incredible-platform-compatible-free-streaming-apps/"><u>2024 Approved Premier Selection Incredible, Platform-Compatible Free Streaming Apps</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/gradual-transition-tactics-for-premiere-professionals-for-2024/"><u>Gradual Transition Tactics for Premiere Professionals for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/hidden-perspectives-what-youre-ignoring-as-a-stories-viewer/"><u>Hidden Perspectives What You're Ignoring as a Stories Viewer</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-motorola-edge-2023-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Motorola Edge 2023? | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-endless-broadcast-flow-mastering-the-art-of-fixing-livestream-pauses/"><u>In 2024, Endless Broadcast Flow Mastering the Art of Fixing Livestream Pauses</u></a></li>
-<li><a href="https://sound-optimizing.techidaily.com/new-the-essential-guide-to-implementing-lame-for-high-quality-auditory-outputs-in-audacity/"><u>New The Essential Guide to Implementing Lame for High-Quality Auditory Outputs in Audacity</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/optimize-your-mobile-browsing-with-cleaner-video-playback/"><u>Optimize Your Mobile Browsing with Cleaner Video Playback</u></a></li>
-<li><a href="https://win-webster.techidaily.com/wd-my-passport-fixed-come-ripristinare-la-perdita-della-partizione-in-italiano/"><u>WD My Passport Fixed! Come Ripristinare La Perdita Della Partizione in Italiano</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-exploring-subscriptions-the-value-of-youtube-premium/"><u>[New] 2024 Approved Exploring Subscriptions The Value of YouTube Premium</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-facebook-frenzy-top-downloader-tools-that-bring-videos-to-life-on-idevices/"><u>[New] In 2024, Facebook Frenzy Top Downloader Tools that Bring Videos to Life on iDevices</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-social-networking-site-policies-what-about-posting-videos-in-2024/"><u>[New] Social Networking Site Policies What About Posting Videos, In 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-pinnacle-camera-technology-the-best-reviewed/"><u>[Updated] Pinnacle Camera Technology – The Best Reviewed</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-top-five-new-facebook-features-you-should-know-for-2024/"><u>[Updated] Top Five New Facebook Features You Should Know for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-unleashing-the-potential-of-your-social-media-past/"><u>2024 Approved Unleashing the Potential of Your Social Media Past</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/amazons-finest-iphone-offers-during-the-ultimate-prime-day-sale/"><u>Amazon's Finest iPhone Offers During the Ultimate Prime Day Sale</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/chrome-compatibility-solving-media-errors-for-2024/"><u>Chrome Compatibility Solving Media Errors for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-vivo-y36i-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Vivo Y36i to BlackBerry | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-ghostly-pause-recorder-tutorial/"><u>In 2024, Ghostly Pause Recorder Tutorial</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-mastering-your-sound-with-the-compreenas-complete-morphvox-guidebook/"><u>In 2024, Mastering Your Sound with the Compreenas Complete MorphVOX Guidebook</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/online-accessory-fb-stories-capture-app-for-2024/"><u>Online Accessory Fb Stories Capture App for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/top-strategies-for-eliminating-lag-and-hitches-in-minecraft-a-comprehensive-guide-updated/"><u>Top Strategies for Eliminating Lag and Hitches in Minecraft: A Comprehensive Guide (Updated )</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/top-rated-iphone-15-case-picks-ultimate-guide/"><u>Top-Rated iPhone 15 Case Picks: Ultimate Guide</u></a></li>
 </ul></div>
 

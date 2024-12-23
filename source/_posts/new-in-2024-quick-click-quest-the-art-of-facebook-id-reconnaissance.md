@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Quick Click Quest  The Art of Facebook ID Reconnaissance\""
-date: 2024-12-07T03:58:22.373Z
-updated: 2024-12-08T00:38:31.517Z
+date: 2024-12-17T07:25:31.110Z
+updated: 2024-12-22T18:05:59.642Z
 tags:
   - ai video
   - ai facebook
@@ -34,15 +34,15 @@ Here are two ways to search people on Facebook. The second option also helps you
 * [**Part 1: How to search people on Facebook**](#part1)
 * [**Part 2: How to search people using Search Is Back**](#part2)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: How to search people on Facebook
 
 ### Step 1: Log in to Facebook
 
 Open Facebook on your computer – Firstly, open a web browser and get to the Facebook website. You can find the log in fields on the top right corner of the page. Input your user ID and password and hit the login button at the side to proceed further.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Step 2: Check your list of Friends on Facebook
 
@@ -51,7 +51,7 @@ On the header tool icons, click on your name and you are directed to your Facebo
 ![facebook friends tab](https://images.wondershare.com/filmora/article-images/facebook-friends-tab.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 3: Friends Finder Page
@@ -60,12 +60,16 @@ To reach the friend’s finder page, click on “find friends” from the friend
 
 ![friends finder facebook](https://images.wondershare.com/filmora/article-images/friends-finder-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Step 4: Friends Search
 
 On the top right of old friends search, you can find the “search for your friends” filters. To search your old friends by name, you have to enter their part or full names in the name field and look for them. To find your friends by their location, you may enter your friend’s hometown city’s name in the hometown field to search them by the place when they earlier lived in. To find your school friends or High school and university friends, you may enter the schools’ name and search for them. For searching your old colleagues, you may enter the company or employer’s name and find people who worked in the same organization.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 5: Check the results
@@ -74,26 +78,18 @@ On the left panel, you can find several names matching your search filter. You j
 
 ## Part 2: How to search people using Search Is Back
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. Open and Select
 
 On a browser open the [Search is Back site](https://searchisback.com/). You can find four tabs at the top of the page. Click on the first tab, “Find People” and a page appears to select your picks from the available options.
 
 ![search is back](https://images.wondershare.com/filmora/article-images/search-is-back.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. Input your Interest
 
 In the second step, you need to input your choices or you can see it as filters. From the search for option, you may choose all people, friends, non-friends, or friends of friends. You may also filter gender, relationship status, location, company, school, language spoken and if an employer, you may also search people by job title.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. Add People as Friends
@@ -120,6 +116,10 @@ If you want to make Facebook videos, try to use [Filmora](https://tools.techidai
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -135,21 +135,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-myvideocapture-social-media-video-download/"><u>[New] In 2024, MyVideoCapture Social Media Video Download</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-depth-review-is-inshot-the-editors-choice/"><u>[New] In-Depth Review Is InShot The Editor's Choice?</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-mobile-mastery-the-leading-app-list-for-popularity-growth/"><u>[New] Mobile Mastery The Leading App List for Popularity Growth</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-novice-necessities-the-ultimate-beginners-video-editor/"><u>[New] Novice Necessities The Ultimate Beginner's Video Editor</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-online-oasis-media-mashup/"><u>[New] Online Oasis Media Mashup</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-ideal-action-cameras-for-stabilized-shots/"><u>[Updated] Ideal Action Cameras for Stabilized Shots</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-rapidly-finding-friends-on-facebooks-network/"><u>[Updated] Rapidly Finding Friends on Facebook's Network</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-your-ultimate-guide-to-choosing-vr-headsets-opt-for-easy-steps-with-mobile-or-connected-devices-for-2024/"><u>[Updated] Your Ultimate Guide to Choosing VR Headsets Opt for Easy Steps with Mobile or Connected Devices for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-mastering-the-art-of-profile-video-attraction/"><u>2024 Approved Mastering the Art of Profile Video Attraction</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/explore-iphones-best-value-top-10-budget-friendly-photo-collage-apps/"><u>Explore iPhone's Best Value Top 10 Budget-Friendly Photo Collage Apps</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/extract-your-fb-videos-effortlessly-anywhere/"><u>Extract Your FB Videos Effortlessly, Anywhere</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/how-amazons-small-act-of-kindness-won-me-over-an-unexpected-story-featured-by-zdnet/"><u>How Amazon's Small Act of Kindness Won Me Over: An Unexpected Story Featured by ZDNET</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-crafty-impostors-exposed-spotting-fabricated-followers/"><u>In 2024, Crafty Impostors Exposed Spotting Fabricated Followers</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-harnessing-tools-for-fb-content-extraction/"><u>In 2024, Harnessing Tools for FB Content Extraction</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-legacy-in-pixels-iphone-x-memories-photography/"><u>In 2024, Legacy in Pixels IPhone X Memories Photography</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/solving-the-silent-dilemma-remedies-for-conexant-smartaudio-hd-lacking-audio-on-windows-10/"><u>Solving the Silent Dilemma: Remedies for Conexant SmartAudio HD Lacking Audio on Windows 10</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-dynamic-designs-drive-dazzling-tiktok-videos-quickly/"><u>[New] In 2024, Dynamic Designs Drive Dazzling TikTok Videos Quickly</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-secrets-to-free-hd-video-grabs-from-facebook/"><u>[New] In 2024, Secrets to Free HD Video Grabs From Facebook</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-innovating-visual-storytelling-utilizing-dslr-for-facebook-live-through-personal-devices-for-2024/"><u>[New] Innovating Visual Storytelling Utilizing DSLR for Facebook LIVE Through Personal Devices for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-restoring-full-volume-on-hindered-facebook-videos-for-2024/"><u>[New] Restoring Full Volume on Hindered Facebook Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-the-abc-of-advertising-a-trifecta-strategy-to-drive-engagement-on-fb-platforms/"><u>[New] The ABC of Advertising A Trifecta Strategy to Drive Engagement on FB Platforms</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-unveiling-top-6-microphones-perfect-for-online-streaming-success/"><u>[Updated] 2024 Approved Unveiling Top 6 Microphones Perfect for Online Streaming Success</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-a-beginners-guide-to-profitable-animated-advertising-in-facebook/"><u>[Updated] A Beginner's Guide to Profitable Animated Advertising in Facebook</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-audiophiles-guide-to-mac-voice-recorders-the-cream-of-the-crop/"><u>[Updated] Audiophile's Guide to Mac Voice Recorders The Cream of the Crop</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-the-art-of-image-detection-opposite-on-facebook-networks/"><u>[Updated] In 2024, The Art of Image Detection Opposite on Facebook Networks</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-photography-tutorial-how-to-shoot-and-create-impressive-hdr-portraits/"><u>2024 Approved Photography Tutorial_ How to Shoot and Create Impressive HDR Portraits</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-trends-transforming-facebook-ad-campaigns/"><u>2024 Trends Transforming Facebook Ad Campaigns</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ssive-commentary-utilizing-emojis-on-youtube/"><u>Expressive Commentary Utilizing Emojis on YouTube</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fixing-the-issue-why-your-screen-cant-play-hdcp-enabled-content/"><u>Fixing the Issue: Why Your Screen Can't Play HDCP-Enabled Content</u></a></li>
+<li><a href="https://win-outstanding.techidaily.com/how-can-you-locate-specific-keys-and-values-in-the-windows-registry-a-guide-tech-solutions-by-yl/"><u>How Can You Locate Specific Keys and Values in the Windows Registry: A Guide - Tech Solutions by YL</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-cherished-holiday-hits-our-top-10-family-friendly-films/"><u>In 2024, Cherished Holiday Hits Our Top 10 Family-Friendly Films</u></a></li>
 </ul></div>
 

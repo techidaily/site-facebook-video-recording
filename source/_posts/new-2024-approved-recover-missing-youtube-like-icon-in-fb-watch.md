@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Recover Missing YouTube-Like Icon in FB Watch\""
-date: 2024-09-17T17:35:39.333Z
-updated: 2024-09-22T20:36:42.300Z
+date: 2024-12-18T16:32:28.600Z
+updated: 2024-12-23T04:23:53.314Z
 tags:
   - ai video
   - ai facebook
@@ -137,6 +137,10 @@ Now, you should see the VideoHome shortcut option in the list. If it’s disable
 
 ![facebook video icon setting](https://images.wondershare.com/filmora/article-images/2021/facebook-video-icon-missing-12.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 So, in case of no TV icon on Facebook video, you can follow these steps to resolve the problem. It helps restore the watch video icon in the Facebook shortcut bar.
 
 Video:
@@ -275,23 +279,9 @@ But in some cases, for example, when you don’t know Facebook settings, you’v
 
 ![facebook shortcuts bar](https://images.wondershare.com/filmora/article-images/2021/facebook-video-icon-missing-2.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 2:** Click on the hamburger icon on the top-right of your screen.
 
 ![facebook hamburger menu icon](https://images.wondershare.com/filmora/article-images/2021/facebook-video-icon-missing-3.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043856/7443" target="_top" id="2043856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043856" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043856/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 3**: Scroll down and go to Settings & Privacy. On the following screen, go to Settings.
 
@@ -302,10 +292,7 @@ But in some cases, for example, when you don’t know Facebook settings, you’v
 ![shortcut bar](https://images.wondershare.com/filmora/article-images/2021/facebook-video-icon-missing-5.png)
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 5**: Now, tap on “Shortcut Bar,” and if you don’t see VideoHome option,” move on to the next step.
@@ -346,6 +333,10 @@ Now, you should see the VideoHome shortcut option in the list. If it’s disable
 
 ![facebook video icon setting](https://images.wondershare.com/filmora/article-images/2021/facebook-video-icon-missing-12.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 So, in case of no TV icon on Facebook video, you can follow these steps to resolve the problem. It helps restore the watch video icon in the Facebook shortcut bar.
 
 Video:
@@ -359,6 +350,10 @@ Here are some other solutions you can try to solve the issue:
 If none of the methods explained above work, then try uninstalling/deleting the app from your device. To do this, simply tap and hold the app and uninstall it.
 
 Now, open the Play Store or App Store, and install a new copy of the Facebook app. Finally, login by using your username and password, and see if the Facebook video icon is there or not.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **Get to the Facebook Help Center**
 
@@ -420,13 +415,6 @@ Once you’ve created eye-soothing and pleasing content using Filmora, you can p
 
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg)](https://app.adjust.com/w06dr6m%5F19za1f6)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -450,6 +438,10 @@ Part 2: [How to Solve Facebook No TV Icon on Facebook Video?](#step2)
 Part 3: [Other Solutions for Facebook Video Icon Missing](#step3)
 
 Part 4: [Why Facebook Video Icon is Important?](#step4)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1\. Possible Reasons for Facebook Video Icon Missing
 
@@ -549,6 +541,10 @@ Video:
 
 Here are some other solutions you can try to solve the issue:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **Install a Fresh, Updated Facebook App**
 
 If none of the methods explained above work, then try uninstalling/deleting the app from your device. To do this, simply tap and hold the app and uninstall it.
@@ -603,6 +599,10 @@ In addition, the tool offers many video formats, including FLV, MKV, AVI, , MP4,
 
 All in all, Filmora is a super flexible and versatile video editing tool packed with countless features.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Conclusion
 
 Now, you know how to solve the Facebook video icon missing issue. Try our any or all of these ideas to solve the issue and get instant access to impressive video content.
@@ -620,13 +620,6 @@ Once you’ve created eye-soothing and pleasing content using Filmora, you can p
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg)](https://app.adjust.com/w06dr6m%5F19za1f6)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -647,10 +640,7 @@ Part 3: [Other Solutions for Facebook Video Icon Missing](#step3)
 Part 4: [Why Facebook Video Icon is Important?](#step4)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1\. Possible Reasons for Facebook Video Icon Missing
@@ -687,6 +677,10 @@ These are the most common reasons when you see Facebook video icon missing. Fort
 
 But in some cases, for example, when you don’t know Facebook settings, you’ve to go for alternative solutions.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2\. How to Solve Facebook No TV Icon on Facebook Video?
 
 **Step 1**: Open the Facebook app on your device. You’ll see no TV icon on Facebook video in the app.
@@ -700,13 +694,6 @@ But in some cases, for example, when you don’t know Facebook settings, you’v
 **Step 3**: Scroll down and go to Settings & Privacy. On the following screen, go to Settings.
 
 ![facebook settings and privacy](https://images.wondershare.com/filmora/article-images/2021/facebook-video-icon-missing-4.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 4**: On the next screen, scroll down until you see the “Shortcuts” section.
 
@@ -753,6 +740,10 @@ Now, you should see the VideoHome shortcut option in the list. If it’s disable
 So, in case of no TV icon on Facebook video, you can follow these steps to resolve the problem. It helps restore the watch video icon in the Facebook shortcut bar.
 
 Video:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: Other Solutions for Facebook Video Icon Missing
 
@@ -823,13 +814,6 @@ Once you’ve created eye-soothing and pleasing content using Filmora, you can p
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg)](https://app.adjust.com/w06dr6m%5F19za1f6)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -852,5 +836,20 @@ Once you’ve created eye-soothing and pleasing content using Filmora, you can p
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-access-global-grooves-at-zero-price/"><u>[New] 2024 Approved Access Global Grooves at Zero Price</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-unlocking-aspect-ratios-the-key-to-facebook-video-success/"><u>[New] 2024 Approved Unlocking Aspect Ratios The Key to Facebook Video Success</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-profile-perfection-101-expert-strategies-for-facebook-biography-enhancement/"><u>[Updated] 2024 Approved Profile Perfection 101 Expert Strategies for Facebook Biography Enhancement</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-stream-friendly-free-tunes-vault-fb/"><u>[Updated] In 2024, Stream-Friendly Free Tunes Vault (FB)</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-jumpstart-your-fandom-top-10-music-videos-on-facebook-unveiled/"><u>[Updated] Jumpstart Your Fandom Top 10 Music Videos on Facebook Unveiled</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-selecting-the-ultimate-business-vault/"><u>2024 Approved Selecting the Ultimate Business Vault</u></a></li>
+<li><a href="https://win-web.techidaily.com/boost-computer-efficiency-a-guide-to-disabling-unused-windows-services-with-yl-computings-help/"><u>Boost Computer Efficiency: A Guide to Disabling Unused Windows Services with YL Computing's Help</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/can-you-project-youtube-and-fb-videos-onto-your-hdtv-in-2024/"><u>Can You Project YouTube & FB Videos Onto Your HDTV, In 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/from-rewind-to-save-incorporating-80s-vhs-in-todays-cinematic-edits-for-2024/"><u>From Rewind to Save Incorporating 80S VHS in Today's Cinematic Edits for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-celebrating-soundtracks-the-ultimate-anime-list/"><u>In 2024, Celebrating Soundtracks The Ultimate Anime List</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-poco-x6-drfone-by-drfone-virtual-android/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Poco X6 | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-changeadd-location-filters-on-snapchat-for-your-honor-x9a-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Add Location Filters on Snapchat For your Honor X9a | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/troubleshoot-video-playback-issues-on-your-flash-drive-a-7-step-guide/"><u>Troubleshoot Video Playback Issues on Your Flash Drive: A 7-Step Guide</u></a></li>
+</ul></div>
 
