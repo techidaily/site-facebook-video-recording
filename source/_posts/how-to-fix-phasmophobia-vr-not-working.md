@@ -1,7 +1,7 @@
 ---
 title: How to Fix Phasmophobia VR Not Working
-date: 2024-11-30T17:15:18.287Z
-updated: 2024-12-08T01:11:55.442Z
+date: 2024-12-26T21:38:55.853Z
+updated: 2024-12-28T17:39:53.484Z
 tags:
   - win11
   - win10
@@ -40,17 +40,17 @@ thumbnail: https://thmb.techidaily.com/4d92bee2eba99f34da43a3826fc4e46ce3e4a6c22
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/1-3-3.jpg)
 4. **Toggle on** the button under Allow apps to access your camera.  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/1-4-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Once applying the changes, you can relaunch Zoom and see if the camera is able to work correctly. If not, check out the next fix below.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 2 – Close other programs that use the camera
 
@@ -63,10 +63,14 @@ thumbnail: https://thmb.techidaily.com/4d92bee2eba99f34da43a3826fc4e46ce3e4a6c22
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/2-2-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Restart Zoom and test. If the error reoccurs, continue to the next solution.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 3 – Adjust the Zoom settings
 
@@ -76,10 +80,6 @@ thumbnail: https://thmb.techidaily.com/4d92bee2eba99f34da43a3826fc4e46ce3e4a6c22
 2. Click the**gear icon** at the top right corner.  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/2-6.jpg)
 3. Select the**Video** tab. Then choose the correct camera from the drop-down menu.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Check if the Zoom video issue is solved now. If not, there are two more fixes to try.
 
@@ -98,12 +98,12 @@ thumbnail: https://thmb.techidaily.com/4d92bee2eba99f34da43a3826fc4e46ce3e4a6c22
 ![](https://images.drivereasy.com/wp-content/uploads/2021/04/de-borderless.jpg)
 3. Click the**Update** button next to the flagged webcam driver to automatically download the correct version of this driver, then you can manually install it (you can do this with the**FREE version** ).  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Or click**Update All** to automatically download and install the correct version of all the drivers that are missing or out of date on your system (this requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you‘ll be prompted to upgrade when you click**Update All** ).  
 ![](https://images.drivereasy.com/wp-content/uploads/2021/04/update-webcam-driver-driver-easy.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **The Pro version of Driver Easy** comes with full technical support.  
  If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
@@ -119,7 +119,7 @@ thumbnail: https://thmb.techidaily.com/4d92bee2eba99f34da43a3826fc4e46ce3e4a6c22
 2. Scroll to locate Zoom. Right-click it and click**Uninstall** .  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/02/6-2.jpg)
@@ -149,15 +149,24 @@ See if the newly installed restore its camera functionality.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-enhance-social-gaming-experience-xbox-to-fb-livestream/"><u>[New] 2024 Approved Enhance Social Gaming Experience Xbox to FB Livestream</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/levate-your-online-presence-mastering-youtube-edits-in-premiere-for-2024/"><u>[New] Elevate Your Online Presence Mastering YouTube Edits in Premiere for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-integrating-youtube-videos-into-facebook-sharing-options/"><u>[New] In 2024, Integrating YouTube Videos Into Facebook Sharing Options</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-navigating-high-definition-video-production-in-the-facebook-era/"><u>[New] Navigating High Definition Video Production in the Facebook Era</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-moments-replay-module/"><u>[Updated] In 2024, Moments Replay Module</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-top-notch-assistance-highest-rated-iphone-ringtone-makers/"><u>2024 Approved Top-Notch Assistance Highest Rated iPhone Ringtone Makers</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-vivo-y36i-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Vivo Y36i? | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/indispensable-top-vr-movie-adventures-for-2024/"><u>Indispensable Top VR Movie Adventures for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/1723208642252-troubleshoot-your-unresponsive-logitech-keyboard-fast/"><u>Troubleshoot Your Unresponsive Logitech Keyboard Fast!</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/unlocking-the-meaning-behind-windows-folders-x-marked/"><u>Unlocking: The Meaning Behind Windows Folders X-Marked</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-from-amateurs-to-pros-step-by-step-guide-on-mastering-background-erasing-in-adobe-photoshop-for-2024/"><u>[New] From Amateurs to Pros Step-by-Step Guide on Mastering Background Erasing in Adobe Photoshop for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-stepwise-guide-to-uploading-and-livestreaming-video-recordings/"><u>[New] In 2024, Stepwise Guide to Uploading and Livestreaming Video Recordings</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-saving-your-best-on-instagram-a-comprehensive-guide/"><u>[New] Saving Your Best on Instagram A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-unpacking-the-limitations-of-video-sharing-in-facebooks-community-for-2024/"><u>[New] Unpacking the Limitations of Video Sharing in Facebook's Community for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-effortless-online-transformation-ff-vids-to-mp4-in-high-definition/"><u>[Updated] In 2024, Effortless Online Transformation FF Vids to MP4 in High Definition</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-transforming-visual-feeds-with-harmonious-hits-for-2024/"><u>[Updated] Transforming Visual Feeds with Harmonious Hits for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-types-of-facebook-video-aspect-ratios-and-how-to-adjust-it/"><u>[Updated] Types of Facebook Video Aspect Ratios & How to Adjust It</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/decoding-the-route-to-achieving-facebook-verification/"><u>Decoding the Route to Achieving Facebook Verification</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/enjoy-whole-audio-on-twitch-addressing-muted-segments-now-for-2024/"><u>Enjoy Whole Audio on Twitch Addressing Muted Segments Now for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/facebook-live-cutting-edge-strategies-audiences-for-2024/"><u>Facebook Live Cutting-Edge Strategies Audiences for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/fix-your-iphones-voicemail-problem-a-step-by-step-strategy-with-9-tips/"><u>Fix Your iPhone's Voicemail Problem: A Step-by-Step Strategy (with 9 Tips)</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-6s-to-others-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 6s To Others devices? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-poco-x5-pro-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>In 2024, How to Cast Poco X5 Pro Screen to PC Using WiFi | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-the-ultimate-guide-to-top-6-video-downloader-software-on-facebook/"><u>In 2024, The Ultimate Guide to Top 6 Video Downloader Software on Facebook</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-ispoofer-update-on-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Will iSpoofer update On Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-the-ipogo-get-you-banned-and-how-to-solve-it-on-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, Will the iPogo Get You Banned and How to Solve It On Poco C50 | Dr.fone</u></a></li>
+<li><a href="https://win-extraordinary.techidaily.com/leveraging-emotional-bias-in-forex-markets-how-to-use-trade-copier-on-mt4-and-mt5-platforms/"><u>Leveraging Emotional Bias in Forex Markets: How to Use Trade Copier on MT4 & MT5 Platforms</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/perfecting-projects-through-music-addition-in-premiere-pro/"><u>Perfecting Projects Through Music Addition in Premiere Pro</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unforgettable-gaming-experiences-the-best-storyline-titles-to-capture-your-imagination-and-keep-you-thinking-post-game/"><u>Unforgettable Gaming Experiences: The Best Storyline Titles to Capture Your Imagination & Keep You Thinking Post-Game</u></a></li>
 </ul></div>
 

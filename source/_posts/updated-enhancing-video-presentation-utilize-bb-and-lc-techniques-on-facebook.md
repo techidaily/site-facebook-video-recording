@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Enhancing Video Presentation  Utilize BB and LC Techniques on Facebook\""
-date: 2024-12-18T21:32:39.893Z
-updated: 2024-12-22T22:28:05.577Z
+date: 2024-12-23T19:19:32.779Z
+updated: 2024-12-28T17:45:22.677Z
 tags:
   - ai video
   - ai facebook
@@ -37,10 +37,6 @@ Want to have a try? Come on!
 
 A square video in a **1:1 aspect ratio** is preferred by Facebook. There are varieties of video editing apps available in the market that allows you to create a square video and add a letterbox on it. But most of them have a complicated interface and you might need to watch a lot of video tutorials to make head and tail of it. If you want to add such a letterbox for your Facebook video, Wondershare Filmora may be a good choice for you. Currently, Filmora offers two ways to add a letterbox for your square Facebook video.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Method 1: Make a Letterbox by Project Ratio Mismatch
 
 This method is suitable for users whose source videos are not in square format (1:1). It is a simple method in which the aspect ratios of the source and project videos are compared. In this method, a letterbox will be created automatically when there is a mismatch between the aspect ratio of the original video and the project you are creating using the Filmora application. Let us see how this can be done:
@@ -49,17 +45,21 @@ This method is suitable for users whose source videos are not in square format (
 
 ![start-filmora9](https://images.wondershare.com/filmora/article-images/start-filmora9.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * 2\. Go to **File**\-**Import Media** and import the source file to the Media library (let’s say it’s 1920\*1080 at 16:9)
 
 ![import-sample-video](https://images.wondershare.com/filmora/article-images/import-sample-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * 3\. Drag and drop the source video to the timeline, and a black letterbox will be created automatically in the preview window, cause the source file didn’t match the 1:1 ratio you set for the project
 
 ![automatic-letterbox](https://images.wondershare.com/filmora/article-images/automatic-letterbox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * 4\. Add a subtitle under **Titles** tab to the letterbox at the top and bottom and custom the texts you want.
 
@@ -69,17 +69,25 @@ And you can also go to the **Elements** tab, and add some creative elements such
 
 ![add-emoji-elements](https://images.wondershare.com/filmora/article-images/add-emoji-elements.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * 5\. Export the square video to local computer in mp4 or other supported formats
 
 ![filmora9-export-panel](https://images.wondershare.com/filmora/article-images/filmora9-export-panel.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * 6\. Upload the exported square video to Facebook, and show how it looks like on Facebook.
 
 ![post-on-facebook](https://images.wondershare.com/filmora/article-images/post-on-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Method 2: Create a Letterbox by Adding Text Shapes
 
@@ -93,22 +101,22 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 
 ![no-letterbox](https://images.wondershare.com/filmora/article-images/no-letterbox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * 3\. To create a letterbox, choose the option **Titles**. Now you will be shown a variety of subtitles and credit styles
 * 4\. Select **Subtitles**, then add a subtitle style that has a black background to your video, such as Subtitle 1,2,3, etc.
 
 ![add-doll-subtitle](https://images.wondershare.com/filmora/article-images/add-doll-subtitle.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * 5\. You will see that the subtitle appears on the video in real time. Here you can adjust the width and height of the subtitle. Make it so that that black bar covers the lower end of the video completely and delete the text
 
 ![custom-letterbox](https://images.wondershare.com/filmora/article-images/custom-letterbox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * 6\. Drag and drop the subtitle again from the Titles-Subtitles option. This time for the top section of the video
 
@@ -121,14 +129,6 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 * 8\. Export the video to your computer or phone in mp4, then upload it to Facebook, and finally, you will see the magic!
 
 ![post-my-video](https://images.wondershare.com/filmora/article-images/post-my-video.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## To Sum up
 
@@ -153,24 +153,18 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-social-savvy-strategies-for-maxed-out-page-popularity/"><u>[New] 2024 Approved Social Savvy Strategies for Maxed-Out Page Popularity</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-frontline-contenders-top-7-action-fps-games/"><u>[New] In 2024, Frontline Contenders Top 7 Action FPS Games</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-lighten-your-sentence-with-satire-ranking-funniest-facebook-detentions/"><u>[New] In 2024, Lighten Your Sentence with Satire Ranking Funniest Facebook Detentions</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-masterful-fb-marketing-essential-tips-for-every-business-level-for-2024/"><u>[New] Masterful FB Marketing Essential Tips for Every Business Level for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-navigating-the-clouds-and-crowds-stream-from-dji-to-facebook-for-2024/"><u>[New] Navigating the Clouds and Crowds Stream From DJI to Facebook for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-ensuring-smooth-streaming-solutions-for-fb-livestream-problems/"><u>[Updated] 2024 Approved Ensuring Smooth Streaming Solutions for FB Livestream Problems</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-taringaid-profile-image-details-pixel-count-codec-time-span/"><u>[Updated] 2024 Approved TaringaID Profile Image Details Pixel Count, Codec, Time Span</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-sound-excellence-for-podcasters-ultimate-audio-interface-guide/"><u>[Updated] Sound Excellence for Podcasters Ultimate Audio Interface Guide</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-the-road-to-profitable-facebook-marketing-through-engaging-ads/"><u>[Updated] The Road to Profitable Facebook Marketing Through Engaging Ads</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-synchronizing-televisions-and-facebook-live-feeds/"><u>2024 Approved Synchronizing Televisions and Facebook Live Feeds</u></a></li>
-<li><a href="https://extra-information.techidaily.com/best-video-speed-controller-extensions-a-complete-guide/"><u>Best Video Speed Controller Extensions | A Complete Guide|</u></a></li>
-<li><a href="https://techidaily.com/1723808328942-chatgpt-issues-fix-them-with-these-5-quick-tricks/"><u>ChatGPT Issues? Fix Them with These 5 Quick Tricks</u></a></li>
-<li><a href="https://fake-location.techidaily.com/does-life360-notify-when-you-log-out-on-vivo-v27-pro-drfone-by-drfone-virtual-android/"><u>Does Life360 Notify When You Log Out On Vivo V27 Pro? | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/essential-guide-to-windows-11s-auto-hdr-techniques/"><u>Essential Guide to Windows 11'S Auto HDR Techniques</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-change-lava-yuva-2-pro-lock-screen-clock-in-seconds-by-drfone-android/"><u>How To Change Lava Yuva 2 Pro Lock Screen Clock in Seconds</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-activate-and-use-life360-ghost-mode-on-nubia-z50s-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How To Activate and Use Life360 Ghost Mode On Nubia Z50S Pro | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/master-your-audience-smooth-screen-sharing-on-social-livestreams/"><u>Master Your Audience Smooth Screen Sharing on Social Livestreams</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/revolutionize-your-social-media-strategy-use-free-video-creation-kit/"><u>Revolutionize Your Social Media Strategy – Use Free Video Creation Kit</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/why-the-budget-friendly-iphone-14-is-a-game-changer-for-tech-lovers-insights/"><u>Why the Budget-Friendly iPhone 14 Is a Game-Changer for Tech Lovers (Insights )</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-exploring-facebooks-newest-feature-evolution-for-2024/"><u>[New] Exploring Facebook's Newest Feature Evolution for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-revenue-revolution-how-to-design-effective-animated-fb-ads/"><u>[New] Revenue Revolution How to Design Effective Animated FB Ads</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-strategies-for-high-roi-engagement-through-fb-animatons/"><u>[New] Strategies for High-ROI Engagement Through FB Animatons</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-streamlining-time-tracking-for-youtube-videos-for-2024/"><u>[New] Streamlining Time Tracking for YouTube Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-revive-vanished-watch-video-icon/"><u>[Updated] 2024 Approved Revive Vanished Watch Video Icon</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-from-vast-views-to-virtual-visibility-sharing-immersive-content-online/"><u>[Updated] In 2024, From Vast Views to Virtual Visibility Sharing Immersive Content Online</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-innovation-at-the-heart-the-evolution-of-magix-music-maker/"><u>2024 Approved Innovation at the Heart The Evolution of Magix Music Maker</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-is-sns-hdr-pro-worth-your-investment-a-critical-look/"><u>2024 Approved Is SNS HDR Pro Worth Your Investment A Critical Look</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/elevate-your-smart-home-experience-this-labor-day-save-big-on-echo-show-8-with-an-exclusive-30-discount/"><u>Elevate Your Smart Home Experience This Labor Day - Save Big on Echo Show 지 8 with an Exclusive 30% Discount!</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-xiaomi-redmi-a2plus-in-5-easy-ways-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Xiaomi Redmi A2+ in 5 Easy Ways | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-fb-video-downloader-seamless-mp4-conversion/"><u>In 2024, FB Video Downloader Seamless MP4 Conversion</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-samsung-galaxy-s24-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, Top 6 Apps/Services to Trace Any Samsung Galaxy S24 Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://win-answers.techidaily.com/no-more-corrected-warno-crashing-issues-master-the-ultimate-fix-guide-for-gamers/"><u>No More [CORRECTED] Warno Crashing Issues! Master the Ultimate Fix Guide for Gamers</u></a></li>
 </ul></div>
 

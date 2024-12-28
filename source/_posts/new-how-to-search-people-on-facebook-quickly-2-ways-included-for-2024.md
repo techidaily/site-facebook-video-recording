@@ -1,7 +1,7 @@
 ---
 title: "[New] How to Search People on Facebook Quickly (2 Ways Included) for 2024"
-date: 2024-12-20T03:55:20.286Z
-updated: 2024-12-23T01:41:35.523Z
+date: 2024-12-25T18:31:50.450Z
+updated: 2024-12-28T19:01:13.887Z
 tags:
   - ai video
   - ai facebook
@@ -34,11 +34,11 @@ Here are two ways to search people on Facebook. The second option also helps you
 * [**Part 1: How to search people on Facebook**](#part1)
 * [**Part 2: How to search people using Search Is Back**](#part2)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: How to search people on Facebook
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Step 1: Log in to Facebook
 
@@ -51,7 +51,7 @@ On the header tool icons, click on your name and you are directed to your Facebo
 ![facebook friends tab](https://images.wondershare.com/filmora/article-images/facebook-friends-tab.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 3: Friends Finder Page
@@ -61,36 +61,32 @@ To reach the friend’s finder page, click on “find friends” from the friend
 ![friends finder facebook](https://images.wondershare.com/filmora/article-images/friends-finder-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 4: Friends Search
 
 On the top right of old friends search, you can find the “search for your friends” filters. To search your old friends by name, you have to enter their part or full names in the name field and look for them. To find your friends by their location, you may enter your friend’s hometown city’s name in the hometown field to search them by the place when they earlier lived in. To find your school friends or High school and university friends, you may enter the schools’ name and search for them. For searching your old colleagues, you may enter the company or employer’s name and find people who worked in the same organization.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Step 5: Check the results
 
 On the left panel, you can find several names matching your search filter. You just need to scroll and check the displayed list to see if any of your old friends are there in the list. Once you find your old friends, click on the “add friends” button beside their name and the person is added to your official list of friends on Facebook.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: How to search people using Search Is Back
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. Open and Select
 
 On a browser open the [Search is Back site](https://searchisback.com/). You can find four tabs at the top of the page. Click on the first tab, “Find People” and a page appears to select your picks from the available options.
 
 ![search is back](https://images.wondershare.com/filmora/article-images/search-is-back.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Input your Interest
 
@@ -120,6 +116,10 @@ If you want to make Facebook videos, try to use [Filmora](https://tools.techidai
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -135,19 +135,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-exploring-subscriptions-the-value-of-youtube-premium/"><u>[New] 2024 Approved Exploring Subscriptions The Value of YouTube Premium</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-facebook-frenzy-top-downloader-tools-that-bring-videos-to-life-on-idevices/"><u>[New] In 2024, Facebook Frenzy Top Downloader Tools that Bring Videos to Life on iDevices</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-social-networking-site-policies-what-about-posting-videos-in-2024/"><u>[New] Social Networking Site Policies What About Posting Videos, In 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-pinnacle-camera-technology-the-best-reviewed/"><u>[Updated] Pinnacle Camera Technology – The Best Reviewed</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-top-five-new-facebook-features-you-should-know-for-2024/"><u>[Updated] Top Five New Facebook Features You Should Know for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-unleashing-the-potential-of-your-social-media-past/"><u>2024 Approved Unleashing the Potential of Your Social Media Past</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/amazons-finest-iphone-offers-during-the-ultimate-prime-day-sale/"><u>Amazon's Finest iPhone Offers During the Ultimate Prime Day Sale</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/chrome-compatibility-solving-media-errors-for-2024/"><u>Chrome Compatibility Solving Media Errors for 2024</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-vivo-y36i-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Vivo Y36i to BlackBerry | Dr.fone</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-ghostly-pause-recorder-tutorial/"><u>In 2024, Ghostly Pause Recorder Tutorial</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-mastering-your-sound-with-the-compreenas-complete-morphvox-guidebook/"><u>In 2024, Mastering Your Sound with the Compreenas Complete MorphVOX Guidebook</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/online-accessory-fb-stories-capture-app-for-2024/"><u>Online Accessory Fb Stories Capture App for 2024</u></a></li>
-<li><a href="https://win-blog.techidaily.com/top-strategies-for-eliminating-lag-and-hitches-in-minecraft-a-comprehensive-guide-updated/"><u>Top Strategies for Eliminating Lag and Hitches in Minecraft: A Comprehensive Guide (Updated )</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/top-rated-iphone-15-case-picks-ultimate-guide/"><u>Top-Rated iPhone 15 Case Picks: Ultimate Guide</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-adapt-to-facebooks-algorithm-shift-now/"><u>[New] 2024 Approved Adapt to Facebook's Algorithm Shift Now</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-how-to-engage-fans-through-real-time-streams-mobile-edition/"><u>[New] 2024 Approved How to Engage Fans Through Real-Time Streams Mobile Edition</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-conveniently-record-your-favorite-streams-top-5-grabber-apps/"><u>[Updated] 2024 Approved Conveniently Record Your Favorite Streams Top 5 Grabber Apps</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-how-to-transfer-videos-and-photos-from-a-pc-to-an-iphone/"><u>[Updated] 2024 Approved How to Transfer Videos and Photos From a PC to an iPhone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-precise-color-correction-mastery-in-gopro-studio/"><u>[Updated] 2024 Approved Precise Color Correction Mastery in GoPro Studio</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-premier-movie-access-on-facebook-ranked-8-list/"><u>2024 Approved Premier Movie Access on Facebook Ranked #8 List</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/enhancing-imagery-add-filters-to-videos-on-devices/"><u>Enhancing Imagery Add Filters to Videos on Devices</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/gratis-gif-in-flv-converter-professioneel-en-online-dienst-voor-veilig-beheersd-gifvormige-videokompressie-movavi/"><u>Gratis GIF-in-FLV Converter: Professioneel en Online-Dienst Voor Veilig Beheersd Gifvormige Videokompressie - Movavi</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-nubiawithwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Nubiawith/without a PC</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/maximize-conversions-with-cookiebots-automated-bidding-technology-for-google-campaigns/"><u>Maximize Conversions with Cookiebot's Automated Bidding Technology for Google Campaigns</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-if-your-oppo-reno-10-pro-5g-auto-does-not-work-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do if Your Oppo Reno 10 Pro 5G Auto Does Not Work | Dr.fone</u></a></li>
 </ul></div>
 

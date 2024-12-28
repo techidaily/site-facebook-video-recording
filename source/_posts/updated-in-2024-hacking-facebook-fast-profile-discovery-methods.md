@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Hacking Facebook  Fast Profile Discovery Methods\""
-date: 2024-12-17T05:56:36.418Z
-updated: 2024-12-23T05:11:04.041Z
+date: 2024-12-24T19:09:30.650Z
+updated: 2024-12-28T17:23:35.079Z
 tags:
   - ai video
   - ai facebook
@@ -34,19 +34,15 @@ Here are two ways to search people on Facebook. The second option also helps you
 * [**Part 1: How to search people on Facebook**](#part1)
 * [**Part 2: How to search people using Search Is Back**](#part2)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: How to search people on Facebook
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Step 1: Log in to Facebook
 
 Open Facebook on your computer – Firstly, open a web browser and get to the Facebook website. You can find the log in fields on the top right corner of the page. Input your user ID and password and hit the login button at the side to proceed further.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Step 2: Check your list of Friends on Facebook
 
@@ -55,11 +51,7 @@ On the header tool icons, click on your name and you are directed to your Facebo
 ![facebook friends tab](https://images.wondershare.com/filmora/article-images/facebook-friends-tab.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 3: Friends Finder Page
@@ -72,18 +64,22 @@ To reach the friend’s finder page, click on “find friends” from the friend
 
 On the top right of old friends search, you can find the “search for your friends” filters. To search your old friends by name, you have to enter their part or full names in the name field and look for them. To find your friends by their location, you may enter your friend’s hometown city’s name in the hometown field to search them by the place when they earlier lived in. To find your school friends or High school and university friends, you may enter the schools’ name and search for them. For searching your old colleagues, you may enter the company or employer’s name and find people who worked in the same organization.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Step 5: Check the results
 
 On the left panel, you can find several names matching your search filter. You just need to scroll and check the displayed list to see if any of your old friends are there in the list. Once you find your old friends, click on the “add friends” button beside their name and the person is added to your official list of friends on Facebook.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to search people using Search Is Back
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. Open and Select
@@ -101,6 +97,10 @@ In the second step, you need to input your choices or you can see it as filters.
 Once you have filled in all the filters in the page, you can hit Find People button at the end. When you hit the button, you are directed to the Facebook page to show your friend list.
 
 ![search is back facebook](https://images.wondershare.com/filmora/article-images/search-is-back-interest.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Note**: If there are no results on the redirected Facebook page, you must get back to the Search is Back page and change your search filters to start a new round of search.
 
@@ -135,21 +135,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-deciphering-the-function-of-the-blue-icon-in-messenger-for-2024/"><u>[New] Deciphering the Function of the Blue Icon in Messenger for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-synchronizing-tiktok-viewership-and-facebook-shares/"><u>[New] In 2024, Synchronizing TikTok Viewership and Facebook Shares</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-shutter-societys-top-six-elite-4k-dslr-picks-for-2024/"><u>[New] Shutter Society's Top Six Elite 4K DSLR Picks for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-top-workplace-cloud-storage-networks-for-2024/"><u>[New] Top Workplace Cloud Storage Networks for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-save-your-fb-pages-download-8-best-tools-online-and-free/"><u>[Updated] 2024 Approved Save Your FB Pages Download 8 Best Tools Online & Free</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-video-downloader-supreme-fb-vids-in-mp4-format/"><u>[Updated] 2024 Approved Video Downloader Supreme - FB Vids in MP4 Format</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-android-freedom-the-most-popular-top-10-fb-video-extraction-tools-for-2024/"><u>[Updated] Android Freedom The Most Popular Top 10 FB Video Extraction Tools for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-art-of-captivating-valorant-video-thumbnails-on-youtube/"><u>[Updated] The Art of Captivating Valorant Video Thumbnails on YouTube</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-extract-facebooks-most-viewed-videos-anywhere-2023/"><u>2024 Approved Extract Facebook's Most Viewed Videos Anywhere, 2023</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-optimal-mac-animation-storer/"><u>2024 Approved Optimal Mac Animation Storer</u></a></li>
-<li><a href="https://windows11.techidaily.com/addressing-windows-printer-issues-a-guide-for-unresponsive-print-commands/"><u>Addressing Windows Printer Issues: A Guide for Unresponsive Print Commands.</u></a></li>
-<li><a href="https://win-dash.techidaily.com/download-and-troubleshoot-broadcom-gigabit-ethernet-drivers-compatible-with-windows-11/"><u>Download & Troubleshoot Broadcom Gigabit Ethernet Drivers Compatible with Windows 11</u></a></li>
-<li><a href="https://win-luxury.techidaily.com/effective-strategies-for-reading-out-loud-to-audiences-using-flippingbooks-tools/"><u>Effective Strategies for Reading Out Loud to Audiences Using FlippingBook's Tools</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-capture-and-store-facebook-videos-in-hd/"><u>In 2024, Capture and Store Facebook Videos in HD</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/intel-iris-plus-gvt-640-graphics-drivers-fast-installation-guide/"><u>Intel Iris Plus GVT 640 Graphics Drivers: Fast Installation Guide</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/seamless-pet-nutrition-with-arf-pets-discover-the-art-of-automatic-feeding-made-easy/"><u>Seamless Pet Nutrition with Arf Pets – Discover the Art of Automatic Feeding Made Easy!</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-10-android-collage-innovations-to-elevate-creativity/"><u>[New] 10 Android Collage Innovations to Elevate Creativity</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-understanding-the-impact-of-macos-11-big-sur-on-users/"><u>[New] 2024 Approved Understanding the Impact of macOS 11 Big Sur on Users</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-understanding-the-social-tv-landscape-rokus-role/"><u>[New] 2024 Approved Understanding the Social TV Landscape Roku's Role</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-crafting-captivating-captions-elevate-your-pages-popularity-for-2024/"><u>[New] Crafting Captivating Captions Elevate Your Page's Popularity for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-digital-darlings-facebooks-favorites/"><u>[New] Digital Darlings Facebook's Favorites</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-incorporating-videos-in-your-instagram-content/"><u>[New] In 2024, Incorporating Videos in Your Instagram Content</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-bring-back-disappearing-video-icon-on-fb-watch/"><u>[Updated] 2024 Approved Bring Back Disappearing Video Icon on FB Watch</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-elite-content-consummation/"><u>[Updated] 2024 Approved Elite Content Consummation</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-amuse-others-via-adobe-meme-making/"><u>2024 Approved Amuse Others via Adobe Meme-Making</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-strategies-for-correcting-quietened-video-sounds-on-fb/"><u>2024 Approved Strategies for Correcting Quietened Video Sounds on Fb</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/intellectual-ownership-of-machine-learning-outputs/"><u>Intellectual Ownership of Machine Learning Outputs</u></a></li>
+<li><a href="https://extra-support.techidaily.com/pondering-the-value-of-intensified-luminosity-in-hdr-for-2024/"><u>Pondering the Value of Intensified Luminosity in HDR for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/real-time-content-creation-on-facebook-2023-insights/"><u>Real-Time Content Creation on Facebook, 2023 Insights</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/top-10-dynamic-image-backdrops-for-video-editing/"><u>Top 10 Dynamic Image Backdrops for Video Editing</u></a></li>
+<li><a href="https://games-able.techidaily.com/unlocking-potential-install-windows-and-steamos-seamlessly/"><u>Unlocking Potential: Install Windows & SteamOS Seamlessly</u></a></li>
 </ul></div>
 

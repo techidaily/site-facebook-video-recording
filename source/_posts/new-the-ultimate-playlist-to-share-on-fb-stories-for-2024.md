@@ -1,7 +1,7 @@
 ---
 title: "[New] The Ultimate Playlist to Share on FB Stories for 2024"
-date: 2024-12-03T17:41:58.429Z
-updated: 2024-12-08T04:07:56.056Z
+date: 2024-12-24T17:50:35.523Z
+updated: 2024-12-28T20:39:34.853Z
 tags:
   - ai video
   - ai facebook
@@ -34,10 +34,6 @@ Everyone wants to make their social media accounts fun and interactive to attrac
 
 ---
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: How to Create a Music-only Facebook Story?
 
 Music-only stories are becoming a Facebook trend and a way to let people know the songs you are currently hooked to. Do you know how to add music-only stories? If not, here is how to do it:
@@ -61,10 +57,14 @@ Click done on the right corner to post the music story. Your story will be avail
 ![Edit FB Music](https://images.wondershare.com/filmora/article-images/edit-facebook-music-sticker.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Note: Currently, you can add music stories on Facebook mobile app only. On a desktop, you can only create a photo story or text story.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How to Add Music to Facebook Photo/Video Story?
 
@@ -87,7 +87,7 @@ After tapping on the music sticker, click on the song you want to play with your
 ![add music sticker  ](https://images.wondershare.com/filmora/article-images/add-music-with-facebook-music-sticker.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to Add My Own Music to Facebook Story?
@@ -106,15 +106,15 @@ Drag video to timeline, hover the cursor over the audio and video file until a +
 
 ![edit FB music story  ](https://images.wondershare.com/filmora/article-images/add-facebook-story-video-filmora.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3: Edit the audio**
 
 Double click on the audio file within the panel given on the top of the Filmora screen. You will find a few options to edit audio, such as fade-in, fade-out, equalizer, volume, etc.
 
 ![edit FB music story  ](https://images.wondershare.com/filmora/article-images/edit-facebook-story-music-filmora.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  **Step 4: Export edited file**
 
@@ -129,7 +129,7 @@ _For more details about editing videos on Filmora, you can check [How to Edit Vi
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: How to Customize the Appearance of Your Facebook Story Song?
@@ -142,10 +142,6 @@ You can click on the play button after selecting the song, and it will appear in
 
 ![enable FB music story lyric  ](https://images.wondershare.com/filmora/article-images/enable-facebook-music-sticker-lyric-mode.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  **Step**  2: Change the color **and**   **add elements**
 
 Tap and hold the sticker; move your finger on the screen to place the sticker anywhere you like. You can also click on the rainbow-colored dot on the screen to change the background and lyrics color.
@@ -153,6 +149,10 @@ Tap and hold the sticker; move your finger on the screen to place the sticker an
 A user can also select elements from the given options. You can add a poll, emojis, and GIFs to interact with viewers. Click on done on the top right corner to post.
 
 ![edit FB music story lyric  ](https://images.wondershare.com/filmora/article-images/edit-facebook-music-sticker-color-elements.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## FAQs About Adding Music to Facebook Story
 
@@ -185,14 +185,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-digital-self-portrait-designing-your-animated-profile/"><u>[New] 2024 Approved Digital Self-Portrait Designing Your Animated Profile</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-chromes-video-performance-boost-for-social-media/"><u>[New] In 2024, Chrome's Video Performance Boost for Social Media</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/new-in-2024-smile-with-these-top-funny-tiktok-videos-and-jokes/"><u>[New] In 2024, Smile with These Top Funny TikTok Videos and Jokes</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-top-15-tools-for-boosting-fb-sales-through-data-analysis/"><u>[New] In 2024, Top 15 Tools for Boosting FB Sales Through Data Analysis</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-boosting-brand-visibility-essential-insta-highlight-upgrades/"><u>[Updated] 2024 Approved Boosting Brand Visibility Essential Insta Highlight Upgrades</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-from-bland-to-blockbuster-framing-videos-in-a-square-perspective/"><u>[Updated] From Bland to Blockbuster Framing Videos in a Square Perspective</u></a></li>
-<li><a href="https://techtrends.techidaily.com/experience-deep-bass-with-skullcandy-smokin-buds-xt-premium-sound-quality-without-breaking-the-bank/"><u>Experience Deep Bass with Skullcandy Smokin' Buds XT – Premium Sound Quality Without Breaking the Bank</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/how-to-execute-a-budget-friendly-youtube-seminar-for-2024/"><u>How to Execute a Budget-Friendly Youtube Seminar for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/multi-device-connectivity-managing-a-single-phone-number-across-various-gadgets/"><u>Multi-Device Connectivity: Managing a Single Phone Number Across Various Gadgets</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-comprehensive-solution-guide-turning-xml-and-ttml-into-srt-for-2024/"><u>[New] Comprehensive Solution Guide Turning XML & TTML Into SRT for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-ace-your-fb-video-campaigns-with-these-powerful-tricks/"><u>[New] In 2024, Ace Your FB Video Campaigns with These Powerful Tricks</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-stream-friendly-free-tunes-vault-fb-for-2024/"><u>[New] Stream-Friendly Free Tunes Vault (FB) for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-mastering-ps4-captures-with-obs-studio-your-complete-guide/"><u>[Updated] 2024 Approved Mastering PS4 Captures with OBS Studio - Your Complete Guide</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-masterclass-uploading-without-complications-on-social-media-for-2024/"><u>[Updated] Masterclass Uploading Without Complications on Social Media for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-the-art-of-engaging-audiences-with-facebooks-split-screen-tech/"><u>[Updated] The Art of Engaging Audiences with Facebook's Split Screen Tech</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-fast-track-to-facebooks-latest-viewing-history-2e23/"><u>2024 Approved Fast Track to Facebook’s Latest Viewing History (2E23)</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/expert-free-fb-image-creator-no-fee/"><u>Expert Free FB Image Creator (No Fee)</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-lyrics-notes-and-beats-fb-style/"><u>In 2024, Lyrics, Notes, and Beats - FB Style</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-videopad-video-editor-a-comprehensive-review-for-aspiring-filmmakers-for-2024/"><u>New Videopad Video Editor A Comprehensive Review for Aspiring Filmmakers for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/the-endless-cycle-unveiled-insights-into-black-survival-crash/"><u>The Endless Cycle Unveiled: Insights Into 'Black Survival Crash'</u></a></li>
+<li><a href="https://win-forum.techidaily.com/the-quintessential-hubs-of-online-interaction-facebook-twitter-instagram-youtube/"><u>The Quintessential Hubs of Online Interaction: Facebook, Twitter, Instagram, Youtube</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/unbeatable-deal-top-ranking-gaming-audio-experience-now-available-at-a-30-discount-on-amazon-insights/"><u>Unbeatable Deal: Top-Ranking Gaming Audio Experience Now Available at a 30% Discount on Amazon - Insights</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-2024-approved-the-ultimate-list-of-free-whiteboard-animation-software-for-windows-mac-and-beyond/"><u>Updated 2024 Approved The Ultimate List of Free Whiteboard Animation Software for Windows, Mac, and Beyond</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-in-2024-convert-like-a-pro-the-top-10-free-4k-video-converters/"><u>Updated In 2024, Convert Like a Pro The Top 10 Free 4K Video Converters</u></a></li>
 </ul></div>
 
