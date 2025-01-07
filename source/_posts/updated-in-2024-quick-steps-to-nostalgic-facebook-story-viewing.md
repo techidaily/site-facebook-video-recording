@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Quick Steps to Nostalgic Facebook Story Viewing"
-date: 2024-12-22T18:06:04.905Z
-updated: 2024-12-28T19:54:53.940Z
+date: 2024-12-30T21:47:49.123Z
+updated: 2025-01-07T01:58:13.758Z
 tags:
   - ai video
   - ai facebook
@@ -43,10 +43,6 @@ Facebook stories are a short generated collection of photos and videos that the 
 
 You can share the content on Facebook stories, which will appear at the top of the Facebook news feed. Also, if you are confused about how to view old stories on Facebook, users need to Tap on friends’ circle at the top area of the application, and while watching the story, one could also reply with a direct message feature.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: How to See Old Facebook Stories on Desktop?
 
 Are you looking at how to see old stories on Facebook desktop? Let’s look at each step in detail:
@@ -57,20 +53,20 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 
 ![facebook old stories more](https://images.wondershare.com/filmora/article-images/2021/facebook-old-stories-more.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3:** Now just tap on the “Story Archive” option from the list.
 
 ![facebook story archive](https://images.wondershare.com/filmora/article-images/2021/facebook-story-archive.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 4:** After this, you would be shown all the stories sequentially in the Story Archives section.
 
 Thus how to view old stories on Facebook desktop is very easy with above above-mentioned easy steps.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to Watch Old Stories on Facebook on your Mobile?
@@ -84,10 +80,6 @@ You can find and see the old stories on Facebook with the help of the archived s
 **Step 3:** Then Select “Archive” from the given options.
 
 ![watch old stories facebook](https://images.wondershare.com/filmora/article-images/2021/watch-old-stories-facebook.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 4:** Scroll towards the right and select on Story Archives tab.
 
@@ -105,13 +97,13 @@ The only chance is that if your friend has uploaded those stories on highlights 
 
 ![see friends old fb story](https://images.wondershare.com/filmora/article-images/2021/see-friends-old-fb-story.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 An old highlighted story shared by your friend would appear on your friend’s profile below the Friends section and above create post option as Story Highlights.
 
 So for the above discussed all ways the only must thing is to setting archive on which would allow you to re-watch stories again and solve your doubt of how to view old stories on Facebook.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 5: How to Create Facebook Videos with Ease?
 
@@ -120,6 +112,10 @@ If you think that to create amazing videos for Facebook, you need to be a profes
 To attract more audience and gain more likes, comments all you need is a smart [video editor](https://tools.techidaily.com/wondershare/filmora/download/) like a Wondershare Filmora. It is one of the most effective video editing tools that help you edit your elements quickly and easily upload over Facebook.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Features:**
 
@@ -146,6 +142,10 @@ Once you are done with installing Wondershare Filmora, you need to click on the�
 You can crop, trim, cut, split, and merge your video in a few clicks in Wondershare Filmora. Also, it has more than 300 effects available in Filmora. You can add various overlays, filters, motion elements, transitions, and much more to your video.
 
 Also, you can add various text effects and add Lower 3rds and subtitles. It has nearly 300 filters, overlays, and elements embedded in Filmora that you can use for your Facebook video and make it look amazing.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Export and Share
 
@@ -178,24 +178,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-convert-fb-videos-to-mp4-no-cost-high-definition-available/"><u>[New] 2024 Approved Convert FB Videos to MP4 - No Cost, High Definition Available</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-minirecord-screen-snapshot-evaluation/"><u>[New] In 2024, MiniRecord Screen Snapshot Evaluation</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-navigating-youtubes-revenue-mechanisms/"><u>[New] Navigating YouTube's Revenue Mechanisms</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-become-an-expert-in-real-time-streaming-on-facebook-platform/"><u>[Updated] Become an Expert in Real-Time Streaming on Facebook Platform</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-fb-content-conversion-turn-vids-into-mp3s-in-seconds-for-2024/"><u>[Updated] FB Content Conversion Turn Vids Into MP3s in Seconds for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-swiftly-share-your-fb-films-in-whatsapp-messages/"><u>[Updated] Swiftly Share Your FB Films in WhatsApp Messages</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-the-hidden-layer-capturing-chats-as-fb-media-files/"><u>[Updated] The Hidden Layer Capturing Chats as FB Media Files</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-adaptive-strategies-for-successful-content-on-new-fb-algorithm/"><u>2024 Approved Adaptive Strategies for Successful Content on New FB Algorithm</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-free-guide-recording-youtube-videos-on-screencasts/"><u>2024 Approved Free Guide Recording YouTube Videos on Screencasts</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-maximize-your-media-influence-with-10-effortless-steps/"><u>2024 Approved Maximize Your Media Influence with 10 Effortless Steps</u></a></li>
-<li><a href="https://program-issues.techidaily.com/1723003781149-2024s-top-tricks-for-a-smooth-dota-2-experience-stop-lag-once-and-for-good/"><u>2024'S Top Tricks for a Smooth Dota 2 Experience: Stop Lag Once and For Good</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/tise-unleashed-professional-insights-into-video-editing/"><u>Expertise Unleashed Professional Insights Into Video Editing</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-cutting-edge-tactics-for-grabbing-your-favorite-fb-vids/"><u>In 2024, Cutting Edge Tactics for Grabbing Your Favorite FB Vids</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-exploring-social-networking-youtube-content-on-fb/"><u>In 2024, Exploring Social Networking YouTube Content on FB</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-remove-and-reset-face-id-on-iphone-xr-by-drfone-ios/"><u>In 2024, How to Remove and Reset Face ID on iPhone XR</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/new-2024-approved-final-cut-pro-x-crashing-heres-the-ultimate-fix/"><u>New 2024 Approved Final Cut Pro X Crashing? Heres the Ultimate Fix</u></a></li>
-<li><a href="https://common-error.techidaily.com/solve-dell-camera-problems-quickly-for-windows-users/"><u>Solve Dell Camera Problems Quickly for Windows Users</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-rated-portable-laptop-power-solutions/"><u>Top Rated Portable Laptop Power Solutions</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/winx-dvd-ripper-platinum-vs-winx-dvd-copy-pro-features-and-differences-unveiled/"><u>WinX DVD Ripper Platinum Vs. WinX DVD Copy Pro: Features & Differences Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-transforms-virtual-realms-a-multilingual-milestone-on-oculus-quest/"><u>'Mondly' Transforms Virtual Realms: A Multilingual Milestone on Oculus Quest</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-camouflaged-consumer-of-facebook-feeds/"><u>[New] 2024 Approved Camouflaged Consumer of Facebook Feeds</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-how-to-go-live-on-facebook/"><u>[New] How to Go Live on Facebook?</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-the-art-of-duality-mastering-image-turnover-on-social-media-giants-for-2024/"><u>[New] The Art of Duality Mastering Image Turnover on Social Media Giants for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-bridging-social-media-posting-tweets-on-fb/"><u>[Updated] 2024 Approved Bridging Social Media Posting Tweets on FB</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-elevated-viewership-status-symbolized-by-buttons/"><u>[Updated] 2024 Approved Elevated Viewership Status Symbolized by Buttons</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/1716118408180-updated-facebook-videos-vertical-or-horizontal-in-2024/"><u>[Updated] Facebook Videos Vertical or Horizontal, In 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-mastering-close-up-shots-zooming-into-action-films/"><u>[Updated] Mastering Close-Up Shots Zooming Into Action Films</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-the-entrepreneurs-lifeline-critical-items-every-startup-needs-right-now/"><u>[Updated] The Entrepreneur's Lifeline Critical Items Every Startup Needs Right Now</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/bring-ai-talk-to-life-on-android-via-widgets/"><u>Bring AI Talk to Life on Android via Widgets</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-direct-linking-of-youtube-content-to-facebook-feeds-via-autoplay-settings/"><u>In 2024, Direct Linking of YouTube Content to Facebook Feeds via Autoplay Settings</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-how-to-fake-gps-on-android-without-mock-location-for-your-oneplus-12r-drfone-by-drfone-virtual/"><u>In 2024, How to Fake GPS on Android without Mock Location For your OnePlus 12R | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-the-macs-hidden-photo-tool-a-complete-guide-to-using-preview/"><u>Mastering the Mac's Hidden Photo Tool: A Complete Guide to Using Preview</u></a></li>
+<li><a href="https://video-capture.techidaily.com/step-by-step-tutorial-on-mastering-audio-editing-with-leading-cutters/"><u>Step-by-Step Tutorial on Mastering Audio Editing with Leading Cutters</u></a></li>
 </ul></div>
 

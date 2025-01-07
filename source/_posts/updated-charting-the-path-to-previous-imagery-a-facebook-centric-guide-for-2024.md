@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Charting the Path to Previous Imagery  A Facebook-Centric Guide for 2024\""
-date: 2024-07-20T16:19:54.077Z
-updated: 2024-07-21T16:19:54.077Z
+date: 2025-01-04T04:26:24.094Z
+updated: 2025-01-06T18:01:43.932Z
 tags:
   - ai video
   - ai facebook
@@ -45,199 +45,6 @@ Facebook provides each image with a unique Facebook Photo ID. Have you ever noti
 
 **Step 01:** First of all, we have to locate the photo ID of the image. To do that, navigate to the image and right-click on it. Now select "Copy Image Address." It will copy the link to the image. Now paste it somewhere like Word or Notepad. To see how it looks like. You can see three sets of numbers that are followed by "jpg" or "png."
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-photo-id-step1.png)
-
-_fbid=65502964574389&set=a.846739673xxxxx.2345.10000116735844&type_
-
-We will need the middle set of numbers.
-
-**Step 02:** Copy and paste this address into your browser _<https://www.facebook.com/photo.php?fbid=>_
-
-Now copy the middle set of numbers and paste it after this URL, and hit enter.
-
-It will lead you to the profile which contains the image.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-photo-id-step2.png)
-
- ---
-
-#### 2\. Reverse Image Search Facebook using TinEye
-
-One of the easiest ways to find information about an image is using platforms specially designed for this purpose. One of the best and widely used platforms is TinEye. TinEye can help you have a Reverse Image Search on Facebook and help you get to the profile which originated the image.
-
-**Step 01:** Open <www.tineye.com> in your browser.
-
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
-![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-tineye-poster.png)
-
-**Step 02:** You can have a reverse image search Facebook by uploading the image from your device or by pasting the URL of the image into the search box. Choose any of the methods that best suit your needs and hit the "Search" Icon.
-
-It will bring you similar as well as some related sources on the internet.
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-tineye-poster-step2.png)
-
- ---
-
-#### 3\. Reverse Image Search Facebook using Google Images
-
-Google is known for its search engine but most people are unaware of the feature of reverse image search of Google. It allows you to find the source of the images, information about the images and much more related to a particular image. We can use Google to have a reverse image search Facebook as well.
-
-**Step 01:** Navigate to images.google.com
-
-![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-google-images-step1.png)
-
-**Step 02:** Hit on the "Camera" icon beside the search box. Now click on Search by Google. It will provide you with two options for reverse image search, upload the image or paste the URL of the image. If you have the image saved on your device, then upload it on Google.
-
-![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-google-images-step2.png)
-
-If the Facebook profile that contains the image doesn't have any restrictions, you can see the Facebook profile in the search results. It will show you all the related websites and pages that contain the same image. It will lead to the profile that contains the image you have searched for.
-
-#### Conclusion
-
-All of the above methods can help you have a reverse image search Facebook for any purpose you want. Choose any of the methods that are more convenient and easier for you to apply. You can try all of these three methods and see which one works best for you.
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-Liza Brown
-
-Liza Brown is a writer and a lover of all things video.
-
-Follow @Liza Brown
-
-##### Liza Brown
-
- Mar 27, 2024• Proven solutions
-
-Are you looking for the name of a person you have a picture of? Have to lose a previous contact and want to find that person again? Or do you want to know the source of an image you want to use on your website or blog? If you are looking for answers to any of these questions, then this article on reverse image search Facebook is going to help you find the answer.
-
-Unfortunately, Facebook doesn't come with the feature of reverse image search. There are several other ways to perform the reverse image search on Facebook.
-
-In this article, we are going to discuss three ways on how to reverse image search Facebook.
-
-* [1\. Reverse Image Search Facebook using Facebook Photo ID](#way1)
-* [2\. Reverse Image Search Facebook using TinEye](#way2)
-* [3\. Reverse Image Search Facebook using Google Images](#way3)
-
- **You can check [How to Reverse Search a Pic on Your iPhone Here>>](https://tools.techidaily.com/wondershare/filmora/download/)**
-
----
-
-#### 1\. Reverse Image Search Facebook using Facebook Photo ID
-
-Facebook provides each image with a unique Facebook Photo ID. Have you ever noticed that it has a weird number as its name when you download a Facebook image? Before using this method, it is important to keep something in your mind. After using this method, you will be redirected to a profile, you don't need to reach a profile of the person in the photo. But it might be a profile where this picture was originated. Another thing to be considered is that the profile you will reach after this reverse image search Facebook may contain limited information depending upon the profile's privacy settings.
-
-**Step 01:** First of all, we have to locate the photo ID of the image. To do that, navigate to the image and right-click on it. Now select "Copy Image Address." It will copy the link to the image. Now paste it somewhere like Word or Notepad. To see how it looks like. You can see three sets of numbers that are followed by "jpg" or "png."
-
-![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-photo-id-step1.png)
-
-_fbid=65502964574389&set=a.846739673xxxxx.2345.10000116735844&type_
-
-We will need the middle set of numbers.
-
-**Step 02:** Copy and paste this address into your browser _<https://www.facebook.com/photo.php?fbid=>_
-
-Now copy the middle set of numbers and paste it after this URL, and hit enter.
-
-It will lead you to the profile which contains the image.
-
-![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-photo-id-step2.png)
-
- ---
-
-#### 2\. Reverse Image Search Facebook using TinEye
-
-One of the easiest ways to find information about an image is using platforms specially designed for this purpose. One of the best and widely used platforms is TinEye. TinEye can help you have a Reverse Image Search on Facebook and help you get to the profile which originated the image.
-
-**Step 01:** Open <www.tineye.com> in your browser.
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
-<!-- affiliate ads end -->
-![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-tineye-poster.png)
-
-**Step 02:** You can have a reverse image search Facebook by uploading the image from your device or by pasting the URL of the image into the search box. Choose any of the methods that best suit your needs and hit the "Search" Icon.
-
-It will bring you similar as well as some related sources on the internet.
-
-![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-tineye-poster-step2.png)
-
- ---
-
-#### 3\. Reverse Image Search Facebook using Google Images
-
-Google is known for its search engine but most people are unaware of the feature of reverse image search of Google. It allows you to find the source of the images, information about the images and much more related to a particular image. We can use Google to have a reverse image search Facebook as well.
-
-**Step 01:** Navigate to images.google.com
-
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->
-![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-google-images-step1.png)
-
-**Step 02:** Hit on the "Camera" icon beside the search box. Now click on Search by Google. It will provide you with two options for reverse image search, upload the image or paste the URL of the image. If you have the image saved on your device, then upload it on Google.
-
-![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-google-images-step2.png)
-
-If the Facebook profile that contains the image doesn't have any restrictions, you can see the Facebook profile in the search results. It will show you all the related websites and pages that contain the same image. It will lead to the profile that contains the image you have searched for.
-
-#### Conclusion
-
-All of the above methods can help you have a reverse image search Facebook for any purpose you want. Choose any of the methods that are more convenient and easier for you to apply. You can try all of these three methods and see which one works best for you.
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-Liza Brown
-
-Liza Brown is a writer and a lover of all things video.
-
-Follow @Liza Brown
-
-##### Liza Brown
-
- Mar 27, 2024• Proven solutions
-
-Are you looking for the name of a person you have a picture of? Have to lose a previous contact and want to find that person again? Or do you want to know the source of an image you want to use on your website or blog? If you are looking for answers to any of these questions, then this article on reverse image search Facebook is going to help you find the answer.
-
-Unfortunately, Facebook doesn't come with the feature of reverse image search. There are several other ways to perform the reverse image search on Facebook.
-
-In this article, we are going to discuss three ways on how to reverse image search Facebook.
-
-* [1\. Reverse Image Search Facebook using Facebook Photo ID](#way1)
-* [2\. Reverse Image Search Facebook using TinEye](#way2)
-* [3\. Reverse Image Search Facebook using Google Images](#way3)
-
- **You can check [How to Reverse Search a Pic on Your iPhone Here>>](https://tools.techidaily.com/wondershare/filmora/download/)**
-
----
-
-#### 1\. Reverse Image Search Facebook using Facebook Photo ID
-
-Facebook provides each image with a unique Facebook Photo ID. Have you ever noticed that it has a weird number as its name when you download a Facebook image? Before using this method, it is important to keep something in your mind. After using this method, you will be redirected to a profile, you don't need to reach a profile of the person in the photo. But it might be a profile where this picture was originated. Another thing to be considered is that the profile you will reach after this reverse image search Facebook may contain limited information depending upon the profile's privacy settings.
-
-**Step 01:** First of all, we have to locate the photo ID of the image. To do that, navigate to the image and right-click on it. Now select "Copy Image Address." It will copy the link to the image. Now paste it somewhere like Word or Notepad. To see how it looks like. You can see three sets of numbers that are followed by "jpg" or "png."
-
 ![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-photo-id-step1.png)
 
 _fbid=65502964574389&set=a.846739673xxxxx.2345.10000116735844&type_
@@ -276,9 +83,6 @@ Google is known for its search engine but most people are unaware of the feature
 
 **Step 01:** Navigate to images.google.com
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-google-images-step1.png)
 
 **Step 02:** Hit on the "Camera" icon beside the search box. Now click on Search by Google. It will provide you with two options for reverse image search, upload the image or paste the URL of the image. If you have the image saved on your device, then upload it on Google.
@@ -337,9 +141,6 @@ Now copy the middle set of numbers and paste it after this URL, and hit enter.
 
 It will lead you to the profile which contains the image.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
-<!-- affiliate ads end -->
 ![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-photo-id-step2.png)
 
  ---
@@ -350,18 +151,12 @@ One of the easiest ways to find information about an image is using platforms sp
 
 **Step 01:** Open <www.tineye.com> in your browser.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-tineye-poster.png)
 
 **Step 02:** You can have a reverse image search Facebook by uploading the image from your device or by pasting the URL of the image into the search box. Choose any of the methods that best suit your needs and hit the "Search" Icon.
 
 It will bring you similar as well as some related sources on the internet.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-tineye-poster-step2.png)
 
  ---
@@ -384,14 +179,176 @@ If the Facebook profile that contains the image doesn't have any restrictions, y
 
 All of the above methods can help you have a reverse image search Facebook for any purpose you want. Choose any of the methods that are more convenient and easier for you to apply. You can try all of these three methods and see which one works best for you.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+Liza Brown
+
+Liza Brown is a writer and a lover of all things video.
+
+Follow @Liza Brown
+
+##### Liza Brown
+
+ Mar 27, 2024• Proven solutions
+
+Are you looking for the name of a person you have a picture of? Have to lose a previous contact and want to find that person again? Or do you want to know the source of an image you want to use on your website or blog? If you are looking for answers to any of these questions, then this article on reverse image search Facebook is going to help you find the answer.
+
+Unfortunately, Facebook doesn't come with the feature of reverse image search. There are several other ways to perform the reverse image search on Facebook.
+
+In this article, we are going to discuss three ways on how to reverse image search Facebook.
+
+* [1\. Reverse Image Search Facebook using Facebook Photo ID](#way1)
+* [2\. Reverse Image Search Facebook using TinEye](#way2)
+* [3\. Reverse Image Search Facebook using Google Images](#way3)
+
+ **You can check [How to Reverse Search a Pic on Your iPhone Here>>](https://tools.techidaily.com/wondershare/filmora/download/)**
+
+---
+
+#### 1\. Reverse Image Search Facebook using Facebook Photo ID
+
+Facebook provides each image with a unique Facebook Photo ID. Have you ever noticed that it has a weird number as its name when you download a Facebook image? Before using this method, it is important to keep something in your mind. After using this method, you will be redirected to a profile, you don't need to reach a profile of the person in the photo. But it might be a profile where this picture was originated. Another thing to be considered is that the profile you will reach after this reverse image search Facebook may contain limited information depending upon the profile's privacy settings.
+
+**Step 01:** First of all, we have to locate the photo ID of the image. To do that, navigate to the image and right-click on it. Now select "Copy Image Address." It will copy the link to the image. Now paste it somewhere like Word or Notepad. To see how it looks like. You can see three sets of numbers that are followed by "jpg" or "png."
+
+![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-photo-id-step1.png)
+
+_fbid=65502964574389&set=a.846739673xxxxx.2345.10000116735844&type_
+
+We will need the middle set of numbers.
+
+**Step 02:** Copy and paste this address into your browser _<https://www.facebook.com/photo.php?fbid=>_
+
+Now copy the middle set of numbers and paste it after this URL, and hit enter.
+
+It will lead you to the profile which contains the image.
+
+![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-photo-id-step2.png)
+
+ ---
+
+#### 2\. Reverse Image Search Facebook using TinEye
+
+One of the easiest ways to find information about an image is using platforms specially designed for this purpose. One of the best and widely used platforms is TinEye. TinEye can help you have a Reverse Image Search on Facebook and help you get to the profile which originated the image.
+
+**Step 01:** Open <www.tineye.com> in your browser.
+
+![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-tineye-poster.png)
+
+**Step 02:** You can have a reverse image search Facebook by uploading the image from your device or by pasting the URL of the image into the search box. Choose any of the methods that best suit your needs and hit the "Search" Icon.
+
+It will bring you similar as well as some related sources on the internet.
+
+![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-tineye-poster-step2.png)
+
+ ---
+
+#### 3\. Reverse Image Search Facebook using Google Images
+
+Google is known for its search engine but most people are unaware of the feature of reverse image search of Google. It allows you to find the source of the images, information about the images and much more related to a particular image. We can use Google to have a reverse image search Facebook as well.
+
+**Step 01:** Navigate to images.google.com
+
+![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-google-images-step1.png)
+
+**Step 02:** Hit on the "Camera" icon beside the search box. Now click on Search by Google. It will provide you with two options for reverse image search, upload the image or paste the URL of the image. If you have the image saved on your device, then upload it on Google.
+
+![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-google-images-step2.png)
+
+If the Facebook profile that contains the image doesn't have any restrictions, you can see the Facebook profile in the search results. It will show you all the related websites and pages that contain the same image. It will lead to the profile that contains the image you have searched for.
+
+#### Conclusion
+
+All of the above methods can help you have a reverse image search Facebook for any purpose you want. Choose any of the methods that are more convenient and easier for you to apply. You can try all of these three methods and see which one works best for you.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+Liza Brown
+
+Liza Brown is a writer and a lover of all things video.
+
+Follow @Liza Brown
+
+##### Liza Brown
+
+ Mar 27, 2024• Proven solutions
+
+Are you looking for the name of a person you have a picture of? Have to lose a previous contact and want to find that person again? Or do you want to know the source of an image you want to use on your website or blog? If you are looking for answers to any of these questions, then this article on reverse image search Facebook is going to help you find the answer.
+
+Unfortunately, Facebook doesn't come with the feature of reverse image search. There are several other ways to perform the reverse image search on Facebook.
+
+In this article, we are going to discuss three ways on how to reverse image search Facebook.
+
+* [1\. Reverse Image Search Facebook using Facebook Photo ID](#way1)
+* [2\. Reverse Image Search Facebook using TinEye](#way2)
+* [3\. Reverse Image Search Facebook using Google Images](#way3)
+
+ **You can check [How to Reverse Search a Pic on Your iPhone Here>>](https://tools.techidaily.com/wondershare/filmora/download/)**
+
+---
+
+#### 1\. Reverse Image Search Facebook using Facebook Photo ID
+
+Facebook provides each image with a unique Facebook Photo ID. Have you ever noticed that it has a weird number as its name when you download a Facebook image? Before using this method, it is important to keep something in your mind. After using this method, you will be redirected to a profile, you don't need to reach a profile of the person in the photo. But it might be a profile where this picture was originated. Another thing to be considered is that the profile you will reach after this reverse image search Facebook may contain limited information depending upon the profile's privacy settings.
+
+**Step 01:** First of all, we have to locate the photo ID of the image. To do that, navigate to the image and right-click on it. Now select "Copy Image Address." It will copy the link to the image. Now paste it somewhere like Word or Notepad. To see how it looks like. You can see three sets of numbers that are followed by "jpg" or "png."
+
+![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-photo-id-step1.png)
+
+_fbid=65502964574389&set=a.846739673xxxxx.2345.10000116735844&type_
+
+We will need the middle set of numbers.
+
+**Step 02:** Copy and paste this address into your browser _<https://www.facebook.com/photo.php?fbid=>_
+
+Now copy the middle set of numbers and paste it after this URL, and hit enter.
+
+It will lead you to the profile which contains the image.
+
+![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-photo-id-step2.png)
+
+ ---
+
+#### 2\. Reverse Image Search Facebook using TinEye
+
+One of the easiest ways to find information about an image is using platforms specially designed for this purpose. One of the best and widely used platforms is TinEye. TinEye can help you have a Reverse Image Search on Facebook and help you get to the profile which originated the image.
+
+**Step 01:** Open <www.tineye.com> in your browser.
+
+![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-tineye-poster.png)
+
+**Step 02:** You can have a reverse image search Facebook by uploading the image from your device or by pasting the URL of the image into the search box. Choose any of the methods that best suit your needs and hit the "Search" Icon.
+
+It will bring you similar as well as some related sources on the internet.
+
+![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-tineye-poster-step2.png)
+
+ ---
+
+#### 3\. Reverse Image Search Facebook using Google Images
+
+Google is known for its search engine but most people are unaware of the feature of reverse image search of Google. It allows you to find the source of the images, information about the images and much more related to a particular image. We can use Google to have a reverse image search Facebook as well.
+
+**Step 01:** Navigate to images.google.com
+
+![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-google-images-step1.png)
+
+**Step 02:** Hit on the "Camera" icon beside the search box. Now click on Search by Google. It will provide you with two options for reverse image search, upload the image or paste the URL of the image. If you have the image saved on your device, then upload it on Google.
+
+![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/reverse-image-search-using-google-images-step2.png)
+
+If the Facebook profile that contains the image doesn't have any restrictions, you can see the Facebook profile in the search results. It will show you all the related websites and pages that contain the same image. It will lead to the profile that contains the image you have searched for.
+
+#### Conclusion
+
+All of the above methods can help you have a reverse image search Facebook for any purpose you want. Choose any of the methods that are more convenient and easier for you to apply. You can try all of these three methods and see which one works best for you.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -411,8 +368,6 @@ Follow @Liza Brown
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -421,7 +376,26 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-the-future-in-flight-djis-mavic-pro-breakdown/"><u>[New] 2024 Approved The Future in Flight DJI's Mavic Pro Breakdown</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-artistic-horizons-scouting-the-finest-8-drawing-apps-for-iphones/"><u>[New] Artistic Horizons Scouting the Finest 8 Drawing Apps for iPhones</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-engage-broadly-embedding-twitch-videos-on-fb/"><u>[New] Engage Broadly Embedding Twitch Videos on FB</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-fbstream-reaper-download-features/"><u>[New] FbStream Reaper - Download Features</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-immediate-video-removal-by-facebook-an-overview-of-processes/"><u>[New] Immediate Video Removal by Facebook - An Overview of Processes</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-essential-guide-to-free-attractive-youtube-intros-for-2024/"><u>[New] The Essential Guide to Free, Attractive YouTube Intros for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-tutorial-transferring-youtube-videos-to-social-media-facebook-edition/"><u>[Updated] 2024 Approved Tutorial Transferring YouTube Videos to Social Media - Facebook Edition</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-effortless-access-to-videos-find-your-perfect-chromium-extension-for-fb-vids-for-2024/"><u>[Updated] Effortless Access to Videos Find Your Perfect Chromium Extension for FB Vids for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-periscope-streaming-made-simple/"><u>[Updated] Periscope Streaming Made Simple</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-the-fundamentals-of-screen-capture-with-a-dell-device-for-2024/"><u>[Updated] The Fundamentals of Screen Capture with a Dell Device for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-transform-your-facebook-presence-with-dynamic-slideshows/"><u>[Updated] Transform Your Facebook Presence with Dynamic Slideshows</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-accelerating-attention-how-to-alter-video-speed-on-stories/"><u>2024 Approved Accelerating Attention How to Alter Video Speed on Stories</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/facebooks-most-popular-video-gems-uncovered/"><u>Facebook's Most Popular Video Gems Uncovered</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-icloud-on-iphone-13-pro-smoothly-by-drfone-ios/"><u>In 2024, How To Remove iCloud On iPhone 13 Pro Smoothly</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-making-your-mark-with-instagram-videos/"><u>In 2024, Making Your Mark with Instagram Videos</u></a></li>
+</ul></div>
 
-
-
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

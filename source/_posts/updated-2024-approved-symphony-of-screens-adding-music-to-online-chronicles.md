@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Symphony of Screens  Adding Music to Online Chronicles\""
-date: 2024-12-25T18:25:16.309Z
-updated: 2024-12-28T17:46:21.284Z
+date: 2025-01-05T08:59:23.951Z
+updated: 2025-01-07T11:30:10.688Z
 tags:
   - ai video
   - ai facebook
@@ -34,6 +34,10 @@ Everyone wants to make their social media accounts fun and interactive to attrac
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to Create a Music-only Facebook Story?
 
 Music-only stories are becoming a Facebook trend and a way to let people know the songs you are currently hooked to. Do you know how to add music-only stories? If not, here is how to do it:
@@ -56,11 +60,11 @@ Click done on the right corner to post the music story. Your story will be avail
 
 ![Edit FB Music](https://images.wondershare.com/filmora/article-images/edit-facebook-music-sticker.jpg)
 
-Note: Currently, you can add music stories on Facebook mobile app only. On a desktop, you can only create a photo story or text story.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+Note: Currently, you can add music stories on Facebook mobile app only. On a desktop, you can only create a photo story or text story.
 
 ## Part 2: How to Add Music to Facebook Photo/Video Story?
 
@@ -76,6 +80,10 @@ After clicking a picture or making a video, tap on the sticker icon. Select the 
 
 ![add music sticker on FB](https://images.wondershare.com/filmora/article-images/add-music-sticker-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  **Step 3: Add music**   **and**   **post**
 
 After tapping on the music sticker, click on the song you want to play with your story. When you are done editing the sticker and your story, click   **Done** on the top right corner to post it.
@@ -83,11 +91,7 @@ After tapping on the music sticker, click on the song you want to play with your
 ![add music sticker  ](https://images.wondershare.com/filmora/article-images/add-music-with-facebook-music-sticker.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to Add My Own Music to Facebook Story?
@@ -125,7 +129,7 @@ _For more details about editing videos on Filmora, you can check [How to Edit Vi
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: How to Customize the Appearance of Your Facebook Story Song?
@@ -147,11 +151,7 @@ A user can also select elements from the given options. You can add a poll, emoj
 ![edit FB music story lyric  ](https://images.wondershare.com/filmora/article-images/edit-facebook-music-sticker-color-elements.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## FAQs About Adding Music to Facebook Story
@@ -185,21 +185,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-android-and-iphones-leading-tools-for-enhanced-fb-likes/"><u>[New] Android & iPhone's Leading Tools for Enhanced FB Likes</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-nikon-j5-setting-new-standards-in-high-resolution-video-production/"><u>[New] Nikon J5 Setting New Standards in High-Resolution Video Production</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-facebook-verification-how-to-verify-facebook-page-easily/"><u>[Updated] 2024 Approved Facebook Verification How to Verify Facebook Page Easily</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-fixing-failed-video-uploads-on-facebook-live-features/"><u>[Updated] 2024 Approved Fixing Failed Video Uploads on Facebook Live Features</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-online-oasis-media-mashup/"><u>[Updated] 2024 Approved Online Oasis Media Mashup</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-reclaim-your-social-space-after-a-hack/"><u>[Updated] 2024 Approved Reclaim Your Social Space After a Hack</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-snapshot-showdown-youtube-shorts-challenge-to-the-titans-of-tiktok-for-2024/"><u>[Updated] Snapshot Showdown YouTube Shorts Challenge to the Titans of TikTok for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-connect-and-entertain-stream-xbox-games-on-the-worlds-stage-facebook/"><u>2024 Approved Connect & Entertain Stream Xbox Games on the World's Stage - Facebook</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-content-strategy-boost-top-8-youtube-rank-watcher-revealed/"><u>2024 Approved Content Strategy Boost Top 8 YouTube Rank Watcher Revealed</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-youtubes-edge-and-dailymotions-charms-an-in-depth-look/"><u>2024 Approved YouTube's Edge & Dailymotion's Charms An In-Depth Look</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/achieve-full-screen-display-in-social-media-videos-for-2024/"><u>Achieve Full-Screen Display in Social Media Videos for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/fresh-release-of-realtek-bluetooth-drivers-secure-your-windows-11-10-devices-now/"><u>Fresh Release of Realtek Bluetooth Drivers - Secure Your Windows 11, 10 Devices Now!</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-a-network-locked-xiaomi-civi-3-disney-100th-anniversary-edition-phone-by-drfone-android/"><u>In 2024, How to Unlock a Network Locked Xiaomi Civi 3 Disney 100th Anniversary Edition Phone?</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-stream-your-audiovid-creations-here/"><u>In 2024, Stream Your AudioVid Creations Here</u></a></li>
-<li><a href="https://win11.techidaily.com/overcoming-disk-read-problems-quickly/"><u>Overcoming Disk Read Problems Quickly</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/rgbs-role-in-modern-color-standards-compared-to-srgb-for-2024/"><u>Rgb's Role in Modern Color Standards Compared to Srgb for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-unlocking-fb-content-effortless-mp4-conversion/"><u>[New] 2024 Approved Unlocking FB Content Effortless MP4 Conversion</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-making-a-lasting-impression-with-profile-clips/"><u>[Updated] 2024 Approved Making a Lasting Impression with Profile Clips</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-digital-time-machine-tracking-back-through-facebooks-history-device-based-for-2024/"><u>[Updated] Digital Time Machine Tracking Back Through Facebook's History (Device-Based) for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-acid-pro-replacements-a-deep-dive-into-graphics-softwares/"><u>[Updated] In 2024, ACID Pro Replacements A Deep Dive Into Graphics Softwares</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-mastering-the-knowledge-of-asmr-media/"><u>[Updated] In 2024, Mastering the Knowledge of ASMR Media</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-the-core-elements-of-zd-soft-recording-features/"><u>[Updated] In 2024, The Core Elements of ZD Soft Recording Features</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-no-cost-conversion-elevate-your-facebook-videos-to-mp4-and-hd-quality-for-2024/"><u>[Updated] No-Cost Conversion Elevate Your Facebook Videos to MP4 & HD Quality for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/how-to-update-or-install-hp-officejet-5740-drivers-on-your-pc-running-windows-11108/"><u>How to Update or Install HP OfficeJet 5740 Drivers on Your PC Running Windows 11/10/8</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-boost-your-social-interaction-skills-with-these-simple-snapchat-steps/"><u>In 2024, Boost Your Social Interaction Skills with These Simple Snapchat Steps</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-perfect-past-moments-on-fb-a-look-back-edition/"><u>In 2024, Perfect Past Moments on FB A Look Back Edition</u></a></li>
+<li><a href="https://win-lab.techidaily.com/unleash-your-creativity-with-vibrant-cartoon-backgrounds-and-images-premium-photo-walls-by-yl-software/"><u>Unleash Your Creativity with Vibrant Cartoon Backgrounds & Images - Premium Photo Walls by YL Software</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Create Effective FB Video Ads with FREE Kit"
-date: 2024-12-25T16:15:26.764Z
-updated: 2024-12-28T18:31:26.919Z
+date: 2024-12-31T10:36:32.320Z
+updated: 2025-01-07T01:16:55.936Z
 tags:
   - ai video
   - ai facebook
@@ -31,6 +31,10 @@ If you have little to no experience with video ads, don’t feel stressed. We’
 
 **You may also like:** [Facebook Jail: 10 Secrets to Avoid Being Blocked / Get Out of It >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Create Video Using the Facebook Video Creation Kit \[step by step tutorial\]
 
 Wondershare Filmora is one of the [best video editing software](https://tools.techidaily.com/wondershare/filmora/download/) for making and editing social media videos sharing on YouTube, Facebook, or Instagram. It features lots of effects, transitions, templates and elements for creating video with fun. You can create videos in different aspect ratio such as 1:1, 9:16, 16:9, 4:3 or [customize the aspect ratio](https://tools.techidaily.com/wondershare/filmora/download/) as you like.
@@ -38,7 +42,7 @@ Wondershare Filmora is one of the [best video editing software](https://tools.te
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Well, although other social media platforms are gaining popularity, Facebook remains the top of the pops, and has [over 1.5 billion daily users](https://newsroom.fb.com/company-info/). Whatever your reason for needing a video ad, you can’t go wrong broadcasting it to this kind of audience.
@@ -58,6 +62,10 @@ You’ll need to start in [Ads Manager](https://www.facebook.com/business/help/2
 Click on the   **Ads**  tab, and the **Create** button to get started. You can’t miss it - it’s **bright green**! You’ll be asked if you want to choose Guided Creation or Quick Creation. Either way is pretty easy to do, and you can experiment with both when you begin to see which works best for you.
 
 ![Facebook Campaign Creation Guide Types ](https://images.wondershare.com/filmora/article-images/how-do-you-want-to-create-ad-campaigns.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 In the following part, I’ll show you the steps after clicking Select Guided Creation for detailed explanation.
 
@@ -98,10 +106,6 @@ Once you’ve begun to create your vid, you’ll find a button under the **Media
 
 ![add Facebook ads image assets ](https://images.wondershare.com/filmora/article-images/add-image-assets.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 When adding images to media, remember to choose images that are the same size and orientation. This will make your life easier and your ad look more appealing!
 
 Also, it would be helpful to check the [image specs](https://www.facebook.com/business/ads-guide/image) and [video specs](https://www.facebook.com/business/ads-guide/video) before uploading.
@@ -115,6 +119,10 @@ If you want to create a video, the process is a little different, but not much m
 If you choose use [video ad template](https://tools.techidaily.com/wondershare/filmora/download/) to create a video, you will see lot of different options for you to choose from. There are square and vertical templates, you don’t need to worry about it too much because you can take the Square template and the Video Creation Kit will make a Vertical video as well.
 
 ![video creation kit  templates ](https://images.wondershare.com/filmora/article-images/video-creation-kit-available-template.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The template names are quite specific to what each one does, so you should have no problem choosing what would suit you:
 
@@ -138,20 +146,20 @@ From here, you can upload your own images to fill the placeholders that the temp
 
 ![video creation kit  customize scene ](https://images.wondershare.com/filmora/article-images/video-creation-kit-customize-scene.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 You can also add your own logo, and if you’re feeling inspired or want to convey a particular message, choose a sticker to put on your vid!
 
 ![video creation kit  stickers ](https://images.wondershare.com/filmora/article-images/video-creation-kit-stickers.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You can also **add text** on this screen and adjust the text color, font and positon based on your needs.
 
 ![add text on video creation kit   ](https://images.wondershare.com/filmora/article-images/add-text-on-video-creation-kit.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Once you click on **Use Video**, and it will start creating it for you in the background.
@@ -193,10 +201,6 @@ As we said before, Facebook has billions daily users, and here are just a few re
 
 No matter what your business, video is a tool you should be taking advantage of, and with stats like these, Facebook is a great place to start getting your video ads out there!
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### What Could You Use the Creation Kit For?
 
 Whatever the purpose of your video, you’ll find the Facebook Video Creation Kit to be quite useful for you. You can create your ad using video footage, or simply add some photos for a slideshow effect.
@@ -204,10 +208,6 @@ Whatever the purpose of your video, you’ll find the Facebook Video Creation Ki
 This is great for **promoting products and services, introducing new businesses or ideas, or simply sharing something cool** that you’ve created with your friends. Not only does it showcase your photos or products, you’ll be able to add your **own text, links**, and **info to promote** your stuff exactly the way you want to!
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -232,18 +232,14 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-cutting-edge-alternatives-to-acid-pro-for-vectors/"><u>[New] 2024 Approved Cutting Edge Alternatives to ACID Pro for Vectors</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-8-free-and-online-facebook-link-downloaders-for-2024/"><u>[New] 8 Free And Online Facebook Link Downloaders for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-mastering-ad-avoidance-stopping-fb-video-promos/"><u>[New] In 2024, Mastering Ad Avoidance Stopping FB Video Promos</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-mastering-cost-effective-visual-integration-in-writing/"><u>[New] In 2024, Mastering Cost-Effective Visual Integration in Writing</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-shifting-from-spotify-playlists-to-customized-youtube-music-catalogs/"><u>[New] In 2024, Shifting From Spotify Playlists to Customized YouTube Music Catalogs</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-2024-approved-unbeatable-tools-to-sharpen-your-webcam-vids/"><u>[Updated] 2024 Approved Unbeatable Tools to Sharpen Your Webcam Vids</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-virtual-extension-instant-fb-stories-archive/"><u>[Updated] 2024 Approved Virtual Extension Instant FB Stories Archive</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/updated-aurora-vs-standard-hd-is-the-premium-worth-it/"><u>[Updated] Aurora vs Standard HD Is the Premium Worth It?</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-prime-list-7-high-quality-vids-on-mac/"><u>[Updated] Prime List 7 High-Quality Vids on Mac</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-scouring-social-media-locating-facebook-videos/"><u>In 2024, Scouring Social Media Locating Facebook Videos</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/seamless-integration-making-your-youtube-videos-available-on-facebook-for-2024/"><u>Seamless Integration Making Your YouTube Videos Available on Facebook for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/streammine-group-video-downloads/"><u>StreamMine Group Video Downloads</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/updated-the-comprehensive-blueprint-for-music-manipulation-and-incorporation-into-videos-via-filmora/"><u>Updated The Comprehensive Blueprint for Music Manipulation and Incorporation Into Videos via Filmora</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-best-free-non-intrusive-android-screen-recorders/"><u>[New] 2024 Approved Best Free Non-Intrusive Android Screen Recorders</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-quick-effortless-and-free-red-eye-removal-for-ios-users/"><u>[New] Quick, Effortless, and FREE Red-Eye Removal for iOS Users</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-from-novice-to-narrative-youtube-seo-strategies-for-2024/"><u>[Updated] From Novice to Narrative YouTube SEO Strategies for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-fixing-the-frustrating-missing-footage-in-fb-feed/"><u>2024 Approved Fixing the Frustrating Missing Footage in FB Feed</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-how-luts-revolutionize-your-photo-editing-experience/"><u>2024 Approved How LUTs Revolutionize Your Photo Editing Experience</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-launch-into-action-quick-tips-to-start-going-live-on-facebook-immediately/"><u>2024 Approved Launch Into Action Quick Tips to Start Going Live on Facebook Immediately</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-step-by-step-save-gifs-from-fb-on-different-devices/"><u>2024 Approved Step-by-Step Save GIFs From FB on Different Devices</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-swipe-right-to-fb-vids-swipe-left-for-mp4s/"><u>2024 Approved Swipe Right to FB Vids, Swipe Left for MP4s</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-professional-audio-editing-essentials-top-10-software-solutions/"><u>Updated Professional Audio Editing Essentials Top 10 Software Solutions</u></a></li>
 </ul></div>
 
