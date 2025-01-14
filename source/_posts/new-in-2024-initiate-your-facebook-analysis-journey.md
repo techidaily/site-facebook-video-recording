@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Initiate Your Facebook Analysis Journey"
-date: 2025-01-05T03:53:36.732Z
-updated: 2025-01-06T23:24:43.615Z
+date: 2025-01-12T16:34:54.306Z
+updated: 2025-01-13T17:18:47.177Z
 tags:
   - ai video
   - ai facebook
@@ -47,14 +47,10 @@ thumbnail: https://thmb.techidaily.com/c72cccdf9cacc0fda207b45b24ab86cf2fde475b8
 
  By using Facebook Insights, you can learn how well your post is doing, which post has more engagement, know when your audience is checking the posts, page performance metrics and more.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3: How to Use Facebook Insights for Beginners
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. Overview
@@ -62,6 +58,14 @@ thumbnail: https://thmb.techidaily.com/c72cccdf9cacc0fda207b45b24ab86cf2fde475b8
  What is overview all about? The overview gives you a complete picture of your and your audience’s activities on your page for a week. The prime things that it covers are how many likes, comments, and shares your post received over a week, the number of people who viewed your content for one week, and the number of likes your page received. By understanding the measurement and performance of your page, you can check if any sort of pattern is developing, and then, delve deeper into the sections.
 
 ![insights overview](https://images.wondershare.com/filmora/article-images/insights-overview.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Page Likes
 
@@ -86,12 +90,20 @@ thumbnail: https://thmb.techidaily.com/c72cccdf9cacc0fda207b45b24ab86cf2fde475b8
 ![insights post reach](https://images.wondershare.com/filmora/article-images/insights-post-reach.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4\. Post Promotion
 
  Promoting your post to your target audiences beyond your Facebook page’s fans can boost your post. You can even create an advertisement out of your post and include a call to action button on the page. By clicking on the Boost a Post, the Insights gives you the list of your high performing posts as well as the recommended posts with more user engagement. These posts can be promoted as per your choice. Your target audience, duration, and the budget of the promotion can be specified as per your choice.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5\. Video Analytics
 
@@ -105,10 +117,6 @@ thumbnail: https://thmb.techidaily.com/c72cccdf9cacc0fda207b45b24ab86cf2fde475b8
 
 ![insights video analytics](https://images.wondershare.com/filmora/article-images/insights-video-analytics.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 6\. People Analytics
 
  Under the People tab, you get to understand the metrics of like and views of people on your posts. It is further divided into 3 sections.
@@ -120,14 +128,6 @@ thumbnail: https://thmb.techidaily.com/c72cccdf9cacc0fda207b45b24ab86cf2fde475b8
  The **People Reached tab** shows the number of people who viewed your post by demographics. You can analyse if the right people, location, and age group are targeted or you need to make corrections.
 
 ![insights people analytics](https://images.wondershare.com/filmora/article-images/insights-people-analytics.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -152,17 +152,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-direct-from-device-to-digital-world-recording-your-apple-gadgets-for-2024/"><u>[New] Direct From Device to Digital World Recording Your Apple Gadgets for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-essential-knowledge-for-youtube-short-creators/"><u>[New] In 2024, Essential Knowledge for YouTube Short Creators</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-facebook-media-extractor-quick-mp3-downloads/"><u>2024 Approved Facebook Media Extractor – Quick MP3 Downloads</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-social-media-savvy-unlock-the-secrets-of-crafting-winning-bios-on-facebook/"><u>2024 Approved Social Media Savvy Unlock the Secrets of Crafting Winning Bios on Facebook</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-the-ultimate-viewer-writers-guide/"><u>2024 Approved The Ultimate Viewer' Writers Guide</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-unlock-the-potential-of-your-fb-cover-image-with-these-top-11-websites/"><u>2024 Approved Unlock the Potential of Your FB Cover Image with These Top 11 Websites</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5-ways-to-move-contacts-from-infinix-hot-40-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Move Contacts From Infinix Hot 40 to iPhone (13/14/15) | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/7-fixes-for-unfortunately-phone-has-stopped-on-oppo-find-n3-flip-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Fixes for Unfortunately, Phone Has Stopped on Oppo Find N3 Flip | Dr.fone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/7-free-online-fax-services/"><u>7 Free Online Fax Services</u></a></li>
-<li><a href="https://techidaily.com/how-to-reset-oppo-a1x-5g-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Oppo A1x 5G without Losing Data | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-top-12-prominent-tecno-pop-8-fingerprint-not-working-solutions-by-drfone-android/"><u>In 2024, Top 12 Prominent Tecno Pop 8 Fingerprint Not Working Solutions</u></a></li>
-<li><a href="https://discover-data.techidaily.com/yls-expert-tips-for-keeping-your-computer-cool-how-to-effectively-clean-the-system-fan-and-avoid-heat-damage/"><u>YL's Expert Tips for Keeping Your Computer Cool: How to Effectively Clean the System Fan and Avoid Heat Damage</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-cut-to-the-chase-download-fb-videos-as-mp4-for-2024/"><u>[New] Cut to the Chase - Download FB Videos as MP4 for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-expert-video-downloader-kit-ideal-for-firefox-browser-users-for-2024/"><u>[New] Expert Video Downloader Kit Ideal for FireFox Browser Users for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-illuminating-photography-with-dynamic-mosaic-creations-for-2024/"><u>[New] Illuminating Photography with Dynamic Mosaic Creations for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-tips-to-rank-facebook-page-better/"><u>[New] In 2024, Tips to Rank Facebook Page Better</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-pursuit-of-perfection-does-picku-outshine-other-android-tools-for-2024/"><u>[New] In Pursuit of Perfection Does PickU Outshine Other Android Tools for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-squared-up-strategies-boosting-video-popularity-on-the-platform/"><u>[Updated] 2024 Approved Squared Up Strategies Boosting Video Popularity on the Platform</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-tackling-tricky-feed-issues-hidden-youtubefacebook-videos/"><u>[Updated] In 2024, Tackling Tricky Feed Issues Hidden YouTube/Facebook Videos</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-inventory-types-of-fb-video-ratios/"><u>[Updated] Inventory Types of FB Video Ratios</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-top-choices-pro-shake-free-cameras-for-video-streams/"><u>[Updated] Top Choices Pro Shake-Free Cameras for Video Streams</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-easy-steps-to-rectify-non-sending-or-delayed-videos-in-messenger-chats/"><u>2024 Approved Easy Steps to Rectify Non-Sending or Delayed Videos in Messenger Chats</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-sound-symphony-music-within-whatsapp-statuses/"><u>2024 Approved Sound Symphony Music Within WhatsApp Statuses</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-ways-to-teach-you-to-transfer-files-from-oppo-f25-pro-5g-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways To Teach You To Transfer Files from Oppo F25 Pro 5G to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/discovering-the-forgotten-chronicles-a-guide-to-past-facebook-stories-on-tech-devices-for-2024/"><u>Discovering The Forgotten Chronicles A Guide to Past Facebook Stories on Tech Devices for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/elevate-your-fb-profile-with-these-ten-effective-tactics/"><u>Elevate Your FB Profile with These Ten Effective Tactics</u></a></li>
+<li><a href="https://win-dash.techidaily.com/fast-track-to-new-surface-dock-driver-download-and-installation/"><u>Fast Track to New Surface Dock Driver Download and Installation</u></a></li>
+<li><a href="https://win-answers.techidaily.com/overcoming-stutter-and-crashes-in-star-citizen-for-windows-users/"><u>Overcoming Stutter and Crashes in Star Citizen for Windows Users</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/trier-gratuitement-vos-fichiers-flv-vers-le-format-aac-sur-internet-mouvavi/"><u>Trier Gratuitement Vos Fichiers FLV Vers Le Format AAC Sur Internet - Mouvavi</u></a></li>
 </ul></div>
 

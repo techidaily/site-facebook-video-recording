@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Quick Steps to Nostalgic Facebook Story Viewing"
-date: 2024-12-30T21:47:49.123Z
-updated: 2025-01-07T01:58:13.758Z
+date: 2025-01-12T20:34:11.523Z
+updated: 2025-01-13T18:21:34.556Z
 tags:
   - ai video
   - ai facebook
@@ -58,7 +58,7 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 ![facebook story archive](https://images.wondershare.com/filmora/article-images/2021/facebook-story-archive.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 4:** After this, you would be shown all the stories sequentially in the Story Archives section.
@@ -66,7 +66,7 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 Thus how to view old stories on Facebook desktop is very easy with above above-mentioned easy steps.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to Watch Old Stories on Facebook on your Mobile?
@@ -102,7 +102,7 @@ An old highlighted story shared by your friend would appear on your friend’s p
 So for the above discussed all ways the only must thing is to setting archive on which would allow you to re-watch stories again and solve your doubt of how to view old stories on Facebook.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 5: How to Create Facebook Videos with Ease?
@@ -114,7 +114,7 @@ To attract more audience and gain more likes, comments all you need is a smart [
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Features:**
@@ -144,7 +144,7 @@ You can crop, trim, cut, split, and merge your video in a few clicks in Wondersh
 Also, you can add various text effects and add Lower 3rds and subtitles. It has nearly 300 filters, overlays, and elements embedded in Filmora that you can use for your Facebook video and make it look amazing.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Export and Share
@@ -178,19 +178,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://mondly-stories.techidaily.com/mondly-transforms-virtual-realms-a-multilingual-milestone-on-oculus-quest/"><u>'Mondly' Transforms Virtual Realms: A Multilingual Milestone on Oculus Quest</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-camouflaged-consumer-of-facebook-feeds/"><u>[New] 2024 Approved Camouflaged Consumer of Facebook Feeds</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-how-to-go-live-on-facebook/"><u>[New] How to Go Live on Facebook?</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-the-art-of-duality-mastering-image-turnover-on-social-media-giants-for-2024/"><u>[New] The Art of Duality Mastering Image Turnover on Social Media Giants for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-bridging-social-media-posting-tweets-on-fb/"><u>[Updated] 2024 Approved Bridging Social Media Posting Tweets on FB</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-elevated-viewership-status-symbolized-by-buttons/"><u>[Updated] 2024 Approved Elevated Viewership Status Symbolized by Buttons</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/1716118408180-updated-facebook-videos-vertical-or-horizontal-in-2024/"><u>[Updated] Facebook Videos Vertical or Horizontal, In 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-mastering-close-up-shots-zooming-into-action-films/"><u>[Updated] Mastering Close-Up Shots Zooming Into Action Films</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-the-entrepreneurs-lifeline-critical-items-every-startup-needs-right-now/"><u>[Updated] The Entrepreneur's Lifeline Critical Items Every Startup Needs Right Now</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/bring-ai-talk-to-life-on-android-via-widgets/"><u>Bring AI Talk to Life on Android via Widgets</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-direct-linking-of-youtube-content-to-facebook-feeds-via-autoplay-settings/"><u>In 2024, Direct Linking of YouTube Content to Facebook Feeds via Autoplay Settings</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-how-to-fake-gps-on-android-without-mock-location-for-your-oneplus-12r-drfone-by-drfone-virtual/"><u>In 2024, How to Fake GPS on Android without Mock Location For your OnePlus 12R | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/mastering-the-macs-hidden-photo-tool-a-complete-guide-to-using-preview/"><u>Mastering the Mac's Hidden Photo Tool: A Complete Guide to Using Preview</u></a></li>
-<li><a href="https://video-capture.techidaily.com/step-by-step-tutorial-on-mastering-audio-editing-with-leading-cutters/"><u>Step-by-Step Tutorial on Mastering Audio Editing with Leading Cutters</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-safeguarding-and-recovering-private-snap-content/"><u>[New] In 2024, Safeguarding and Recovering Private Snap Content</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-streamlining-tiktok-posts-for-facebook-exposure-for-2024/"><u>[New] Streamlining TikTok Posts for Facebook Exposure for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-how-to-make-facebook-videos-full-screen/"><u>[Updated] 2024 Approved How to Make Facebook Videos Full Screen?</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-uncovering-your-just-watched-list-on-facebook/"><u>[Updated] 2024 Approved Uncovering Your Just-Watched List on Facebook</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-windows-11-strategies-to-secure-lasting-gaming-memories/"><u>[Updated] 2024 Approved Windows 11 Strategies to Secure Lasting Gaming Memories</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-securely-download-your-youtube-playlist-at-any-time/"><u>[Updated] Securely Download Your YouTube Playlist at Any Time</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/converta-i-tuoi-file-mka-in-formato-wav-senza-costi-con-il-converter-on-line-movavi-rapido-and-facile-da-usare/"><u>Converta I Tuoi File MKA in Formato WAV Senza Costi Con Il Converter On-Line Movavi - Rapido & Facile Da Usare!</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/examining-copyright-implications-of-media-sharing-via-social-networks-for-2024/"><u>Examining Copyright Implications of Media Sharing via Social Networks for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/fake-gpt-enhancement-swipes-facebook-account-details/"><u>Fake GPT Enhancement: Swipes Facebook Account Details</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-express-creativity-infuse-laughter-kapwing-guide/"><u>In 2024, Express Creativity, Infuse Laughter - Kapwing Guide</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/mini-youtube-content-explained/"><u>Mini YouTube Content Explained</u></a></li>
+<li><a href="https://extra-information.techidaily.com/professional-techniques-for-iphone-picture-inversion/"><u>Professional Techniques for iPhone Picture Inversion</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/retro-computer-monitor-reaches-impressive-700hz-by-lowering-resolution-to-120p/"><u>Retro Computer Monitor Reaches Impressive 700Hz by Lowering Resolution to 120P</u></a></li>
 </ul></div>
 

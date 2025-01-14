@@ -1,7 +1,7 @@
 ---
 title: "\"Mastering Desktop & Mobile  The Best Ways to Download FB Story\""
-date: 2024-12-31T11:31:52.877Z
-updated: 2025-01-07T08:32:24.163Z
+date: 2025-01-12T19:52:31.057Z
+updated: 2025-01-13T21:58:55.755Z
 tags:
   - ai video
   - ai facebook
@@ -43,12 +43,16 @@ If you want to keep your Facebook stories around for longer than a day, you can 
 
 ![filmora logo](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-horizontal.svg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## A cross-platform for making videos anywhere for all creators
 
 ![filmora-02](https://images.wondershare.com/filmora/filmora12/side_brand_filmora12.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Why your video editing isn't good enough? How about some creative inspo?
@@ -67,6 +71,10 @@ If you want to keep your Facebook stories around for longer than a day, you can 
  \* Secure Download
 
 ![filmora12](https://images.wondershare.com/filmora/12-filmora/img/filmora12-01.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\.  Downvideo.net
 
@@ -106,10 +114,6 @@ Note: Software may not allow you to download stories from private accounts. So, 
 
 ![how to download facebook story - Fbdownloader.net](https://images.wondershare.com/filmora/article-images/2022/03/download-facebook-story-2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\.  Getvid
 
 It is one of the best online free tools to download Facebook stories and save them in MP4 format. It incorporates a simple yet intuitive interface. It takes only a couple of minutes to download a Facebook story using Getvid. Follow the simple steps below to know to save Facebook stories through this software.
@@ -129,16 +133,16 @@ Paste the URL in the box and click **download**. Select **download in normal qua
 ![how to download facebook story - getvid](https://images.wondershare.com/filmora/article-images/2022/03/download-facebook-story-3.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to Download Facebook Story with Chrome Extensions?
 
 Chrome extensions facilitate Chrome browsing in many ways. Extensions usually help in using features that are not usable in their original application. For instance, if you want to download a story from Facebook, there is no such option on Facebook. So, you might have to use the Facebook story downloader chrome extension to get this done. We have handpicked the following two best extensions for you. Let’s explore them.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\.  Story Saver
 
@@ -173,7 +177,7 @@ Click on the installed extension and select **open Facebook**.
 Select the **download** button at the top right corner of the video—select options from the quality.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to Download Facebook Stories on Mobile?
@@ -232,10 +236,6 @@ Open Click on the extension symbol at the top right corner of the screen. Click 
 
 Open the download folder and play the video in your media player to check the video with music.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 5: How to Download Facebook Stories Anonymously?
 
 External applications can help you download Facebook stories anonymously. All you need is a trusted application on your phone or PC to save FB stories. One such notable platform is a friendly social browser. Here’s how you can save stories anonymously using this application.
@@ -249,10 +249,6 @@ Search Friendly Social Browser on your phone or PC to get started.
 Tap any video or photo in Facebook Story and click download
 
 ![Filmora logo](https://images.wondershare.com/filmora/logo_icon/wondershare-filmora-logo-horizontal.png) ![filmora product interface](https://images.wondershare.com/filmora/images/common/filmora-product-banner.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Best Tool to Edit Facebook Videos - Filmora
 
@@ -271,19 +267,23 @@ For macOS 10.12 or later
 
 ![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg)Secure Download
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg)](https://app.adjust.com/w06dr6m%5F19za1f6)
 
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
 You may like a photo or video in a Facebook story to save it on your PC or smartphone. Facebook does not allow its users to download stories by default. So, **Facebook story download** can be challenging. We have handpicked few easy and simple methods to help you in this process. Options covered in this article mainly include web-based tools, Chrome extensions, and third-party applications. However, all of them do not allow to save stories from private accounts. Thus, choose the tool that best fits your preferences and start downloading your favorite stories.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -300,24 +300,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-free-frameworks-amplify-your-youtube-vision/"><u>[New] 2024 Approved Free Frameworks Amplify Your YouTube Vision</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-how-to-farewell-your-instagram-presence-permanently/"><u>[Updated] 2024 Approved How to Farewell Your Instagram Presence Permanently</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-ultimate-choice-the-greatest-11-multi-angle-cams/"><u>[Updated] 2024 Approved Ultimate Choice The Greatest 11 Multi-Angle Cams</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-achieving-smooth-audio-segmentation-with-premier/"><u>2024 Approved Achieving Smooth Audio Segmentation with Premier</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-first-steps-into-facebook-data-analysis-for-new-users/"><u>2024 Approved First Steps Into Facebook Data Analysis for New Users</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-how-can-i-share-youtube-videos-on-facebook/"><u>2024 Approved How Can I Share YouTube Videos on Facebook?</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-instagram-video-a-complete-guide-to-content-posting/"><u>2024 Approved Instagram Video A Complete Guide to Content Posting</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-quiet-curator-of-online-chronicles/"><u>2024 Approved Quiet Curator of Online Chronicles</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-unveiling-history-watching-older-facebook-content-on-your-device/"><u>2024 Approved Unveiling History Watching Older Facebook Content on Your Device</u></a></li>
-<li><a href="https://win-able.techidaily.com/beat-the-blackout-expert-advice-to-fix-league-of-legends-screen-problems/"><u>Beat the Blackout: Expert Advice to Fix League of Legends Screen Problems</u></a></li>
-<li><a href="https://video-capture.techidaily.com/effective-webinar-logging-tips-avoiding-common-pitfalls-windows-macos/"><u>Effective Webinar Logging Tips Avoiding Common Pitfalls (Windows, macOS)</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/facebook-favorites-top-8-androidiphone-apps-for-social-popularity/"><u>Facebook Favorites Top 8 Android/iPhone Apps for Social Popularity</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/fb-video-mastery-on-windows-and-mobile-a-unified-guide-for-users-for-2024/"><u>FB Video Mastery on Windows & Mobile A Unified Guide for Users for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/from-broadcast-to-box-viewing-facebook-streams-on-roku-for-2024/"><u>From Broadcast to Box Viewing Facebook Streams on Roku for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-change-vivo-y100i-lock-screen-clock-in-seconds-by-drfone-android/"><u>How To Change Vivo Y100i Lock Screen Clock in Seconds</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-9-best-phone-monitoring-apps-for-infinix-smart-7-hd-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Best Phone Monitoring Apps for Infinix Smart 7 HD | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-mastering-sales-select-from-these-top-15-facebook-analytics-pros/"><u>In 2024, Mastering Sales Select From These Top 15 Facebook Analytics Pros</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-visualsnitch-capture-and-save-tweets-images-and-videos/"><u>In 2024, VisualSnitch Capture and Save Tweets' Images & Videos</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-how-to-use-emojis-on-windows-10-and-windows-11/"><u>Updated How to Use Emojis on Windows 10 and Windows 11?</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-join-the-social-gaming-movement-xbox-and-fb-livestreams/"><u>[New] 2024 Approved Join the Social Gaming Movement Xbox & FB Livestreams</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-tailor-your-narrative-crafting-engaging-youtube-descriptions-using-pre-set-templates/"><u>[New] 2024 Approved Tailor Your Narrative Crafting Engaging YouTube Descriptions Using Pre-Set Templates</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-capture-gaming-sessions-in-hd-using-obs-for-2024/"><u>[New] Capture Gaming Sessions in HD - Using OBS for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-how-to-recall-facebooks-older-episodes-with-your-computer-and-phone/"><u>[New] How to Recall Facebook's Older Episodes with Your Computer & Phone</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-empower-your-content-advanced-techniques-in-youtube-editing/"><u>[New] In 2024, Empower Your Content Advanced Techniques in YouTube Editing</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-the-broadcasters-blueprint-step-by-step-windows-pc-guide-to-live-capture/"><u>[New] The Broadcaster's Blueprint Step-by-Step Windows PC Guide to Live Capture</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-unleashing-profitability-with-innovative-fb-animation-techniques/"><u>[New] Unleashing Profitability with Innovative FB Animation Techniques</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-facebook-story-complete-guide-what-is-it-and-how-to-use-it-in-2024/"><u>[Updated] Facebook Story Complete Guide What Is It and How to Use It, In 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-a-comprehensive-overview-of-multiscreen-streaming-techniques-on-social-media-platforms-like-facebook/"><u>[Updated] In 2024, A Comprehensive Overview of Multiscreen Streaming Techniques on Social Media Platforms Like Facebook</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-fb-video-downloader-seamless-mp4-conversion/"><u>[Updated] In 2024, FB Video Downloader Seamless MP4 Conversion</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-missing-icon-reclaim-your-facebook-watch-icon/"><u>[Updated] In 2024, Missing Icon? Reclaim Your Facebook Watch Icon</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-visual-voyage-your-guide-to-broadcasting-vids-with-confidence-on-facebook-for-2024/"><u>[Updated] Visual Voyage Your Guide to Broadcasting Vids with Confidence on Facebook for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/10-rapid-repairs-to-get-your-iphoneipad-widgets-working-again/"><u>10 Rapid Repairs to Get Your iPhone/iPad Widgets Working Again</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-top-picks-essential-products-every-entrepreneur-must-own/"><u>2024 Approved Top Picks Essential Products Every Entrepreneur Must Own</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3utools-virtual-location-not-working-on-tecno-camon-20-pro-5g-fix-now-drfone-by-drfone-virtual-android/"><u>3uTools Virtual Location Not Working On Tecno Camon 20 Pro 5G? Fix Now | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/all-about-factory-reset-what-is-it-and-what-it-does-to-your-honor-x7b-drfone-by-drfone-reset-android-reset-android/"><u>All About Factory Reset, What Is It and What It Does to Your Honor X7b? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/expertly-design-fb-ads-get-help-from-free-video-creation-toolkit/"><u>Expertly Design FB Ads – Get Help From Free Video Creation Toolkit</u></a></li>
+<li><a href="https://program-issues.techidaily.com/how-to-enable-and-use-the-group-policy-editor-gpmcgpp-on-windows-10-home-pcs/"><u>How to Enable and Use the Group Policy Editor (GPMC/GPP) on Windows 10 Home PCs</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/inside-the-world-of-openais-vulnerability-rewards-the-pathway-to-contribute-and-earn/"><u>Inside the World of OpenAI's Vulnerability Rewards – The Pathway to Contribute and Earn</u></a></li>
 </ul></div>
 

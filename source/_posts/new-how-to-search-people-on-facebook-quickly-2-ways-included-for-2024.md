@@ -1,7 +1,7 @@
 ---
 title: "[New] How to Search People on Facebook Quickly (2 Ways Included) for 2024"
-date: 2025-01-06T02:21:41.767Z
-updated: 2025-01-07T07:11:11.637Z
+date: 2025-01-12T18:07:49.650Z
+updated: 2025-01-13T22:09:00.206Z
 tags:
   - ai video
   - ai facebook
@@ -34,15 +34,7 @@ Here are two ways to search people on Facebook. The second option also helps you
 * [**Part 1: How to search people on Facebook**](#part1)
 * [**Part 2: How to search people using Search Is Back**](#part2)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: How to search people on Facebook
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Step 1: Log in to Facebook
 
@@ -54,6 +46,10 @@ On the header tool icons, click on your name and you are directed to your Facebo
 
 ![facebook friends tab](https://images.wondershare.com/filmora/article-images/facebook-friends-tab.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Step 3: Friends Finder Page
 
 To reach the friend’s finder page, click on “find friends” from the friends’ page header. Doing so takes you to the “Friends Finder” page of Facebook.
@@ -63,6 +59,10 @@ To reach the friend’s finder page, click on “find friends” from the friend
 ### Step 4: Friends Search
 
 On the top right of old friends search, you can find the “search for your friends” filters. To search your old friends by name, you have to enter their part or full names in the name field and look for them. To find your friends by their location, you may enter your friend’s hometown city’s name in the hometown field to search them by the place when they earlier lived in. To find your school friends or High school and university friends, you may enter the schools’ name and search for them. For searching your old colleagues, you may enter the company or employer’s name and find people who worked in the same organization.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Step 5: Check the results
 
@@ -81,7 +81,7 @@ On a browser open the [Search is Back site](https://searchisback.com/). You can 
 In the second step, you need to input your choices or you can see it as filters. From the search for option, you may choose all people, friends, non-friends, or friends of friends. You may also filter gender, relationship status, location, company, school, language spoken and if an employer, you may also search people by job title.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. Add People as Friends
@@ -90,12 +90,16 @@ Once you have filled in all the filters in the page, you can hit Find People but
 
 ![search is back facebook](https://images.wondershare.com/filmora/article-images/search-is-back-interest.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Note**: If there are no results on the redirected Facebook page, you must get back to the Search is Back page and change your search filters to start a new round of search.
 
 Like Find People tab at the top of the page, you may also search events, posts, shares and photos from the event, post & shares, and photos tabs at the top of the page.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -110,14 +114,10 @@ If you want to make Facebook videos, try to use [Filmora](https://tools.techidai
 
 [](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -135,21 +135,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-professional-photography-meets-social-media-dslr-and-computer-syncopation/"><u>[New] 2024 Approved Professional Photography Meets Social Media DSLR and Computer Syncopation</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-fb-video-grabber-win-mac-and-mobile-for-2024/"><u>[New] FB Video Grabber - Win, Mac & Mobile for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-digital-audio-mastery-fb-video-conversion-wizardry/"><u>[New] In 2024, Digital Audio Mastery FB Video Conversion Wizardry</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-strategies-for-compelling-facebook-video-content/"><u>[New] In 2024, Strategies for Compelling Facebook Video Content</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-top-strategies-to-create-stellar-podcast-names-plus-a-curated-list-of-50plus-examples/"><u>[New] Top Strategies to Create Stellar Podcast Names + A Curated List of 50+ Examples</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-compose-cover-videos-for-friends-facebooks/"><u>[Updated] In 2024, Compose Cover Videos for Friends' Facebooks</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-twitch-broadcasting-made-easy-on-social-media-for-2024/"><u>[Updated] Twitch Broadcasting Made Easy on Social Media for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-your-own-soundtrack-awaits-step-by-step-youtube-playlist-creation-guide-webmobile/"><u>[Updated] Your Own Soundtrack Awaits Step-by-Step YouTube Playlist Creation Guide (Web/Mobile)</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-the-ultimate-guide-to-youtube-success-with-tubebuddy/"><u>2024 Approved The Ultimate Guide to YouTube Success with TubeBuddy</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/approach-contrast-the-objectives-of-pbsd-with-prescriptive-code-requirements/"><u>Approach: Contrast the Objectives of PBSD with Prescriptive Code Requirements</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210190799-9781777192174-ease-amidst-challenging-times/"><u>EASE Amidst Challenging Times | Free Book</u></a></li>
-<li><a href="https://change-location.techidaily.com/home-button-not-working-on-oppo-reno-10-5g-here-are-real-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Home Button Not Working on Oppo Reno 10 5G? Here Are Real Fixes | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-full-guide-on-mirroring-your-vivo-x100-to-your-pcmac-drfone-by-drfone-android/"><u>In 2024, Full Guide on Mirroring Your Vivo X100 to Your PC/Mac | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-unlocking-facebook-video-integration-with-home-screen-apps/"><u>In 2024, Unlocking Facebook Video Integration with Home Screen Apps</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-why-apple-account-disabled-from-your-apple-iphone-12-mini-how-to-fix-by-drfone-ios/"><u>In 2024, Why Apple Account Disabled From your Apple iPhone 12 mini? How to Fix</u></a></li>
-<li><a href="https://extra-information.techidaily.com/interactive-cosmos-explored-metaverse-versus-omniverse-discussed/"><u>Interactive Cosmos Explored Metaverse Versus Omniverse Discussed</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-fbs-viral-anthems-list-crafting-your-number-one-song/"><u>[New] 2024 Approved FB's Viral Anthems List Crafting Your Number One Song</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-elevate-your-facebook-chronicles-with-gratuitous-upgrades/"><u>[New] Elevate Your Facebook Chronicles with Gratuitous Upgrades</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-how-to-setup-and-evaluate-facebook-instream-ads/"><u>[New] How to Setup and Evaluate Facebook Instream Ads?</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-optimize-profitability-the-science-behind-high-roi-fb-animatons/"><u>[New] In 2024, Optimize Profitability The Science Behind High-ROI FB Animatons</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-navigating-the-shifts-essential-insights-on-future-facebook-ads-24/"><u>[New] Navigating the Shifts Essential Insights on Future Facebook Ads '24</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-the-hottest-tiktok-trends-on-twitter/"><u>[New] The Hottest TikTok Trends on Twitter</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-privacy-focused-tools-for-unseen-story-watching/"><u>[Updated] 2024 Approved Privacy-Focused Tools for Unseen Story Watching</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-digital-broadcast-face-off-facebook-vs-youtube-and-tweetstreams/"><u>[Updated] Digital Broadcast Face-Off FACEbook Vs. YOUTube & TweetStreams</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-echoes-of-everyday-events-for-2024/"><u>[Updated] Echoes of Everyday Events for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-superior-fb-video-tools-save-as-top-quality-mp4s-for-2024/"><u>[Updated] Superior FB Video Tools – Save as Top Quality MP4s for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/cellular-network-not-available-for-voice-calls-on-meizu-21-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Cellular Network Not Available for Voice Calls On Meizu 21 Pro | Dr.fone</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-the-latest-asus-mouse-pad-software-for-windows-pcs/"><u>Download the Latest ASUS Mouse Pad Software for Windows PCs</u></a></li>
+<li><a href="https://win11.techidaily.com/hacker-intrusion-do-fingerprint-scanners-risk-our-safety/"><u>Hacker Intrusion: Do Fingerprint Scanners Risk Our Safety?</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-itel-s23plus-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on Itel S23+ | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-facts-you-need-to-know-about-screen-mirroring-realme-note-50-drfone-by-drfone-android/"><u>In 2024, 3 Facts You Need to Know about Screen Mirroring Realme Note 50 | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/leading-tools-top-6-fb-lite-video-extractors-for-2024/"><u>Leading Tools TOP 6 FB Lite Video Extractors for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/proficient-content-tagging-made-simple-the-best-7-budget-friendly-online-taggification-apps-reviewed-for-2024/"><u>Proficient Content Tagging Made Simple The Best 7 Budget-Friendly Online Taggification Apps Reviewed for 2024</u></a></li>
+<li><a href="https://win-cheats.techidaily.com/resolving-errors-why-your-itunes-synchronization-wont-begin-and-steps-for-success/"><u>Resolving Errors: Why Your iTunes Synchronization Won't Begin & Steps for Success</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/the-art-of-crafting-an-engaging-facebook-biography-in-under-157-characters-for-2024/"><u>The Art of Crafting an Engaging Facebook Biography in Under 157 Characters for 2024</u></a></li>
 </ul></div>
 
