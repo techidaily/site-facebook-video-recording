@@ -1,7 +1,7 @@
 ---
 title: "\"[New] FB Moments  Snappy Storytime for 2024\""
-date: 2025-01-07T21:34:00.258Z
-updated: 2025-01-13T16:18:33.301Z
+date: 2025-01-14T23:42:16.180Z
+updated: 2025-01-20T02:18:45.496Z
 tags:
   - ai video
   - ai facebook
@@ -29,6 +29,10 @@ This article explains how to view these short videos on Facebook and create them
 
 Watching Facebook short videos is a relatively easier process, but we will guide you through a step-by-step process to achieve this since this is a new feature.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Step 1: Open Facebook
 
 The first step is very basic. All you got to do is open your Facebook App.
@@ -36,7 +40,7 @@ The first step is very basic. All you got to do is open your Facebook App.
 ![Launch Facebook](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 2: Scroll Down
@@ -52,7 +56,11 @@ Once you see the video, tap on it. This should play a short video. Scroll down t
 ![Tap on Video](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-3.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Enable and Disable Facebook Short Videos?
@@ -79,15 +87,15 @@ The next step is to go to your settings and search for Facebook in the apps.
 
 ![Search for Facebook](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-5.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 4: Clear the Data**
 
 Tap on Facebook and view its space; tapAltAlt on clear data.
 
 ![Select Clear Data](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-6.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 5: Give Facebook all the Permissions**
 
@@ -96,7 +104,7 @@ After deleting the data, give Facebook access to all the permissions.
 ![Giving Permission access](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-7.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 5: Restart your Device**
@@ -121,15 +129,15 @@ The first step is simple. YouAltAlt open your Facebook app.
 
 ![Launch Facebook](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-8.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2: Scroll to short videos**
 
 Once your app has launched, scroll down to the short videos section.
 
 ![Scroll to Short Videos](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-9.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 3: Tap on three dots**
 
@@ -159,6 +167,10 @@ Launch your Facebook app by tapping on it.
 
 ![Launch Facebook](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-12.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2: Scroll Down to Short Videos**
 
 After the app launches, scroll down to short videos.
@@ -168,10 +180,6 @@ After the app launches, scroll down to short videos.
 On the top right-hand corner, you will see a small camera icon with create written beside it. Tap on it.
 
 ![Tap on create](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-13.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 4: Record a Video**
 
@@ -185,15 +193,15 @@ Once you have recorded the video, you can add music later onAltAlt. You can add 
 
 ![Edit the video](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-15.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 6: Tap Next**
 
 Once you have successfully edited the video to your liking, tap on next.
 
 ![Click on next](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-16.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 7: Post the Video**
 
@@ -223,25 +231,21 @@ After selecting the files, you drag and drop them down on the timeline in the se
 
 ![Drag and Drop footage](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-19.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 4: Edit the Footage**\>
 
 Right above the timeline, you can see several options that you can use to edit the footage. You can add music, transitions, overlays, and a lot more.
 
 ![Editing bar](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-20.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 5: Export the Edited Footage**\>
 
 Right at the very corner of the editing bar, there is an export option. You click on it, which takes you to a new pop-up. In that pop-up, select the video format, make sure it is compatible with Facebook.
 
 ![Export File](https://images.wondershare.com/filmora/article-images/2021/facebook-short-videos-and-everything-about-them-21.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 6: Send it to your Phone**\>
 
@@ -270,10 +274,6 @@ After being uploaded, you can still trim it or add text to the video if you want
 Once the editing is finalized, as discussed above, just post the video, and it will be added to the other Facebook short videos.
 
 You can choose either of the two methods, whichever suits you best and seems easier.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Bonus Tip: Facebook Short Video Monetization
 
@@ -314,17 +314,24 @@ Although the young generation has shifted to Instagram and Snapchat, the previou
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2023-how-to-share-screen-on-facebook-live-for-2024/"><u>[New] 2023 | How to Share Screen on Facebook Live for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-skyrocket-your-e-commerce-game-with-these-essential-15-social-media-insights/"><u>[Updated] 2024 Approved Skyrocket Your E-Commerce Game with These Essential 15 Social Media Insights</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-boosting-skypes-performance-with-advanced-zoom-functionalities/"><u>[Updated] Boosting Skype's Performance with Advanced Zoom Functionalities</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-deciphering-online-videography-a-facebook-journey-for-2024/"><u>[Updated] Deciphering Online Videography A Facebook Journey for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-the-key-to-successful-multi-view-facebook-streaming/"><u>[Updated] The Key to Successful Multi-View Facebook Streaming</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-uncovering-8-honestly-backed-promotion-services/"><u>2024 Approved Uncovering 8 Honestly Backed Promotion Services</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/1720671748225-client-powered-recovery-stellar-hdd-saves-the-day/"><u>Client-Powered Recovery: Stellar HDD Saves the Day!</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/ensure-smooth-printing-with-updated-drivers-for-brother-mfc-j480dw-on-windows-computers/"><u>Ensure Smooth Printing with Updated Drivers for Brother MFC-J480DW on Windows Computers</u></a></li>
-<li><a href="https://howto.techidaily.com/fixes-for-apps-keep-crashing-on-motorola-edge-40-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixes for Apps Keep Crashing on Motorola Edge 40 | Dr.fone</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/how-to-recover-a-lost-msodll-file-and-fix-the-missing-error/"><u>How to Recover a Lost mso.dll File and Fix the Missing Error</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-chatcast-collector-fb-groups/"><u>In 2024, ChatCast Collector - FB Groups</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/unlock-apple-iphone-8-plus-without-passcode-easily-drfone-by-drfone-ios/"><u>Unlock Apple iPhone 8 Plus Without Passcode Easily | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-instantly-spice-up-videos-on-facebook-with-music-steps/"><u>[New] In 2024, Instantly Spice Up Videos on Facebook With Music Steps</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-navigating-through-self-playing-options-in-fb-videos/"><u>[New] In 2024, Navigating Through Self-Playing Options in Fb Videos</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-maximizing-your-dslr-footage-with-pc-or-mac-for-social-media-for-2024/"><u>[New] Maximizing Your DSLR Footage with PC or Mac for Social Media for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-unseen-content-exposure-a-video-sharing-roadmap/"><u>[New] Unseen Content Exposure A Video-Sharing Roadmap</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-boost-your-fb-campaigns-the-critical-3-part-writing-strategy/"><u>[Updated] 2024 Approved Boost Your FB Campaigns The Critical 3-Part Writing Strategy</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-gathered-group-glances/"><u>[Updated] Gathered Group Glances</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-current-lighting-infrastructure/"><u>2024 Approved Current Lighting Infrastructure</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-effortlessly-capture-and-archive-your-favorite-fb-story-moments/"><u>2024 Approved Effortlessly Capture and Archive Your Favorite FB Story Moments</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-seamless-process-of-instagram-video-content/"><u>2024 Approved Seamless Process of Instagram Video Content</u></a></li>
+<li><a href="https://article-tips.techidaily.com/easy-steps-to-modify-your-game-voice-in-free-fire-free-methods-available/"><u>Easy Steps to Modify Your Game Voice in Free Fire (Free Methods Available)</u></a></li>
+<li><a href="https://media-tips.techidaily.com/free-and-complete-installation-guide-of-splayer-on-windows-10-ultimate-resource/"><u>Free and Complete Installation Guide of sPlayer on Windows 10: Ultimate Resource</u></a></li>
+<li><a href="https://win11.techidaily.com/guiding-through-chrome-file-download-malfunction-on-windows-computers/"><u>Guiding Through Chrome File Download Malfunction on Windows Computers</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-3-ways-to-change-location-on-facebook-marketplace-for-vivo-s17e-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Change Location on Facebook Marketplace for Vivo S17e | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-elevating-your-online-empire-a-guide-to-massive-facebook-following/"><u>In 2024, Elevating Your Online Empire A Guide to Massive Facebook Following</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-is-pgsharp-legal-when-you-are-playing-pokemon-on-oppo-find-x7-drfone-by-drfone-virtual-android/"><u>In 2024, Is pgsharp legal when you are playing pokemon On Oppo Find X7? | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/masterful-use-of-digital-boards-in-web-meetings-across-appleandroid-and-laptops-for-2024/"><u>Masterful Use of Digital Boards in Web Meetings Across Apple/Android & Laptops for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/mkv-to-swf-online-free-converter-movavi-web-tool/"><u>MKV to SWF Online Free Converter - Movavi Web Tool</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/step-by-step-tutorial-correcting-error-41-issues-within-the-device-manager/"><u>Step-by-Step Tutorial: Correcting 'Error 41' Issues Within the Device Manager</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/unclutter-your-system-quickly-finding-and-deleting-obsolete-data-on-windows-11/"><u>Unclutter Your System: Quickly Finding & Deleting Obsolete Data on Windows 11</u></a></li>
 </ul></div>
 

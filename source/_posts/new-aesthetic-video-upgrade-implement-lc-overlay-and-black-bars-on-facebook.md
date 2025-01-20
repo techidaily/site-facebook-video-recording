@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Aesthetic Video Upgrade  Implement LC Overlay & Black Bars on Facebook\""
-date: 2025-01-11T16:23:02.154Z
-updated: 2025-01-13T19:53:31.176Z
+date: 2025-01-15T21:51:27.443Z
+updated: 2025-01-19T16:52:42.882Z
 tags:
   - ai video
   - ai facebook
@@ -34,7 +34,7 @@ First let us start with the question, what is a letterbox for a Facebook video?
 Want to have a try? Come on!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Get Started with Filmora
@@ -53,25 +53,29 @@ This method is suitable for users whose source videos are not in square format (
 
 ![import-sample-video](https://images.wondershare.com/filmora/article-images/import-sample-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * 3\. Drag and drop the source video to the timeline, and a black letterbox will be created automatically in the preview window, cause the source file didn’t match the 1:1 ratio you set for the project
 
 ![automatic-letterbox](https://images.wondershare.com/filmora/article-images/automatic-letterbox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * 4\. Add a subtitle under **Titles** tab to the letterbox at the top and bottom and custom the texts you want.
 
 ![add-letterbox-title](https://images.wondershare.com/filmora/article-images/add-letterbox-title.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 And you can also go to the **Elements** tab, and add some creative elements such as emoji to the letterbox.
 
 ![add-emoji-elements](https://images.wondershare.com/filmora/article-images/add-emoji-elements.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * 5\. Export the square video to local computer in mp4 or other supported formats
 
@@ -82,7 +86,7 @@ And you can also go to the **Elements** tab, and add some creative elements such
 ![post-on-facebook](https://images.wondershare.com/filmora/article-images/post-on-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Method 2: Create a Letterbox by Adding Text Shapes
@@ -96,6 +100,10 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 * 2\. Then drag and drop your source video to the timeline. No black bars will appear automatically like in Method 1
 
 ![no-letterbox](https://images.wondershare.com/filmora/article-images/no-letterbox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * 3\. To create a letterbox, choose the option **Titles**. Now you will be shown a variety of subtitles and credit styles
 * 4\. Select **Subtitles**, then add a subtitle style that has a black background to your video, such as Subtitle 1,2,3, etc.
@@ -119,7 +127,7 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 ![post-my-video](https://images.wondershare.com/filmora/article-images/post-my-video.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## To Sum up
@@ -128,15 +136,7 @@ Adding a letterbox, then designing your own texts, elements and filters will bri
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -153,20 +153,16 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-the-complete-guide-to-facebook-dominance-business-edition/"><u>[New] 2024 Approved The Complete Guide to Facebook Dominance Business Edition</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-dreamy-minecraft-domiciles-decoded/"><u>[New] Dreamy Minecraft Domiciles Decoded</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-social-media-success-iphone-360-video-filming-guide/"><u>[New] Social Media Success IPhone 360 Video Filming Guide</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-eyevid-fb-content-grabber/"><u>[Updated] 2024 Approved EyeVid FB Content Grabber</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-guide-to-fetching-superior-quality-fb-videos/"><u>[Updated] 2024 Approved Guide to Fetching Superior Quality FB Videos</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-capture-unbroken-webspace/"><u>2024 Approved Capture Unbroken Webspace</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-your-lava-yuva-3-pro-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>How to Mirror Your Lava Yuva 3 Pro Screen to PC with Chromecast | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/how-to-reset-infinix-note-30-pro-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Infinix Note 30 Pro without Losing Data | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-itel-a60-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Itel A60</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-explore-olden-days-on-facebook-device-friendly-tips/"><u>In 2024, Explore Olden Days on Facebook - Device-Friendly Tips</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-in-depth-analysis-of-best-youtube-channel-design-practices/"><u>In 2024, In-Depth Analysis of Best YouTube Channel Design Practices</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-sharecast-mobilepc-video-extractor/"><u>In 2024, Sharecast Mobile/PC Video Extractor</u></a></li>
-<li><a href="https://program-issues.techidaily.com/step-by-step-guide-to-overcome-directx-troubles-in-fifa-19/"><u>Step-by-Step Guide to Overcome DirectX Troubles in FIFA 19</u></a></li>
-<li><a href="https://common-error.techidaily.com/troubleshooting-guide-solving-logitech-mouse-scroll-wheel-issues/"><u>Troubleshooting Guide: Solving Logitech Mouse Scroll Wheel Issues</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/uncover-collective-media-on-messenger-networks-for-2024/"><u>Uncover Collective Media on Messenger Networks for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-liberating-video-files-free-mp4-and-hd-from-facebook-posts/"><u>[New] In 2024, Liberating Video Files Free MP4 & HD From Facebook Posts</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-strategies-for-enthralling-vlog-content-flow/"><u>[New] Strategies for Enthralling Vlog Content Flow</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-crafting-engaging-narratives-a-compreehensive-guide-to-adding-emojis-to-instagram-stories/"><u>[Updated] 2024 Approved Crafting Engaging Narratives A Compreehensive Guide to Adding Emojis to Instagram Stories</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-capturing-life-with-precision-an-overview-of-advanced-camera-modes/"><u>[Updated] In 2024, Capturing Life with Precision An Overview of Advanced Camera Modes</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-detailed-instructions-mastering-the-art-of-uploading-vr-media-to-fb/"><u>[Updated] In 2024, Detailed Instructions Mastering the Art of Uploading VR Media to FB</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-the-ultimate-selection-top-6-lite-video-downloaders-from-facebook/"><u>[Updated] In 2024, The Ultimate Selection Top 6 Lite Video Downloaders From Facebook</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-free-fb-links-breeze-through-the-process/"><u>2024 Approved Free FB Links, Breeze Through the Process</u></a></li>
+<li><a href="https://fake-location.techidaily.com/life360-circle-everything-you-need-to-know-on-lava-yuva-3-drfone-by-drfone-virtual-android/"><u>Life360 Circle Everything You Need to Know On Lava Yuva 3 | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/social-snapshots-highest-view-counts-for-2024/"><u>Social Snapshots Highest View Counts for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/top-10-fixes-for-phone-keep-disconnecting-from-wi-fi-on-vivo-y02t-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 10 Fixes for Phone Keep Disconnecting from Wi-Fi On Vivo Y02T | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/top-ranked-ereader-devices-a-comprehensive-guide/"><u>Top-Ranked eReader Devices : A Comprehensive Guide</u></a></li>
 </ul></div>
 

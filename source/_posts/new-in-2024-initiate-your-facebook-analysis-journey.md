@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Initiate Your Facebook Analysis Journey"
-date: 2025-01-12T16:34:54.306Z
-updated: 2025-01-13T17:18:47.177Z
+date: 2025-01-13T02:09:30.341Z
+updated: 2025-01-19T19:27:14.029Z
 tags:
   - ai video
   - ai facebook
@@ -49,10 +49,6 @@ thumbnail: https://thmb.techidaily.com/c72cccdf9cacc0fda207b45b24ab86cf2fde475b8
 
 ## Part 3: How to Use Facebook Insights for Beginners
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. Overview
 
  What is overview all about? The overview gives you a complete picture of your and your audience’s activities on your page for a week. The prime things that it covers are how many likes, comments, and shares your post received over a week, the number of people who viewed your content for one week, and the number of likes your page received. By understanding the measurement and performance of your page, you can check if any sort of pattern is developing, and then, delve deeper into the sections.
@@ -60,11 +56,7 @@ thumbnail: https://thmb.techidaily.com/c72cccdf9cacc0fda207b45b24ab86cf2fde475b8
 ![insights overview](https://images.wondershare.com/filmora/article-images/insights-overview.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. Page Likes
@@ -76,6 +68,10 @@ thumbnail: https://thmb.techidaily.com/c72cccdf9cacc0fda207b45b24ab86cf2fde475b8
  Secondly, the **net likes**, which captures the total new likes on your page subtracted by the total dislikes.
 
  Finally, the **certain times** your page was liked but broken by where it took place. In order to build your brand, you need to keep a track of your page likes and make sure that you are targeting the right people and connecting with them by targeting posts through relevant content.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Post Reach
 
@@ -90,11 +86,7 @@ thumbnail: https://thmb.techidaily.com/c72cccdf9cacc0fda207b45b24ab86cf2fde475b8
 ![insights post reach](https://images.wondershare.com/filmora/article-images/insights-post-reach.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4\. Post Promotion
@@ -102,7 +94,7 @@ thumbnail: https://thmb.techidaily.com/c72cccdf9cacc0fda207b45b24ab86cf2fde475b8
  Promoting your post to your target audiences beyond your Facebook page’s fans can boost your post. You can even create an advertisement out of your post and include a call to action button on the page. By clicking on the Boost a Post, the Insights gives you the list of your high performing posts as well as the recommended posts with more user engagement. These posts can be promoted as per your choice. Your target audience, duration, and the budget of the promotion can be specified as per your choice.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 5\. Video Analytics
@@ -117,6 +109,10 @@ thumbnail: https://thmb.techidaily.com/c72cccdf9cacc0fda207b45b24ab86cf2fde475b8
 
 ![insights video analytics](https://images.wondershare.com/filmora/article-images/insights-video-analytics.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 6\. People Analytics
 
  Under the People tab, you get to understand the metrics of like and views of people on your posts. It is further divided into 3 sections.
@@ -128,6 +124,10 @@ thumbnail: https://thmb.techidaily.com/c72cccdf9cacc0fda207b45b24ab86cf2fde475b8
  The **People Reached tab** shows the number of people who viewed your post by demographics. You can analyse if the right people, location, and age group are targeted or you need to make corrections.
 
 ![insights people analytics](https://images.wondershare.com/filmora/article-images/insights-people-analytics.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -152,22 +152,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-cut-to-the-chase-download-fb-videos-as-mp4-for-2024/"><u>[New] Cut to the Chase - Download FB Videos as MP4 for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-expert-video-downloader-kit-ideal-for-firefox-browser-users-for-2024/"><u>[New] Expert Video Downloader Kit Ideal for FireFox Browser Users for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-illuminating-photography-with-dynamic-mosaic-creations-for-2024/"><u>[New] Illuminating Photography with Dynamic Mosaic Creations for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-tips-to-rank-facebook-page-better/"><u>[New] In 2024, Tips to Rank Facebook Page Better</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-in-pursuit-of-perfection-does-picku-outshine-other-android-tools-for-2024/"><u>[New] In Pursuit of Perfection Does PickU Outshine Other Android Tools for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-squared-up-strategies-boosting-video-popularity-on-the-platform/"><u>[Updated] 2024 Approved Squared Up Strategies Boosting Video Popularity on the Platform</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-tackling-tricky-feed-issues-hidden-youtubefacebook-videos/"><u>[Updated] In 2024, Tackling Tricky Feed Issues Hidden YouTube/Facebook Videos</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-inventory-types-of-fb-video-ratios/"><u>[Updated] Inventory Types of FB Video Ratios</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-top-choices-pro-shake-free-cameras-for-video-streams/"><u>[Updated] Top Choices Pro Shake-Free Cameras for Video Streams</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-easy-steps-to-rectify-non-sending-or-delayed-videos-in-messenger-chats/"><u>2024 Approved Easy Steps to Rectify Non-Sending or Delayed Videos in Messenger Chats</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-sound-symphony-music-within-whatsapp-statuses/"><u>2024 Approved Sound Symphony Music Within WhatsApp Statuses</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5-ways-to-teach-you-to-transfer-files-from-oppo-f25-pro-5g-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways To Teach You To Transfer Files from Oppo F25 Pro 5G to Other Android Devices Easily | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/discovering-the-forgotten-chronicles-a-guide-to-past-facebook-stories-on-tech-devices-for-2024/"><u>Discovering The Forgotten Chronicles A Guide to Past Facebook Stories on Tech Devices for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/elevate-your-fb-profile-with-these-ten-effective-tactics/"><u>Elevate Your FB Profile with These Ten Effective Tactics</u></a></li>
-<li><a href="https://win-dash.techidaily.com/fast-track-to-new-surface-dock-driver-download-and-installation/"><u>Fast Track to New Surface Dock Driver Download and Installation</u></a></li>
-<li><a href="https://win-answers.techidaily.com/overcoming-stutter-and-crashes-in-star-citizen-for-windows-users/"><u>Overcoming Stutter and Crashes in Star Citizen for Windows Users</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/trier-gratuitement-vos-fichiers-flv-vers-le-format-aac-sur-internet-mouvavi/"><u>Trier Gratuitement Vos Fichiers FLV Vers Le Format AAC Sur Internet - Mouvavi</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-embrace-the-future-of-tv-engage-with-fb-live-via-roku/"><u>[New] 2024 Approved Embrace the Future of TV Engage with FB Live via Roku</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-learn-to-harvest-the-richness-of-facebook-live-experiences/"><u>[New] In 2024, , Learn to Harvest the Richness of Facebook Live Experiences</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-fb-content-takedown-what-are-your-rights-and-recourse/"><u>[New] In 2024, FB Content Takedown What Are Your Rights and Recourse?</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-top-10-facebook-video-players/"><u>[New] In 2024, Top 10 Facebook Video Players</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-rectify-faux-face-display-on-social-network-engagements/"><u>[New] Rectify Faux Face Display on Social Network Engagements</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-taking-flight-in-content-creation-dji-drones-and-fb-live/"><u>[Updated] In 2024, Taking Flight in Content Creation DJI Drones & FB Live</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-the-ultimate-checklist-to-add-audio-to-your-facebook-vids-for-2024/"><u>[Updated] The Ultimate Checklist to Add Audio to Your Facebook Vids for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/blockchain-against-breaches-7-windows-strategies/"><u>Blockchain Against Breaches: 7 Windows Strategies</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/in-2024-a-step-by-step-process-to-remove-audio-in-mp4-videos/"><u>In 2024, A Step-by-Step Process to Remove Audio in MP4 Videos</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/is-courtesy-essential-when-interacting-with-voice-assistants-like-chatgpt-alexa-or-siri/"><u>Is Courtesy Essential When Interacting with Voice Assistants Like ChatGPT, Alexa, or Siri?</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/snicker-sphere-top-grade-no-charge-memes-for-2024/"><u>Snicker Sphere Top-Grade, No-Charge Memes for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/the-art-of-close-up-meetings-in-ms-teams-for-2024/"><u>The Art of Close-Up Meetings in MS Teams for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/top-15-apps-to-hack-wifi-password-on-realme-gt-neo-5-se-by-drfone-android/"><u>Top 15 Apps To Hack WiFi Password On Realme GT Neo 5 SE</u></a></li>
 </ul></div>
 
