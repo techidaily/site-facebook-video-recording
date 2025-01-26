@@ -1,7 +1,7 @@
 ---
 title: "[New] How to Unlink Lively Logos From Your Profile (Mobile/PC)"
-date: 2025-01-19T00:08:07.123Z
-updated: 2025-01-20T00:04:54.831Z
+date: 2025-01-21T01:27:24.904Z
+updated: 2025-01-26T01:57:28.254Z
 tags:
   - ai video
   - ai facebook
@@ -36,10 +36,6 @@ A Facebook story will last for 24 hours. Once the 24 hours timeline is over, you
 
 ---
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: How to Delete A Photo or Video from Facebook Story?
 
 So, you can remove your Facebook story either by opening your Facebook account on your desktop browser or through your mobile app.
@@ -61,12 +57,16 @@ Let's begin with the mobile Facebook application:
 ![Facebook Story 3 dots](https://images.wondershare.com/filmora/article-images/facebook-story-three-dots.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 3: There will be a Delete Photo option. You need to select that.**
 
 ![delete Facebook Story from desktop](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-desktop.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 4:** Finally, click on the Delete option again, and you are done. This Facebook story is removed.
 
@@ -80,9 +80,17 @@ If it is already enabled, follow these steps to delete the archived Facebook sto
 
 ![delete Facebook Story from desktop](https://images.wondershare.com/filmora/article-images/facebook-story-archive.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2**: Now, select the Story Archive option that you see on the top. This will show all the archived stories. Next, choose a story that you want to remove permanently. The story will appear. Click on the three dots, and then click on the delete option.
 
 ![delete Facebook Story from archive](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-archive.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 This is how you will remove the stories from Facebook archived.
 
@@ -98,10 +106,6 @@ Facebook stories don't only appear on your Facebook home page; they also appear 
 
 ![delete Facebook Story from messager](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-messager.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 4: How to Control Who Can View Your Facebook Stories?
 
 You can make your stories visible to your friends, customize the viewers, or keep them public. Facebook allows you to control how and with whom you want to share your stories with.
@@ -110,16 +114,12 @@ You can make your stories visible to your friends, customize the viewers, or kee
 
 ![  Facebook Story privacy option](https://images.wondershare.com/filmora/article-images/facebook-story-privacy-option.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 2:** Now, the privacy setting page will let you choose from- public, friends, and custom. You can hide your story from a few people as well. Choose the one that meets your requirement. Then, go back and share the story.
 
 ![  Facebook Story privacy  ](https://images.wondershare.com/filmora/article-images/facebook-story-privacy.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 5: How to Hide Facebook Story from Specific People?
@@ -133,7 +133,7 @@ Facebook has made sharing stories easy because of the multiple features it offer
 **Step 2:** You will be shown the complete list of people you are connected with on Facebook. Select the people you don't want to share your stories with, and then click on done.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 6: How to Delete Someone Else's Story on Your Facebook?
@@ -165,17 +165,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-engineer-eliciting-gags/"><u>[New] 2024 Approved Engineer Eliciting Gags</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-enjoy-youtube-on-iphoneipad-with-the-leading-ios-fb-video-downloader/"><u>[New] 2024 Approved Enjoy YouTube on iPhone/iPad with the Leading iOS FB Video Downloader</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-innovative-zoom-methods-for-chromebook-efficiency/"><u>[New] 2024 Approved Innovative Zoom Methods for Chromebook Efficiency</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-the-essential-manual-for-simplified-live-streamers/"><u>[New] 2024 Approved The Essential Manual for Simplified Live Streamers</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-streamlining-the-experience-accessing-facebooks-video-features-through-apple-tv-for-2024/"><u>[New] Streamlining the Experience Accessing Facebook's Video Features Through Apple TV for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-convert-high-res-fb-videos-seamlessly-into-mp4-at-no-extra-cost/"><u>2024 Approved Convert High-Res FB Videos Seamlessly Into MP4 at No Extra Cost</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-raucous-revelations-top-10-scenarios-for-comedy-driven-videography/"><u>2024 Approved Raucous Revelations Top 10 Scenarios for Comedy-Driven Videography</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-unlock-social-connectivity-with-downloader-tools/"><u>2024 Approved Unlock Social Connectivity with Downloader Tools</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/complete-review-for-samsung-gear-360-camera/"><u>Complete Review for Samsung Gear 360 Camera</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/discovering-advanced-gadgets-with-toms-hardware-guides/"><u>Discovering Advanced Gadgets with Tom's Hardware Guides</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-send-and-fake-live-location-on-facebook-messenger-of-your-samsung-galaxy-a05-drfone-by-drfone-virtual-android/"><u>In 2024, How to Send and Fake Live Location on Facebook Messenger Of your Samsung Galaxy A05 | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/whats-sweeping-the-web-dive-into-these-8-trending-videos-for-2024/"><u>What's Sweeping the Web? Dive Into These 8 Trending Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-getting-unstuck-troubleshooting-absent-fb-vids/"><u>[New] 2024 Approved Getting Unstuck Troubleshooting Absent FB Vids</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-exploring-instagrams-video-sharing-cap-for-2024/"><u>[New] Exploring Instagram's Video Sharing Cap for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-top-10-music-videos-on-facebook/"><u>[New] In 2024, Top 10 Music Videos on Facebook</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-youtube-monetization-carryminati-ajey-nagar-youtube-income-2023/"><u>[New] In 2024, YouTube Monetization CarryMinati (Ajey Nagar) YouTube Income 2023</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-the-invisible-hand-facebooks-hidden-cause-for-missing-videos/"><u>[Updated] 2024 Approved The Invisible Hand Facebook's Hidden Cause for Missing Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-unlocking-potential-creating-your-youtube-identity/"><u>[Updated] 2024 Approved Unlocking Potential Creating Your YouTube Identity</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-unveiling-the-powerhouse-techniques-in-facebooks-360-streaming/"><u>[Updated] 2024 Approved Unveiling the Powerhouse Techniques in Facebook's 360 Streaming</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-the-monetary-worth-of-podcasting/"><u>[Updated] In 2024, The Monetary Worth of Podcasting</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-the-ultimate-obs-studio-guide-to-facebook-live-broadcasts/"><u>[Updated] The Ultimate OBS Studio Guide to Facebook Live Broadcasts</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-locate-hidden-watch-video-preview/"><u>2024 Approved Locate Hidden Watch Video Preview</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-linksys-ea9500-the-smart-and-strong-wireless-networking-solution/"><u>Comprehensive Analysis of Linksys EA9500 - The Smart and Strong Wireless Networking Solution</u></a></li>
+<li><a href="https://common-error.techidaily.com/efficient-methods-to-correct-disk-writing-faults-on-your-steam-platform/"><u>Efficient Methods to Correct Disk Writing Faults on Your Steam Platform</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-realme-12plus-5g-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How Realme 12+ 5G Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-broadcasting-facebook-videos-through-your-tv-setup/"><u>In 2024, Broadcasting Facebook Videos Through Your TV Setup</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-facebooks-vanished-video-suggestions-explained/"><u>In 2024, Facebook's Vanished Video Suggestions Explained</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-still-using-pattern-locks-with-realme-gt-5-tips-tricks-and-helpful-advice-by-drfone-android/"><u>In 2024, Still Using Pattern Locks with Realme GT 5? Tips, Tricks and Helpful Advice</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/innovative-ideas-for-fb-slideshow-creations-for-2024/"><u>Innovative Ideas for FB Slideshow Creations for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/silent-arena-resolved-expert-advice-for-restoring-sound-in-apex-legends/"><u>Silent Arena Resolved: Expert Advice for Restoring Sound in Apex Legends</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/the-10-best-blurred-background-tools/"><u>The 10 Best Blurred Background Tools</u></a></li>
 </ul></div>
 

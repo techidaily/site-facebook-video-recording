@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Mastering Full-Circle Clips  IPhone Filming Tips\""
-date: 2024-07-20T15:55:36.010Z
-updated: 2024-07-21T15:55:36.010Z
+date: 2025-01-21T21:59:38.690Z
+updated: 2025-01-25T19:29:37.891Z
 tags:
   - ai video
   - ai facebook
@@ -19,10 +19,6 @@ thumbnail: https://thmb.techidaily.com/9ad9147e4fbb8c24ccda197a0486be5c1d9c044a4
 
 # How to Take 360 Videos on iPhone for Facebook
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -84,9 +80,67 @@ Follow @Shanoon Cox
 
  The advent of VR headset along with the ability to upload videos and 360 photos on Facebook has created a new craze for 360 degree photos. Nowadays any iOS user can take stunning 360 degree photos on their iPhone and iPad and upload them directly on Facebook. If you are an iPhone user who is wondering how to create 360 degree photos and videos should keep reading this article where we are going to explain you everything about capturing 360 degrees pictures and videos.
 
+## How to take 360 videos from your iPad and iPhone without any additional hardware for FB
+
+ The introduction of a variety of VR headsets along with a range of cameras with 360 degree video shooting ability is a clear indicator of the fact that the future lies with Virtual Reality. However not all tech enthusiasts would be able to afford these super expensive cameras. This might lead one to believe that 360 degree videos aren’t for people like you and me. However, this is not the fact. In the last few years Apple has enhanced the iPhone cameras to a great extent and these days you can use your iPhone to create casual 360 degree videos. Keep reading to find out the easiest way to capture 360 degree videos on your iPad and iPhone with the help of Splash 360\. The best part is that you can do it without spending on any additional hardware.
+
+#### [Splash](https://itunes.apple.com/us/app/splash-360-video-camera-virtual-reality-community/id1057262494?mt=8)
+
+ This is an all new application for iPhone which would help you come up with superb 360 degree photos and videos. It is incredible that Splash has created an application which would allow the users to capture up to 10 videos of 2 seconds duration and then stitch them together to create a new video. All this can be done on your smartphone. It goes without saying that the best part of this application is that you can download it for free. With the help of Splash you will be able to directly upload all your photos and videos on Facebook or share them with your friends through a link. The Splash app also comes with full support for Google Cardboard headsets which would let you fully concentrate in the 360 degree environment.
+
+#### Capturing with Splash on iPhone
+
+ Shooting 360 degree videos on Splash is almost child play and it can be mastered even by novices. Let’s take a step by step look at how to shoot 360 degree videos with Splash.
+
+* Open the Splash app and you will be able to see a green button with a camera icon in the home page. Tapping this green button would allow the application to capture videos from the camera of your iPhone.
+* In the video interface of the Splash app you will be able to capture a 360 degree video just like capturing a panorama. All you need to do is point the phone at the position where you want to start and the press the shutter button and hold it for shooting the video. Now you can change the position of your camera in whichever way you want and keep recording till you have finished shooting the sphere.
+* When you have recorded all the angles by rotating the camera of your iPhone you need to hit the green checkmark.
+* In case you are not looking forward to capturing the entire sphere you can always choose to stop shooting midway.
+* Lastly you need to save your work before you hit the share button. The sharing option list is right there on the screen- all you have to do is just single tap on it and post your creation wherever you want.
+
+ Tips: Like any other 360 degree recording application which is dependent on the movement of the phone for capturing an entire sphere, the video quality of Splash is going to depend on the stability of the phone while shooting. Therefore make sure not to move much while shooting. No matter how hard you try to keep your hands steady there is surely going to be a few jerks. This is precisely why you need to use a small tripod where you can position the phone and rotate it. Using a tripod is the safest bet since it not only ensures better stability but also gives you enhanced video quality.
+
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+## Taking 360 degree videos on iPhone and iPad with Attached Lens
+
+ If you want to create a stunning 360 degree video with your iOS mobile device then you need to make use of an all new 3K 360 degree camera called Insta360 Nano. Insta360 Nano which is available for less than $200 on Amazon is one of the cheapest devices for capturing real cool 360 degree videos. It can also be used as a standalone 360 degree cam which just needs to be connected with your iPhone for viewing your captures, tweaking the settings and for getting a live preview.
+
+#### Capturing with Insta360 on iPhone
+
+* To capture a video/photo just connect the Insta360 Nano to your iPhone via lightning.
+* Now launch the app and hit the shutter button to shoot. Make sure to keep your camera as still as possible for best results.
+* Another way is to insert a Micro SD card into the TF card slot at the bottom of the Insta360 Nano and hit the shutter when the LED turns green in colour.
+
+#### Sharing on FB
+
+* In order to share your captured video you need to hit the Share icon on the top right of the interface.
+* Now choose the option which would allow you to export it as a panorama.
+* After the export is complete just open the Facebook app and hit the option for uploading photos and videos before uploading your 360 degree file.
+* Now just select your hashtags and captions and your 360 capture can be viewed by all your friends and followers.
+
+ If your upload doesn’t go right the first time you need to delete your draft and re-upload it. Since Facebook itself does the job of stitching your 360 degree video together, uploading it can take quite some time. Usually a 20 second clip takes about 5-10 minutes to upload. Your video would appear with a 360 logo on the newsfeed of your friends so as to encourage viewers to enjoy this new 360 degree experience.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+ The advent of VR headset along with the ability to upload videos and 360 photos on Facebook has created a new craze for 360 degree photos. Nowadays any iOS user can take stunning 360 degree photos on their iPhone and iPad and upload them directly on Facebook. If you are an iPhone user who is wondering how to create 360 degree photos and videos should keep reading this article where we are going to explain you everything about capturing 360 degrees pictures and videos.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to take 360 videos from your iPad and iPhone without any additional hardware for FB
 
  The introduction of a variety of VR headsets along with a range of cameras with 360 degree video shooting ability is a clear indicator of the fact that the future lies with Virtual Reality. However not all tech enthusiasts would be able to afford these super expensive cameras. This might lead one to believe that 360 degree videos aren’t for people like you and me. However, this is not the fact. In the last few years Apple has enhanced the iPhone cameras to a great extent and these days you can use your iPhone to create casual 360 degree videos. Keep reading to find out the easiest way to capture 360 degree videos on your iPad and iPhone with the help of Splash 360\. The best part is that you can do it without spending on any additional hardware.
@@ -141,8 +195,9 @@ Follow @Shanoon Cox
  The advent of VR headset along with the ability to upload videos and 360 photos on Facebook has created a new craze for 360 degree photos. Nowadays any iOS user can take stunning 360 degree photos on their iPhone and iPad and upload them directly on Facebook. If you are an iPhone user who is wondering how to create 360 degree photos and videos should keep reading this article where we are going to explain you everything about capturing 360 degrees pictures and videos.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to take 360 videos from your iPad and iPhone without any additional hardware for FB
 
  The introduction of a variety of VR headsets along with a range of cameras with 360 degree video shooting ability is a clear indicator of the fact that the future lies with Virtual Reality. However not all tech enthusiasts would be able to afford these super expensive cameras. This might lead one to believe that 360 degree videos aren’t for people like you and me. However, this is not the fact. In the last few years Apple has enhanced the iPhone cameras to a great extent and these days you can use your iPhone to create casual 360 degree videos. Keep reading to find out the easiest way to capture 360 degree videos on your iPad and iPhone with the help of Splash 360\. The best part is that you can do it without spending on any additional hardware.
@@ -162,6 +217,10 @@ Follow @Shanoon Cox
 * Lastly you need to save your work before you hit the share button. The sharing option list is right there on the screen- all you have to do is just single tap on it and post your creation wherever you want.
 
  Tips: Like any other 360 degree recording application which is dependent on the movement of the phone for capturing an entire sphere, the video quality of Splash is going to depend on the stability of the phone while shooting. Therefore make sure not to move much while shooting. No matter how hard you try to keep your hands steady there is surely going to be a few jerks. This is precisely why you need to use a small tripod where you can position the phone and rotate it. Using a tripod is the safest bet since it not only ensures better stability but also gives you enhanced video quality.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Taking 360 degree videos on iPhone and iPad with Attached Lens
 
@@ -184,68 +243,9 @@ Follow @Shanoon Cox
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
- The advent of VR headset along with the ability to upload videos and 360 photos on Facebook has created a new craze for 360 degree photos. Nowadays any iOS user can take stunning 360 degree photos on their iPhone and iPad and upload them directly on Facebook. If you are an iPhone user who is wondering how to create 360 degree photos and videos should keep reading this article where we are going to explain you everything about capturing 360 degrees pictures and videos.
-
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-## How to take 360 videos from your iPad and iPhone without any additional hardware for FB
-
- The introduction of a variety of VR headsets along with a range of cameras with 360 degree video shooting ability is a clear indicator of the fact that the future lies with Virtual Reality. However not all tech enthusiasts would be able to afford these super expensive cameras. This might lead one to believe that 360 degree videos aren’t for people like you and me. However, this is not the fact. In the last few years Apple has enhanced the iPhone cameras to a great extent and these days you can use your iPhone to create casual 360 degree videos. Keep reading to find out the easiest way to capture 360 degree videos on your iPad and iPhone with the help of Splash 360\. The best part is that you can do it without spending on any additional hardware.
-
-#### [Splash](https://itunes.apple.com/us/app/splash-360-video-camera-virtual-reality-community/id1057262494?mt=8)
-
- This is an all new application for iPhone which would help you come up with superb 360 degree photos and videos. It is incredible that Splash has created an application which would allow the users to capture up to 10 videos of 2 seconds duration and then stitch them together to create a new video. All this can be done on your smartphone. It goes without saying that the best part of this application is that you can download it for free. With the help of Splash you will be able to directly upload all your photos and videos on Facebook or share them with your friends through a link. The Splash app also comes with full support for Google Cardboard headsets which would let you fully concentrate in the 360 degree environment.
-
-#### Capturing with Splash on iPhone
-
- Shooting 360 degree videos on Splash is almost child play and it can be mastered even by novices. Let’s take a step by step look at how to shoot 360 degree videos with Splash.
-
-* Open the Splash app and you will be able to see a green button with a camera icon in the home page. Tapping this green button would allow the application to capture videos from the camera of your iPhone.
-* In the video interface of the Splash app you will be able to capture a 360 degree video just like capturing a panorama. All you need to do is point the phone at the position where you want to start and the press the shutter button and hold it for shooting the video. Now you can change the position of your camera in whichever way you want and keep recording till you have finished shooting the sphere.
-* When you have recorded all the angles by rotating the camera of your iPhone you need to hit the green checkmark.
-* In case you are not looking forward to capturing the entire sphere you can always choose to stop shooting midway.
-* Lastly you need to save your work before you hit the share button. The sharing option list is right there on the screen- all you have to do is just single tap on it and post your creation wherever you want.
-
- Tips: Like any other 360 degree recording application which is dependent on the movement of the phone for capturing an entire sphere, the video quality of Splash is going to depend on the stability of the phone while shooting. Therefore make sure not to move much while shooting. No matter how hard you try to keep your hands steady there is surely going to be a few jerks. This is precisely why you need to use a small tripod where you can position the phone and rotate it. Using a tripod is the safest bet since it not only ensures better stability but also gives you enhanced video quality.
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
-<!-- affiliate ads end -->
-## Taking 360 degree videos on iPhone and iPad with Attached Lens
-
- If you want to create a stunning 360 degree video with your iOS mobile device then you need to make use of an all new 3K 360 degree camera called Insta360 Nano. Insta360 Nano which is available for less than $200 on Amazon is one of the cheapest devices for capturing real cool 360 degree videos. It can also be used as a standalone 360 degree cam which just needs to be connected with your iPhone for viewing your captures, tweaking the settings and for getting a live preview.
-
-#### Capturing with Insta360 on iPhone
-
-* To capture a video/photo just connect the Insta360 Nano to your iPhone via lightning.
-* Now launch the app and hit the shutter button to shoot. Make sure to keep your camera as still as possible for best results.
-* Another way is to insert a Micro SD card into the TF card slot at the bottom of the Insta360 Nano and hit the shutter when the LED turns green in colour.
-
-#### Sharing on FB
-
-* In order to share your captured video you need to hit the Share icon on the top right of the interface.
-* Now choose the option which would allow you to export it as a panorama.
-* After the export is complete just open the Facebook app and hit the option for uploading photos and videos before uploading your 360 degree file.
-* Now just select your hashtags and captions and your 360 capture can be viewed by all your friends and followers.
-
- If your upload doesn’t go right the first time you need to delete your draft and re-upload it. Since Facebook itself does the job of stitching your 360 degree video together, uploading it can take quite some time. Usually a 20 second clip takes about 5-10 minutes to upload. Your video would appear with a 360 logo on the newsfeed of your friends so as to encourage viewers to enjoy this new 360 degree experience.
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
 
@@ -264,8 +264,6 @@ Follow @Shanoon Cox
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -274,7 +272,26 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-information.techidaily.com/new-becoming-a-voice-alteration-virtuoso-with-morphvox/"><u>[New] Becoming a Voice Alteration Virtuoso with MorphVOX</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-elevate-earnings-through-effective-facebook-page-practices/"><u>[New] Elevate Earnings Through Effective Facebook Page Practices</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-elevate-your-fan-count-top-tactics-for-fb-page-ranks/"><u>[New] Elevate Your Fan Count Top Tactics for FB Page Ranks</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-how-to-convert-facebook-video-to-mp4-720p1080phd-online-and-free-for-2024/"><u>[New] How to Convert Facebook Video to MP4 720P/1080p/HD Online and Free for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-unveiling-the-process-of-hd-video-extraction-on-fb-for-2024/"><u>[New] Unveiling the Process of HD Video Extraction on FB for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-mastering-counter-image-navigation-in-digital-age-a-facebook-guide/"><u>[Updated] Mastering Counter-Image Navigation in Digital Age A Facebook Guide</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-shutterbug-simplified-iphone-tools-for-effective-cropping/"><u>[Updated] Shutterbug Simplified IPhone Tools for Effective Cropping</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-the-ultimate-routine-for-accessing-and-playing-fb-videos-via-apple-tv-for-2024/"><u>[Updated] The Ultimate Routine for Accessing and Playing FB Videos via Apple TV for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-unlocking-the-secrets-of-silent-video-suggestions-in-feed/"><u>[Updated] Unlocking the Secrets of Silent Video Suggestions in Feed</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/100-secure-windows-compatible-sades-headset-software-free-download-available/"><u>100% Secure Windows Compatible Sades Headset Software - Free Download Available</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-music-syncing-for-iphones-and-androids-in-fb/"><u>2024 Approved Music Syncing for iPhones & Androids in FB</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/aifc-mp4-google-movavi/"><u>AIFC MP4 비디오를 쉽게 Google에서 이동하는 방법 - 무료 Movavi 도구</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/choose-your-view-facebook-video-aspect-ratio-for-2024/"><u>Choose Your View Facebook Video Aspect Ratio for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/crafting-effective-in-stream-ad-campaigns-on-facebook-a-comprehensive-guide-for-2024/"><u>Crafting Effective In-Stream Ad Campaigns on Facebook A Comprehensive Guide for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/how-to-autoplay-youtube-videos-on-facebook/"><u>How to Autoplay Youtube Videos on Facebook?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-apple-iphone-15-to-other-iphone-drfone-by-drfone-ios/"><u>How to Mirror Apple iPhone 15 to Other iPhone? | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-11-best-location-changers-for-samsung-galaxy-z-fold-5-drfone-by-drfone-virtual-android/"><u>In 2024, 11 Best Location Changers for Samsung Galaxy Z Fold 5 | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-pc-screen-to-vivo-t2x-5g-phones-drfone-by-drfone-android/"><u>In 2024, How to Mirror PC Screen to Vivo T2x 5G Phones? | Dr.fone</u></a></li>
+<li><a href="https://driver-download.techidaily.com/troubleshoot-your-display-solutions-for-dealing-with-graphics-driver-issues/"><u>Troubleshoot Your Display: Solutions for Dealing with 'Graphics Driver Issues'</u></a></li>
+</ul></div>
 
