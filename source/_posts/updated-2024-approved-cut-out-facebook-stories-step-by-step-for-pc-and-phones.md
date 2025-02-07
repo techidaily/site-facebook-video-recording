@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Cut Out Facebook Stories  Step-By-Step for PC & Phones\""
-date: 2025-01-18T23:22:59.842Z
-updated: 2025-01-25T16:02:11.747Z
+date: 2025-02-01T16:45:45.153Z
+updated: 2025-02-07T20:25:00.673Z
 tags:
   - ai video
   - ai facebook
@@ -37,7 +37,7 @@ A Facebook story will last for 24 hours. Once the 24 hours timeline is over, you
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How to Delete A Photo or Video from Facebook Story?
@@ -76,19 +76,15 @@ If it is already enabled, follow these steps to delete the archived Facebook sto
 
 ![delete Facebook Story from desktop](https://images.wondershare.com/filmora/article-images/facebook-story-archive.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 2**: Now, select the Story Archive option that you see on the top. This will show all the archived stories. Next, choose a story that you want to remove permanently. The story will appear. Click on the three dots, and then click on the delete option.
 
 ![delete Facebook Story from archive](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-archive.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 This is how you will remove the stories from Facebook archived.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: How to Delete My Story on Facebook Messenger on iPhone, iPad, And Android?
 
@@ -103,7 +99,7 @@ Facebook stories don't only appear on your Facebook home page; they also appear 
 ![delete Facebook Story from messager](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-messager.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: How to Control Who Can View Your Facebook Stories?
@@ -115,7 +111,7 @@ You can make your stories visible to your friends, customize the viewers, or kee
 ![  Facebook Story privacy option](https://images.wondershare.com/filmora/article-images/facebook-story-privacy-option.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 2:** Now, the privacy setting page will let you choose from- public, friends, and custom. You can hide your story from a few people as well. Choose the one that meets your requirement. Then, go back and share the story.
@@ -129,6 +125,10 @@ Facebook has made sharing stories easy because of the multiple features it offer
 **Step 1:** Launch your Facebook account, and then upload something on your story and set the privacy to Friends. After that, you need to click on the Hide Story From option.
 
 ![  Facebook Story hide from specific person  ](https://images.wondershare.com/filmora/article-images/hide-facebook-story-from-specific-people.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 2:** You will be shown the complete list of people you are connected with on Facebook. Select the people you don't want to share your stories with, and then click on done.
 
@@ -147,7 +147,7 @@ Facebook stories are a great way to let people know what you are up to. It's sho
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -165,22 +165,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-2023-strategy-easily-discovering-what-youve-lately-watched-on-fb/"><u>[New] In 2024, 2023 Strategy Easily Discovering What You've Lately Watched on Fb</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-enhancing-fb-video-content-with-streamlined-captioning-tactics/"><u>[New] In 2024, Enhancing FB Video Content with Streamlined Captioning Tactics</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-the-ultimate-guide-to-no-cost-melodies-for-content-makers/"><u>[New] The Ultimate Guide to No-Cost Melodies for Content Makers</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-unlock-serenity-with-asmr-for-uninterrupted-slumber/"><u>[New] Unlock Serenity with ASMR for Uninterrupted Slumber</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-digital-revolution-integrating-dslr-into-online-platforms-from-home-pcsmacs-for-2024/"><u>[Updated] Digital Revolution Integrating DSLR Into Online Platforms From Home PCs/Macs for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-flashback-filmmaking-top-tricks-from-80s-vhs-to-enhance-todays-edits-for-2024/"><u>[Updated] Flashback Filmmaking Top Tricks From 80S VHS to Enhance Today’s Edits for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-haunting-shots-next-gen-action-hddc/"><u>[Updated] Haunting Shots Next-Gen Action HDDC</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-facebook-cover-video-introduction-size-format-and-time/"><u>[Updated] In 2024, Facebook Cover Video Introduction, Size, Format & Time</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-optimizing-your-in-stream-ad-strategy-on-facebooks-platform/"><u>[Updated] In 2024, Optimizing Your In-Stream Ad Strategy on Facebook's Platform</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-unveiling-the-hidden-process-of-downloading-fb-content/"><u>[Updated] Unveiling the Hidden Process of Downloading Fb Content</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-mastering-the-art-of-fcp-freedom/"><u>2024 Approved Mastering the Art of FCP Freedom</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-superior-tools-for-watching-fb-videos/"><u>In 2024, Superior Tools for Watching FB Videos</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-ten-practices-to-avoid-vr-motion-sickness/"><u>In 2024, Ten Practices to Avoid VR Motion Sickness</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/inside-the-acoustics-a-comprehensive-review-of-creativs-sound-blaster-zxr-the-2nd-flagship-model/"><u>Inside the Acoustics: A Comprehensive Review of Creativ's Sound Blaster ZXR - The 2nD Flagship Model</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/scripting-stories-chatgpt-as-your-text-rpg-guide/"><u>Scripting Stories: ChatGPT as Your Text-RPG Guide</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/soundtrack-to-life-fbs-music-offerings-for-2024/"><u>Soundtrack to Life FB's Music Offerings for 2024</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211066202-9789359046563-through-the-gates-of-death/"><u>Through the Gates of Death | Free Book</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-dells-vision-for-the-future-with-an-insight-into-p2715q-monitor-specs/"><u>[New] 2024 Approved Dell's Vision for the Future with an Insight Into P2715Q Monitor Specs</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-enhancing-photo-coexistence-on-devices/"><u>[New] 2024 Approved Enhancing Photo Coexistence on Devices</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-grandview-alliance-how-to-settle-on-a-cms/"><u>[Updated] In 2024, Grandview Alliance How to Settle on a CMS</u></a></li>
+<li><a href="https://techtrends.techidaily.com/10-effektive-strategien-um-den-fehler-dvd-spieldesign-fehlt-zu-beheben/"><u>10 Effektive Strategien, Um Den Fehler 'DVD Spieldesign Fehlt' Zu Beheben</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-explore-the-world-of-fb-live-broadcasting/"><u>2024 Approved Explore the World of FB Live Broadcasting</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-the-quintessential-quotient-facebooks-top-5-adjustments/"><u>2024 Approved The Quintessential Quotient Facebook's Top 5 Adjustments</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-ways-to-track-honor-x50-gt-without-them-knowing-drfone-by-drfone-virtual-android/"><u>3 Ways to Track Honor X50 GT without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/facebooks-new-era-breaking-down-2023s-sneak-peek-into-short-video-trends/"><u>Facebook's New Era Breaking Down 2023'S Sneak Peek Into Short Video Trends</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/facebooks-ultimate-add-ons-for-the-tech-enthusiast/"><u>Facebook's Ultimate Add-Ons for the Tech Enthusiast</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-screen-mirroring-apple-iphone-7-plus-to-tv-or-pc-drfone-by-drfone-ios/"><u>How Screen Mirroring Apple iPhone 7 Plus to TV or PC? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-facebook-video-posting-dilemmnas-which-way/"><u>In 2024, Facebook Video Posting Dilemmnas Which Way?</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/innovating-human-interface-a-guide-to-hand-perception/"><u>Innovating Human Interface A Guide to Hand Perception</u></a></li>
+<li><a href="https://article-files.techidaily.com/ranking-the-ultimate-vr-fun-on-mobile-devices-for-2024/"><u>Ranking the Ultimate VR Fun on Mobile Devices for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/tips-and-solutions-restoring-functionality-to-your-turtle-beach-elite-atlas-headsets-mic/"><u>Tips and Solutions: Restoring Functionality to Your Turtle Beach Elite Atlas Headset's Mic</u></a></li>
 </ul></div>
 

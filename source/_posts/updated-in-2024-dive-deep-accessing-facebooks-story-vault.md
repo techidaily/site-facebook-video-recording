@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Dive Deep  Accessing Facebook's Story Vault\""
-date: 2025-01-19T22:23:29.282Z
-updated: 2025-01-25T17:32:07.804Z
+date: 2025-02-06T17:02:45.574Z
+updated: 2025-02-07T16:36:42.235Z
 tags:
   - ai video
   - ai facebook
@@ -53,13 +53,25 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 
 ![facebook old stories more](https://images.wondershare.com/filmora/article-images/2021/facebook-old-stories-more.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3:** Now just tap on the “Story Archive” option from the list.
 
 ![facebook story archive](https://images.wondershare.com/filmora/article-images/2021/facebook-story-archive.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4:** After this, you would be shown all the stories sequentially in the Story Archives section.
 
 Thus how to view old stories on Facebook desktop is very easy with above above-mentioned easy steps.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: How to Watch Old Stories on Facebook on your Mobile?
 
@@ -73,10 +85,6 @@ You can find and see the old stories on Facebook with the help of the archived s
 
 ![watch old stories facebook](https://images.wondershare.com/filmora/article-images/2021/watch-old-stories-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 4:** Scroll towards the right and select on Story Archives tab.
 
 ![story archive facebook mobile](https://images.wondershare.com/filmora/article-images/2021/story-archive-facebook-mobile.jpg)
@@ -84,10 +92,6 @@ You can find and see the old stories on Facebook with the help of the archived s
 **Step 5:** Now you would get to see all the old stories you have created sequentially from newest to oldest order.
 
 We assure you that with the above effective and easy steps your doubt of how to see old stories on Facebook would be solved.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 4: Can you See Friends' Old Stories on Facebook?
 
@@ -97,16 +101,12 @@ The only chance is that if your friend has uploaded those stories on highlights 
 
 ![see friends old fb story](https://images.wondershare.com/filmora/article-images/2021/see-friends-old-fb-story.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 An old highlighted story shared by your friend would appear on your friend’s profile below the Friends section and above create post option as Story Highlights.
 
 So for the above discussed all ways the only must thing is to setting archive on which would allow you to re-watch stories again and solve your doubt of how to view old stories on Facebook.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 5: How to Create Facebook Videos with Ease?
@@ -116,10 +116,6 @@ If you think that to create amazing videos for Facebook, you need to be a profes
 To attract more audience and gain more likes, comments all you need is a smart [video editor](https://tools.techidaily.com/wondershare/filmora/download/) like a Wondershare Filmora. It is one of the most effective video editing tools that help you edit your elements quickly and easily upload over Facebook.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Features:**
 
@@ -163,6 +159,10 @@ Happy editing!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -178,20 +178,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-2024-approved-become-a-veterinarian-on-android-12-great-simulators/"><u>[New] 2024 Approved Become a Veterinarian on Android 12 Great Simulators</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-navigating-fbs-automatic-video-sync-feature-for-2024/"><u>[New] Navigating FB's Automatic Video Sync Feature for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-subtitled-uninterrupted-access-to-9-festive-holiday-movies-free/"><u>[New] Subtitled, Uninterrupted Access to 9 Festive Holiday Movies - Free</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-fleeting-films-on-the-friendly-social-for-2024/"><u>[Updated] Fleeting Films on the Friendly Social for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-reinstate-fb-watch-video-tile/"><u>[Updated] In 2024, Reinstate FB Watch Video Tile</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-mastering-the-art-of-downloading-fb-status-videos-for-2024/"><u>[Updated] Mastering the Art of Downloading Fb Status Videos for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-novice-networking-affordable-channel-buy-options/"><u>[Updated] Novice Networking Affordable Channel Buy Options</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-tips-for-effective-screen-broadcasts-on-fb-live-for-2024/"><u>[Updated] Tips for Effective Screen Broadcasts on FB Live for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-the-virtual-set-masterclass-learning-filmmaking-online/"><u>2024 Approved The Virtual Set Masterclass Learning Filmmaking Online</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/4-easy-ways-for-your-honor-90-pro-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>4 Easy Ways for Your Honor 90 Pro Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/elevate-your-fb-presence-with-top-10-music-videos-guide/"><u>Elevate Your FB Presence with Top 10 Music Videos Guide</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/elevate-your-space-with-stylish-and-secure-hanging-solutions/"><u>Elevate Your Space with Stylish and Secure Hanging Solutions</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/ideal-camera-and-recording-apps-for-iphone-and-android-smartphones/"><u>Ideal Camera and Recording Apps for iPhone and Android Smartphones</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-after-switching-from-realme-12-5g-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data After Switching From Realme 12 5G to Latest Samsung | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-vivo-v30-pro-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 Vivo V30 Pro Android SIM Unlock APK</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-how-to-trim-youtube-videos-like-a-pro/"><u>[New] 2024 Approved How to Trim YouTube Videos Like a Pro</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-exploring-hand-tracking-an-in-depth-look/"><u>[New] In 2024, Exploring Hand Tracking An In-Depth Look</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-steps-to-post-music-on-social-media-stories/"><u>[New] In 2024, Steps to Post Music on Social Media Stories</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-mastering-facebook-broadcasts-android-and-ios-tips/"><u>[Updated] 2024 Approved Mastering Facebook Broadcasts Android & iOS Tips</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-revisiting-yesteryears-social-stories-on-fb-device-guide/"><u>[Updated] 2024 Approved Revisiting Yesteryear's Social Stories on FB Device Guide</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-depth-analysis-the-dell-g5-egpu-a-great-choice-for-budget-gamers-with-extensive-customization-possibilities/"><u>In-Depth Analysis: The Dell G5 eGPU, a Great Choice for Budget Gamers with Extensive Customization Possibilities</u></a></li>
+<li><a href="https://win11.techidaily.com/swiftly-solving-geforce-nows-error-xc0f1103f-on-windows-11/"><u>Swiftly Solving GeForce Now's Error: Xc0f1103f on Windows 11</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/teamwork-made-simple-the-ultimate-guide-to-8-schedulers/"><u>Teamwork Made Simple The Ultimate Guide to 8 Schedulers</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-unlock-software-for-oppo-a58-4g-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>The Best Android Unlock Software For Oppo A58 4G Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-resurgence-of-a-social-media-phenomenon/"><u>The Resurgence of a Social Media Phenomenon</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/top-44-discounts-on-seasonal-memory-units-and-solid-state-drives-insights/"><u>Top 44 Discounts on Seasonal Memory Units & Solid-State Drives - Insights</u></a></li>
 </ul></div>
 

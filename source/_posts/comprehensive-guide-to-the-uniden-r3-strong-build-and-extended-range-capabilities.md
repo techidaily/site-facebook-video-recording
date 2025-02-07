@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Guide to the Uniden R3: Strong Build & Extended Range Capabilities"
-date: 2025-01-19T16:58:29.955Z
-updated: 2025-01-25T19:10:35.495Z
+date: 2025-02-05T17:10:18.542Z
+updated: 2025-02-07T18:17:23.597Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive Guide to the Uniden R3: Strong Build & Extended Range Capabilities"
@@ -38,7 +38,7 @@ Lifewire / Kelsey Simon
 4.6
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Ubisoft Rayman Legends
@@ -70,7 +70,7 @@ Lifewire / Kelsey Simon
  Setup for Rayman Legends is what you would expect. You’ll open up the[PlayStation 4](https://www.lifewire.com/ps4-ps4-slim-and-ps4-pro-4154452) case (or if you buy the game electronically through your PS4, you’ll begin the download process after purchase), pop in the disk, and you’ll be ready to play. Be aware, though, that certain features of the game will not be accessible if your PS4 is not connected to the internet. Specifically, you won’t be able to access the Challenges mode, where you can play weekly challenges against other Rayman Legends players.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Plot: Not much of one, but who cares?**
@@ -85,11 +85,11 @@ Lifewire / Kelsey Simon
 
 ![Rayman Legends](https://www.lifewire.com/thmb/-Un250xgOCxgaGgFeykC6pihaaU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/RaymanLegends_20190118212347-5c8ffe8d46e0fb0001f8d0cc.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Gameplay: What this is really about**
 
@@ -125,10 +125,6 @@ Lifewire / Kelsey Simon
 
  In the Fiesta De Los Muertos level, be prepared to smash brightly colored mariachi skeletons. No matter which level, though, the art style is consistent, and while not traditionally beautiful, it’s enjoyable and fun―a perfect fit for the game.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Audio: A hidden treasure**
 
  Generally speaking, the sound and music in Rayman Legends is well designed and fits with the feel of the rest of the game. But there is one thing worth mentioning when it comes to the sound and music of the game―and in our opinion, it’s the coolest thing about Rayman Legends.
@@ -141,10 +137,6 @@ Lifewire / Kelsey Simon
 
  The beauty of these maps is how well the gameplay is designed to match the beats of the song, from how each jump will strike with the strum of a guitar, or how the smash of a drum will be timed with the slaying of an enemy. The levels might take you a few tries to finish, as they’re timed and require precision, but they’re fun enough you won’t mind doing them again.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Very reasonable for the content**
 
  Rayman Legends can be purchased for most systems at around $20\. Sometimes PlayStation will put the item on sale, and you might even be able to get a copy for less than $15.
@@ -156,7 +148,7 @@ Lifewire / Kelsey Simon
  Sometimes PlayStation will put the item on sale, and you might even be able to get a copy for less than $15.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Competition: More co-op platformers**
@@ -171,11 +163,19 @@ Lifewire / Kelsey Simon
 
  Between the co-op option, the extra levels, the ability to replay Rayman Origins, and all the other things you can unlock from special heroes to scratchers, this game has a lot to offer for gamers of all ages.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [LEGO Worlds](https://www.lifewire.com/lego-dimensions-review-4686589)
 * [Minecraft](https://www.lifewire.com/minecraft-review-4777049)
 * [Ratchet & Clank](https://www.lifewire.com/ratchet-and-clank-review-4777051)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -205,24 +205,24 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-exploring-fb-video-aspect-proportions/"><u>[New] 2024 Approved Exploring FB Video Aspect Proportions</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-bambuser-intro-video-summary-width-x-height-encoding-seconds/"><u>[New] Bambuser Intro Video Summary Width X Height, Encoding, Seconds</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-tackling-blurry-youtube-videos-fixing-visual-fuzziness/"><u>[New] Tackling Blurry YouTube Videos Fixing Visual Fuzziness</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-tapping-humors-potential-with-a-comprehensive-9gag-meme-creation-guide/"><u>[New] Tapping Humor's Potential with a Comprehensive 9GAG Meme Creation Guide</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-digital-disarmament-regaining-fb-power/"><u>[Updated] 2024 Approved Digital Disarmament Regaining FB Power</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-get-ahead-with-these-best-7-android-browsers-without-ads/"><u>[Updated] 2024 Approved Get Ahead with These Best 7 Android Browsers Without Ads</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-ascend-in-the-youtube-arena-through-creative-studio-mastery-for-2024/"><u>[Updated] Ascend in the YouTube Arena Through Creative Studio Mastery for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-fb-streamer-capture-and-save-videos-for-2024/"><u>[Updated] FB-Streamer Capture and Save Videos for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-optimize-tasks-the-8-superior-facebook-schedulers/"><u>[Updated] In 2024, Optimize Tasks The 8 Superior Facebook Schedulers</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-the-art-of-sharing-online-videos-from-youtube-to-facebook/"><u>[Updated] The Art of Sharing Online Videos From YouTube to Facebook</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-ultimate-6-film-compiler-tools/"><u>[Updated] Ultimate 6 Film Compiler Tools</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-live-streaming-and-screen-capture-a-comprehensive-obs-analysis/"><u>2024 Approved Live Streaming & Screen Capture A Comprehensive OBS Analysis</u></a></li>
-<li><a href="https://some-tips.techidaily.com/2024-approved-tales-on-the-silver-screen-writing-for-cinema/"><u>2024 Approved Tales on the Silver Screen Writing for Cinema</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/boost-your-websites-relevance-and-personalization-with-cookiebot-integration/"><u>Boost Your Website's Relevance and Personalization with Cookiebot Integration</u></a></li>
-<li><a href="https://android-frp.techidaily.com/easy-guide-how-to-bypass-motorola-razr-40-ultra-frp-android-10111213-by-drfone-android/"><u>Easy Guide How To Bypass Motorola Razr 40 Ultra FRP Android 10/11/12/13</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-leap-prime-programs-for-strong-communicators/"><u>Language Leap: Prime Programs for Strong Communicators</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/leveraging-facebook-slides-a-beginners-handbook-for-visual-storytelling/"><u>Leveraging Facebook Slides A Beginner's Handbook for Visual Storytelling</u></a></li>
-<li><a href="https://win-advanced.techidaily.com/mastering-ease-of-access-customizing-windows-control-panel-with-yl-computings-essential-instructions/"><u>Mastering Ease of Access: Customizing Windows Control Panel with YL Computing's Essential Instructions</u></a></li>
-<li><a href="https://discover-excellent.techidaily.com/tecnicas-expertas-para-reorganizar-y-optimizar-sus-volumenes-de-almacenamiento-digital/"><u>Técnicas Expertas Para Reorganizar Y Optimizar Sus Volúmenes De Almacenamiento Digital</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-expert-roundup-of-platforms-for-video-intro-acquisition/"><u>[New] 2024 Approved Expert Roundup of Platforms for Video Intro Acquisition</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-cross-media-broadcasting-4-strategies-to-air-fb-livests-on-tv/"><u>[Updated] 2024 Approved Cross-Media Broadcasting 4 Strategies to Air FB Livests on TV</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-ultimate-list-of-ad-free-android-capturing-apps/"><u>[Updated] 2024 Approved Ultimate List of Ad-Free Android Capturing Apps</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-extract-and-save-fb-videos-on-pcmac-anywhere/"><u>2024 Approved Extract & Save FB Videos on PC/Mac, Anywhere</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-financial-free-editing-the-ultimate-guide-to-fcp/"><u>2024 Approved Financial-Free Editing The Ultimate Guide to FCP</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-interactive-events-recorder-yearly-edition/"><u>2024 Approved Interactive Events Recorder - Yearly Edition</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-journey-through-data-storage-saving-fb-chats-as-video-files/"><u>2024 Approved Journey Through Data Storage Saving FB Chats as Video Files</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-navigating-retro-facebook-stories-pcmobile-guide/"><u>2024 Approved Navigating Retro Facebook Stories PC/Mobile Guide</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-symphony-of-screens-adding-music-to-online-chronicles/"><u>2024 Approved Symphony of Screens Adding Music to Online Chronicles</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/chatcam-video-saver-app-for-2024/"><u>ChatCam Video Saver App for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/cut-costs-increase-impact-strategic-fb-posting/"><u>Cut Costs, Increase Impact Strategic FB Posting</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/enhancing-engagement-sound-synchronization-for-fb-video-posts/"><u>Enhancing Engagement Sound Synchronization for FB Video Posts</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-best-practices-choosing-the-top-ios-video-downloaders-on-fb/"><u>In 2024, Best Practices Choosing the Top iOS Video Downloaders on FB</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-elevate-reality-making-everyday-phones-virtual-world-tools/"><u>In 2024, Elevate Reality Making Everyday Phones Virtual World Tools</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-can-we-bypass-realme-gt-5-240w-frp-by-drfone-android/"><u>In 2024, How Can We Bypass Realme GT 5 (240W) FRP?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-tecno-pop-7-pro-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>In 2024, How to Cast Tecno Pop 7 Pro to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-top-10-global-youtube-personalities-peak-of-viewership/"><u>In 2024, Top 10 Global YouTube Personalities Peak of Viewership</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/pro-iphone-methods-for-spherical-footage/"><u>Pro iPhone Methods for Spherical Footage</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/top-voice-modification-tools-for-youtube-creators-for-2024/"><u>Top Voice Modification Tools for YouTube Creators for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Enhancing Video Aesthetics with BB and LC Overlays on Facebook"
-date: 2025-01-18T18:51:21.916Z
-updated: 2025-01-19T16:37:00.266Z
+date: 2025-02-05T17:04:40.296Z
+updated: 2025-02-07T20:39:54.010Z
 tags:
   - ai video
   - ai facebook
@@ -33,10 +33,6 @@ First let us start with the question, what is a letterbox for a Facebook video?
 
 Want to have a try? Come on!
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Get Started with Filmora
 
 A square video in a **1:1 aspect ratio** is preferred by Facebook. There are varieties of video editing apps available in the market that allows you to create a square video and add a letterbox on it. But most of them have a complicated interface and you might need to watch a lot of video tutorials to make head and tail of it. If you want to add such a letterbox for your Facebook video, Wondershare Filmora may be a good choice for you. Currently, Filmora offers two ways to add a letterbox for your square Facebook video.
@@ -53,29 +49,25 @@ This method is suitable for users whose source videos are not in square format (
 
 ![import-sample-video](https://images.wondershare.com/filmora/article-images/import-sample-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * 3\. Drag and drop the source video to the timeline, and a black letterbox will be created automatically in the preview window, cause the source file didn’t match the 1:1 ratio you set for the project
 
 ![automatic-letterbox](https://images.wondershare.com/filmora/article-images/automatic-letterbox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * 4\. Add a subtitle under **Titles** tab to the letterbox at the top and bottom and custom the texts you want.
 
 ![add-letterbox-title](https://images.wondershare.com/filmora/article-images/add-letterbox-title.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 And you can also go to the **Elements** tab, and add some creative elements such as emoji to the letterbox.
 
 ![add-emoji-elements](https://images.wondershare.com/filmora/article-images/add-emoji-elements.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * 5\. Export the square video to local computer in mp4 or other supported formats
 
@@ -85,6 +77,14 @@ And you can also go to the **Elements** tab, and add some creative elements such
 
 ![post-on-facebook](https://images.wondershare.com/filmora/article-images/post-on-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Method 2: Create a Letterbox by Adding Text Shapes
 
 This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). Let us see the steps below:
@@ -92,10 +92,6 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 * 1\. Start the project at 1:1 square or Instagram mode, and import your source video
 
 ![import-square-video](https://images.wondershare.com/filmora/article-images/import-square-video.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * 2\. Then drag and drop your source video to the timeline. No black bars will appear automatically like in Method 1
 
@@ -105,6 +101,10 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 * 4\. Select **Subtitles**, then add a subtitle style that has a black background to your video, such as Subtitle 1,2,3, etc.
 
 ![add-doll-subtitle](https://images.wondershare.com/filmora/article-images/add-doll-subtitle.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * 5\. You will see that the subtitle appears on the video in real time. Here you can adjust the width and height of the subtitle. Make it so that that black bar covers the lower end of the video completely and delete the text
 
@@ -123,7 +123,11 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 ![post-my-video](https://images.wondershare.com/filmora/article-images/post-my-video.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## To Sum up
@@ -133,10 +137,6 @@ Adding a letterbox, then designing your own texts, elements and filters will bri
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -153,20 +153,18 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-maximizing-profits-ensuring-proper-youtube-channel-monetization/"><u>[New] 2024 Approved Maximizing Profits Ensuring Proper YouTube Channel Monetization</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-reacting-when-youre-seen-in-a-video-on-fb-messenger/"><u>[New] 2024 Approved Reacting When You're Seen In a Video On FB Messenger</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-elevate-your-social-standing-with-1000-followersmth/"><u>[New] Elevate Your Social Standing with 1,000 Followers/Mth</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-unseen-pathways-to-friend-finder-excellence-for-2024/"><u>[New] Unseen Pathways to Friend Finder Excellence for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-dissecting-the-metaverse-vs-multi-meva-landscape-expert-guide-for-2024/"><u>[Updated] Dissecting the Metaverse Vs. Multi-Meva Landscape (Expert Guide) for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-explore-the-highest-rated-virtual-reality-games/"><u>[Updated] Explore the Highest-Rated Virtual Reality Games</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-facebooks-shift-to-short-videos-a-look-into-2023-trends/"><u>[Updated] Facebook's Shift to Short Videos A Look Into 2023 Trends</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-future-frameworks-exclusive-list-of-top-cameras/"><u>[Updated] Future Frameworks Exclusive List of Top Cameras</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-in-2024-prime-places-for-accessible-outstanding-vector-design-tools/"><u>[Updated] In 2024, Prime Places for Accessible, Outstanding Vector Design Tools</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-vidcapture-fb-videos-on-the-go-for-2024/"><u>[Updated] VidCapture Fb Videos on the Go for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-the-essential-techniques-for-music-layering-in-fb-media/"><u>2024 Approved The Essential Techniques for Music Layering in FB Media</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-your-vivo-v30-lite-5g-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>How to Mirror Your Vivo V30 Lite 5G Screen to PC with Chromecast | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/how-to-transition-your-facebook-vids-into-stellar-hd/"><u>How to Transition Your Facebook Vids Into Stellar HD</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-real-time-broadcasting-excellence-connecting-via-wirecast-to-facebook/"><u>In 2024, Real-Time Broadcasting Excellence Connecting via Wirecast to Facebook</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ize-traffic-essential-youtube-seo-equipment-for-2024/"><u>Maximize Traffic - Essential YouTube SEO Equipment for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-journeying-through-yesteryears-facebook-posts-on-mobilelaptop/"><u>[New] 2024 Approved Journeying Through Yesteryear's Facebook Posts on Mobile/Laptop</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-elevating-posts-how-to-trend-on-social-media-for-2024/"><u>[New] Elevating Posts How to Trend on Social Media for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-leveraging-the-power-of-visual-storytelling-in-fb-covers/"><u>[Updated] 2024 Approved Leveraging the Power of Visual Storytelling in FB Covers</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-unveiling-facebook-livestreaming-on-roku/"><u>[Updated] 2024 Approved Unveiling Facebook Livestreaming on Roku</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-finding-friends-films-and-snapshots-on-the-social-web-for-2024/"><u>[Updated] Finding Friends’ Films & Snapshots on the Social Web for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-facebooks-premier-evolution-the-five-must-know-features/"><u>[Updated] In 2024, Facebook's Premier Evolution The Five Must-Know Features</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-innovative-techniques-for-capturing-audio-on-ipad/"><u>[Updated] Innovative Techniques for Capturing Audio on iPad</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/convertir-archivos-amv-a-formatos-multiples-sin-costo-con-movavi-online-ultima-oferta-gratuita/"><u>Convertir Archivos AMV a Formatos Múltiples Sin Costo Con Movavi Online - Última Oferta Gratuita</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-a-step-by-step-guide-the-most-effective-7-artwork-to-nft-services/"><u>In 2024, A Step-by-Step Guide - The Most Effective 7 Artwork-to-NFT Services</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-samsung-galaxy-s21-fe-5g-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Apply These Techniques to Improve How to Detect Fake GPS Location On Samsung Galaxy S21 FE 5G (2023) | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/step-by-step-solutions-to-fix-broken-ethernet-connections-on-windows-10-and-7-computers/"><u>Step-by-Step Solutions to Fix Broken Ethernet Connections on Windows 10 & 7 Computers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/form-your-ideas-into-actionable-steps-idevice-screenshots-for-video-sharing/"><u>Transform Your Ideas Into Actionable Steps IDevice Screenshots for Video Sharing</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-2024-approved-top-10-alternatives-of-facetime-on-android/"><u>Updated 2024 Approved Top 10 Alternatives of FaceTime on Android</u></a></li>
 </ul></div>
 
