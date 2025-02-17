@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Cut Out Facebook Stories  Step-By-Step for PC & Phones\""
-date: 2025-02-01T16:45:45.153Z
-updated: 2025-02-07T20:25:00.673Z
+date: 2025-02-16T08:15:16.129Z
+updated: 2025-02-16T16:45:02.364Z
 tags:
   - ai video
   - ai facebook
@@ -35,10 +35,6 @@ A Facebook story will last for 24 hours. Once the 24 hours timeline is over, you
 * [Part 6: How to Delete Someone Else's Story on Your Facebook?](#part6)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 1: How to Delete A Photo or Video from Facebook Story?
 
@@ -83,7 +79,7 @@ If it is already enabled, follow these steps to delete the archived Facebook sto
 This is how you will remove the stories from Facebook archived.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to Delete My Story on Facebook Messenger on iPhone, iPad, And Android?
@@ -99,7 +95,11 @@ Facebook stories don't only appear on your Facebook home page; they also appear 
 ![delete Facebook Story from messager](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-messager.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: How to Control Who Can View Your Facebook Stories?
@@ -111,12 +111,16 @@ You can make your stories visible to your friends, customize the viewers, or kee
 ![  Facebook Story privacy option](https://images.wondershare.com/filmora/article-images/facebook-story-privacy-option.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 2:** Now, the privacy setting page will let you choose from- public, friends, and custom. You can hide your story from a few people as well. Choose the one that meets your requirement. Then, go back and share the story.
 
 ![  Facebook Story privacy  ](https://images.wondershare.com/filmora/article-images/facebook-story-privacy.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 5: How to Hide Facebook Story from Specific People?
 
@@ -125,10 +129,6 @@ Facebook has made sharing stories easy because of the multiple features it offer
 **Step 1:** Launch your Facebook account, and then upload something on your story and set the privacy to Friends. After that, you need to click on the Hide Story From option.
 
 ![  Facebook Story hide from specific person  ](https://images.wondershare.com/filmora/article-images/hide-facebook-story-from-specific-people.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 2:** You will be shown the complete list of people you are connected with on Facebook. Select the people you don't want to share your stories with, and then click on done.
 
@@ -147,7 +147,7 @@ Facebook stories are a great way to let people know what you are up to. It's sho
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -165,19 +165,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-dells-vision-for-the-future-with-an-insight-into-p2715q-monitor-specs/"><u>[New] 2024 Approved Dell's Vision for the Future with an Insight Into P2715Q Monitor Specs</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-2024-approved-enhancing-photo-coexistence-on-devices/"><u>[New] 2024 Approved Enhancing Photo Coexistence on Devices</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-grandview-alliance-how-to-settle-on-a-cms/"><u>[Updated] In 2024, Grandview Alliance How to Settle on a CMS</u></a></li>
-<li><a href="https://techtrends.techidaily.com/10-effektive-strategien-um-den-fehler-dvd-spieldesign-fehlt-zu-beheben/"><u>10 Effektive Strategien, Um Den Fehler 'DVD Spieldesign Fehlt' Zu Beheben</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-explore-the-world-of-fb-live-broadcasting/"><u>2024 Approved Explore the World of FB Live Broadcasting</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-the-quintessential-quotient-facebooks-top-5-adjustments/"><u>2024 Approved The Quintessential Quotient Facebook's Top 5 Adjustments</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/3-ways-to-track-honor-x50-gt-without-them-knowing-drfone-by-drfone-virtual-android/"><u>3 Ways to Track Honor X50 GT without Them Knowing | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/facebooks-new-era-breaking-down-2023s-sneak-peek-into-short-video-trends/"><u>Facebook's New Era Breaking Down 2023'S Sneak Peek Into Short Video Trends</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/facebooks-ultimate-add-ons-for-the-tech-enthusiast/"><u>Facebook's Ultimate Add-Ons for the Tech Enthusiast</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-screen-mirroring-apple-iphone-7-plus-to-tv-or-pc-drfone-by-drfone-ios/"><u>How Screen Mirroring Apple iPhone 7 Plus to TV or PC? | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-facebook-video-posting-dilemmnas-which-way/"><u>In 2024, Facebook Video Posting Dilemmnas Which Way?</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/innovating-human-interface-a-guide-to-hand-perception/"><u>Innovating Human Interface A Guide to Hand Perception</u></a></li>
-<li><a href="https://article-files.techidaily.com/ranking-the-ultimate-vr-fun-on-mobile-devices-for-2024/"><u>Ranking the Ultimate VR Fun on Mobile Devices for 2024</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/tips-and-solutions-restoring-functionality-to-your-turtle-beach-elite-atlas-headsets-mic/"><u>Tips and Solutions: Restoring Functionality to Your Turtle Beach Elite Atlas Headset's Mic</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-kik-id-visualization-width-x-height-aspect-ratio-duration/"><u>[New] 2024 Approved Kik ID Visualization Width X Height, Aspect Ratio, Duration</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-boosting-buzz-and-views-masterful-strategies-for-youtube-success-for-2024/"><u>[New] Boosting Buzz & Views Masterful Strategies for YouTube Success for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-easy-steps-for-achieving-facebooks-prestigious-blue-badge/"><u>[New] Easy Steps for Achieving Facebook's Prestigious Blue Badge</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-tailoring-image-sizes-in-photos-for-ios-devices/"><u>[New] Tailoring Image Sizes in Photos for iOS Devices</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-crafting-a-compelling-profile-visual-experience-for-2024/"><u>[Updated] Crafting a Compelling Profile Visual Experience for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-facebooks-best-eight-free-link-collector-tools/"><u>[Updated] In 2024, Facebook's Best Eight FREE Link Collector Tools</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-the-art-of-sharing-online-videos-from-youtube-to-facebook/"><u>[Updated] In 2024, The Art of Sharing Online Videos From YouTube to Facebook</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-quickshot-maker-for-videoplusimage-sync/"><u>[Updated] QuickShot Maker for Video+Image Sync</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-rising-above-internet-naysayers-and-detractors/"><u>[Updated] Rising Above Internet Naysayers and Detractors</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2023-top-6-facebook-lite-video-downloaders/"><u>2023 | Top 6 Facebook Lite Video Downloaders</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-navigating-youtube-partnerships-successfully/"><u>2024 Approved Navigating YouTube Partnerships Successfully</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/best-xiaomi-civi-3-disney-100th-anniversary-edition-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>Best Xiaomi Civi 3 Disney 100th Anniversary Edition Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/converting-avian-videos-avi-into-graphic-images-gif-using-filmora/"><u>Converting Avian Videos (AVI) Into Graphic Images (GIF) Using Filmora</u></a></li>
+<li><a href="https://windows11.techidaily.com/correct-keyboard-fixes-for-windows-11s-unresponsive-f-keys/"><u>Correct: Keyboard Fixes for Windows 11'S Unresponsive F Keys</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/efficient-mp4-conversion-software-facebook-targeted/"><u>Efficient MP4 Conversion Software (Facebook Targeted)</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-securely-save-fb-high-definition/"><u>In 2024, Securely Save FB High Definition</u></a></li>
+<li><a href="https://fox-info.techidaily.com/mastering-timelapse-using-gopro-hero5-black-for-2024/"><u>Mastering Timelapse Using GoPro Hero5 Black for 2024</u></a></li>
 </ul></div>
 

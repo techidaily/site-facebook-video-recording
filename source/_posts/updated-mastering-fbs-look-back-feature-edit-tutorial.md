@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Mastering FB's Look Back Feature  Edit Tutorial\""
-date: 2025-02-04T19:12:19.342Z
-updated: 2025-02-07T16:01:09.659Z
+date: 2025-02-09T18:00:40.681Z
+updated: 2025-02-16T21:57:07.730Z
 tags:
   - ai video
   - ai facebook
@@ -49,7 +49,7 @@ thumbnail: https://thmb.techidaily.com/ab11097b735383eb1301c6c7953b6d3e90027241d
 * Burn Look Back video to a DVD as a special gift.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Easily Edit Facebook Look Back Video with Filmora
@@ -61,7 +61,7 @@ thumbnail: https://thmb.techidaily.com/ab11097b735383eb1301c6c7953b6d3e90027241d
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/video-editor-interface.jpg "edit look back video")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 2. Add texts to the Look Back video
@@ -69,10 +69,6 @@ thumbnail: https://thmb.techidaily.com/ab11097b735383eb1301c6c7953b6d3e90027241d
  To share the unforgettable moments in Look Back video, adding texts is a good idea. To do this, switch to Text tab and you'll see various texts templates on the left panel. Choose your favorite one and place it on the Timeline. Then the text thumbnail with a leading letter "T" will appear on the timeline. Double click it to type your texts in the box and select the font, color, animation, etc. Hit "Return" to confirm the settings and go back to the primary window.
 
 ![edit look back video](https://images.wondershare.com/topic/video-editing/add-titles.jpg "edit look back video")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### 3. Edit the audio of Look Back video
 
@@ -82,6 +78,10 @@ thumbnail: https://thmb.techidaily.com/ab11097b735383eb1301c6c7953b6d3e90027241d
 
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/audio-detach.jpg "edit look back video")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 4. Add more effects to your Look Back video
 
  Wondershare Filmora (originally Wondershare Video Editor) can help you make your video wonderful and special by applying various elements. To apply some advanced effects, right click the video and select the "Power Tool" option from the pops up menu, or hit the "Power Tool" button above the timeline to enter the Power Tool window. Here you are provided tilt shift, mosaic, face off and jump cut at beats.
@@ -89,10 +89,14 @@ thumbnail: https://thmb.techidaily.com/ab11097b735383eb1301c6c7953b6d3e90027241d
 ![add ](https://images.wondershare.com/images/multimedia/video-editor/tilt-shift-1.jpg "add ")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 5. Save or share the edited Look Back video
 
@@ -106,10 +110,6 @@ thumbnail: https://thmb.techidaily.com/ab11097b735383eb1301c6c7953b6d3e90027241d
 ![edit facebook look back video](https://images.wondershare.com/filmora/article-images/export-output.jpg "edit facebook look back video")
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -126,18 +126,17 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-maximizing-your-fb-page-visibility-a-step-by-step-guide/"><u>[New] 2024 Approved Maximizing Your FB Page Visibility A Step-by-Step Guide</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-pro-video-creators-guide-to-ideal-laptops/"><u>[New] 2024 Approved Pro Video Creators' Guide to Ideal Laptops</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-lead-the-pack-identifying-the-best-facebook-timetabling-software/"><u>[New] Lead the Pack Identifying the Best Facebook Timetabling Software</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-chinas-bargain-bin-of-virtual-reality-gear/"><u>[Updated] In 2024, China's Bargain Bin of Virtual Reality Gear</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-from-unknown-to-recognized-boosting-facebook-profile-visibility/"><u>[Updated] In 2024, From Unknown to Recognized Boosting Facebook Profile Visibility</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/a-new-contender-emerges-the-ultimate-guide-to-the-chromecast-with-google-tv-vs-firetv/"><u>A New Contender Emerges: The Ultimate Guide to the Chromecast with Google TV Vs. FireTV</u></a></li>
-<li><a href="https://article-helps.techidaily.com/best-photo-and-video-display-apps-from-ix-to-ios12-for-2024/"><u>Best Photo & Video Display Apps From IX to IOS12 for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/essential-steps-in-making-impactful-fb-cover-videos-for-2024/"><u>Essential Steps in Making Impactful FB Cover Videos for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/essential-tips-for-font-addition-in-after-effects-for-2024/"><u>Essential Tips for Font Addition in After Effects for 2024</u></a></li>
-<li><a href="https://win-able.techidaily.com/getting-the-msi-mystic-light-to-work-a-step-by-step-guide-for-windows-users/"><u>Getting the MSI Mystic Light to Work: A Step-by-Step Guide for Windows Users</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/interactive-photography-sharing-immersive-360-photos-via-mobile-devices/"><u>Interactive Photography Sharing Immersive 360 Photos via Mobile Devices</u></a></li>
-<li><a href="https://win-guides.techidaily.com/maximizing-your-usbs-storage-space-on-windows-10-and-11-a-step-by-step-guide/"><u>Maximizing Your USB's Storage Space on Windows 10 & 11 - A Step-by-Step Guide</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/ultimate-guide-discover-the-top-80-steamy-xmas-gamers-laptop-offers-on-zdnet/"><u>Ultimate Guide: Discover the Top 80 Steamy Xmas Gamers' Laptop Offers on ZDNET</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-harnessing-digital-artistry-top-6-nft-makers-reviewed-for-2024/"><u>[New] Harnessing Digital Artistry - Top 6 NFT Makers Reviewed for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-organize-and-download-fb-links-optimized-tools-for-23-for-2024/"><u>[New] Organize and Download FB Links Optimized Tools for '23 for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-transform-your-facebook-presence-with-these-11-video-marketing-tips-for-2024/"><u>[Updated] Transform Your Facebook Presence with These 11 Video Marketing Tips for 2024</u></a></li>
+<li><a href="https://network-issues.techidaily.com/exclusive-driver-update-for-windows-pcs-with-nvidia-210/"><u>Exclusive Driver Update for Windows PCs with Nvidia 210</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-no-more-ghosting-on-social-reinstate-disappearing-facebook-videos-with-12-tips/"><u>In 2024, No More Ghosting on Social Reinstate Disappearing Facebook Videos With 12 Tips</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-the-ultimate-how-to-subtitling-your-igtv-videos/"><u>In 2024, The Ultimate How-To Subtitling Your IGTV Videos</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/interacting-with-gpt-3-nonresponsive-inquiry-guide/"><u>Interacting With GPT-3: Nonresponsive Inquiry Guide</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/overview-of-the-best-oneplus-ace-2-screen-mirroring-app-drfone-by-drfone-android/"><u>Overview of the Best OnePlus Ace 2 Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/resolve-compile-error-in-hidden-module-in-excel-2000-causes-and-solutions-by-stellar-guide/"><u>Resolve Compile Error in Hidden Module in Excel 2000 Causes & Solutions</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/resolving-partial-muting-in-facebook-video-chats-updated-guide/"><u>Resolving Partial Muting in Facebook Video Chats (Updated Guide)</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-economical-choice-in-depth-review-of-the-tp-link-archer-c5email-protectedtp-link/"><u>The Economical Choice: In-Depth Review of the TP-Link Archer C5([email Protected](tp-Link)</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ling-the-secrets-to-supervised-simultaneous-streams/"><u>Unveiling the Secrets to Supervised Simultaneous Streams</u></a></li>
 </ul></div>
 
