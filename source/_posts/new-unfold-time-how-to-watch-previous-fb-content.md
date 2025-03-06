@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Unfold Time  How To Watch Previous FB Content\""
-date: 2025-02-14T08:45:04.092Z
-updated: 2025-02-16T21:38:54.911Z
+date: 2025-03-04T02:19:16.815Z
+updated: 2025-03-06T03:07:31.089Z
 tags:
   - ai video
   - ai facebook
@@ -37,10 +37,6 @@ Here is the step by step guide to see old stories on Facebook:
 * [Part 4: Can you See Friends' Old Stories on Facebook?](#part4)
 * [Part 5: Bonus Tip - How to Create Facebook Videos with Ease?](#part5)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: What is Facebook Story and how is it Work？
 
 Facebook stories are a short generated collection of photos and videos that the audience can view up to two times and stay for 24 hours on your feed. Facebook stories feature allows users to click fun shots with various filters and fun lenses.
@@ -56,10 +52,6 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 **Step 2:** Then, on the Profile Page, select the “More” dropdown button.
 
 ![facebook old stories more](https://images.wondershare.com/filmora/article-images/2021/facebook-old-stories-more.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 3:** Now just tap on the “Story Archive” option from the list.
 
@@ -97,10 +89,6 @@ The only chance is that if your friend has uploaded those stories on highlights 
 
 ![see friends old fb story](https://images.wondershare.com/filmora/article-images/2021/see-friends-old-fb-story.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 An old highlighted story shared by your friend would appear on your friend’s profile below the Friends section and above create post option as Story Highlights.
 
 So for the above discussed all ways the only must thing is to setting archive on which would allow you to re-watch stories again and solve your doubt of how to view old stories on Facebook.
@@ -112,10 +100,6 @@ If you think that to create amazing videos for Facebook, you need to be a profes
 To attract more audience and gain more likes, comments all you need is a smart [video editor](https://tools.techidaily.com/wondershare/filmora/download/) like a Wondershare Filmora. It is one of the most effective video editing tools that help you edit your elements quickly and easily upload over Facebook.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Features:**
 
@@ -159,10 +143,6 @@ Happy editing!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -178,21 +158,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-your-guide-to-facebook-video-angle-selection/"><u>[New] 2024 Approved Your Guide to Facebook Video Angle Selection</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/updated-communication-mastery-for-impactful-interviews/"><u>[Updated] Communication Mastery For Impactful Interviews</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-how-to-earn-facebooks-trusted-prestigious-symbol/"><u>[Updated] In 2024, How to Earn Facebook's Trusted, Prestigious Symbol</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-integrating-zoom-into-your-inbox-experience/"><u>[Updated] Integrating Zoom Into Your Inbox Experience</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-reverse-image-retrieval-in-social-media-fb-explained-for-2024/"><u>[Updated] Reverse-Image Retrieval in Social Media (FB) Explained for 2024</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/updated-understanding-your-twitter-archives-potential-for-2024/"><u>[Updated] Understanding Your Twitter Archive's Potential for 2024</u></a></li>
-<li><a href="https://win-dash.techidaily.com/ensure-optimal-performance-download-and-set-up-amd-radeon-r9-drivers-for-windows-computers/"><u>Ensure Optimal Performance: Download and Set Up AMD Radeon R9 Drivers for Windows Computers</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-boost-your-fb-campaigns-the-critical-3-part-writing-strategy/"><u>In 2024, Boost Your FB Campaigns The Critical 3-Part Writing Strategy</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-fb-video-placement-which-way-wins/"><u>In 2024, FB Video Placement - Which Way Wins?</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-crafting-compelling-lower-thirds-fcpx-essentials-for-2024/"><u>New Crafting Compelling Lower Thirds FCPX Essentials for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/pcandroid-tutorial-successful-facebook-video-sharing-for-2024/"><u>PC/Android Tutorial Successful Facebook Video Sharing for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/pinnacle-visuals-for-the-modern-broadcaster-for-2024/"><u>Pinnacle Visuals for the Modern Broadcaster for 2024</u></a></li>
-<li><a href="https://win-workspace.techidaily.com/step-by-step-guide-generating-a-windows-server-201recovery-media/"><u>Step-by-Step Guide: Generating a Windows Server 201^_Recovery Media</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/step-by-step-solution-for-resolving-windows-error-message-1067/"><u>Step-by-Step Solution for Resolving Windows Error Message 1067</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/the-ultimate-flowchart-streaming-success-on-facebook-iphonesipads/"><u>The Ultimate Flowchart Streaming Success on Facebook, iPhones/iPads</u></a></li>
-<li><a href="https://driver-error.techidaily.com/1721098927238-troubleshooting-qualcomm-atheros-bluetooth-driver-problems-in-windows-10-solved/"><u>Troubleshooting Qualcomm Atheros Bluetooth Driver Problems in Windows 10 - Solved!</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-golden-nuggets-revealing-the-hottest-reddit-topics-10/"><u>[New] Golden Nuggets Revealing the Hottest Reddit Topics (10)</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-innovative-fb-video-plays-for-the-modern-user/"><u>[New] In 2024, Innovative FB Video Plays for the Modern User</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-optimized-broadcast-sharing-live-streams-from-twitch/"><u>[Updated] 2024 Approved Optimized Broadcast Sharing Live Streams From Twitch</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-guiding-users-on-completely-audible-fb-videos/"><u>[Updated] In 2024, Guiding Users on Completely Audible FB Videos</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-explore-djis-aesthetics-first-20-no-cost-drone-vfx-trials/"><u>2024 Approved Explore DJI's Aesthetics – First 20 No-Cost Drone VFX Trials</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-honor-magic-5-lite-location-on-twitter-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change your Honor Magic 5 Lite Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-quit-quickly-leave-facebook-lives-on-pc-and-pads/"><u>In 2024, Quit Quickly Leave Facebook Lives on PC & Pads</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-the-ipogo-get-you-banned-and-how-to-solve-it-on-gionee-f3-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Will the iPogo Get You Banned and How to Solve It On Gionee F3 Pro | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/maximize-your-iphone-storage-with-easy-de-cluttering-tips-techtut/"><u>Maximize Your iPhone Storage with Easy De-Cluttering Tips | TechTut</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/overcoming-windows-error-30005-create-failure-with-code-32/"><u>Overcoming Windows Error 30005: Create Failure with Code 32</u></a></li>
+<li><a href="https://review-topics.techidaily.com/redmi-note-12t-pro-unlock-tool-remove-android-phone-password-pin-pattern-and-fingerprint-by-drfone-android-unlock-android-unlock/"><u>Redmi Note 12T Pro Unlock Tool - Remove android phone password, PIN, Pattern and fingerprint</u></a></li>
 </ul></div>
 

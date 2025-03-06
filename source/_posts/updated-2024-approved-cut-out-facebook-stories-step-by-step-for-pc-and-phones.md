@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Cut Out Facebook Stories  Step-By-Step for PC & Phones\""
-date: 2025-02-16T08:15:16.129Z
-updated: 2025-02-16T16:45:02.364Z
+date: 2025-02-28T20:45:00.743Z
+updated: 2025-03-05T21:59:36.162Z
 tags:
   - ai video
   - ai facebook
@@ -78,10 +78,6 @@ If it is already enabled, follow these steps to delete the archived Facebook sto
 
 This is how you will remove the stories from Facebook archived.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3: How to Delete My Story on Facebook Messenger on iPhone, iPad, And Android?
 
 Facebook stories don't only appear on your Facebook home page; they also appear on your Facebook Messenger. And you can delete your stories by visiting Facebook Messenger. Let's find out how.
@@ -94,14 +90,6 @@ Facebook stories don't only appear on your Facebook home page; they also appear 
 
 ![delete Facebook Story from messager](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-messager.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 4: How to Control Who Can View Your Facebook Stories?
 
 You can make your stories visible to your friends, customize the viewers, or keep them public. Facebook allows you to control how and with whom you want to share your stories with.
@@ -110,17 +98,9 @@ You can make your stories visible to your friends, customize the viewers, or kee
 
 ![  Facebook Story privacy option](https://images.wondershare.com/filmora/article-images/facebook-story-privacy-option.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 2:** Now, the privacy setting page will let you choose from- public, friends, and custom. You can hide your story from a few people as well. Choose the one that meets your requirement. Then, go back and share the story.
 
 ![  Facebook Story privacy  ](https://images.wondershare.com/filmora/article-images/facebook-story-privacy.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 5: How to Hide Facebook Story from Specific People?
 
@@ -146,10 +126,6 @@ Facebook stories are a great way to let people know what you are up to. It's sho
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -165,22 +141,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-kik-id-visualization-width-x-height-aspect-ratio-duration/"><u>[New] 2024 Approved Kik ID Visualization Width X Height, Aspect Ratio, Duration</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-boosting-buzz-and-views-masterful-strategies-for-youtube-success-for-2024/"><u>[New] Boosting Buzz & Views Masterful Strategies for YouTube Success for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-easy-steps-for-achieving-facebooks-prestigious-blue-badge/"><u>[New] Easy Steps for Achieving Facebook's Prestigious Blue Badge</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-tailoring-image-sizes-in-photos-for-ios-devices/"><u>[New] Tailoring Image Sizes in Photos for iOS Devices</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-crafting-a-compelling-profile-visual-experience-for-2024/"><u>[Updated] Crafting a Compelling Profile Visual Experience for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-facebooks-best-eight-free-link-collector-tools/"><u>[Updated] In 2024, Facebook's Best Eight FREE Link Collector Tools</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-the-art-of-sharing-online-videos-from-youtube-to-facebook/"><u>[Updated] In 2024, The Art of Sharing Online Videos From YouTube to Facebook</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-quickshot-maker-for-videoplusimage-sync/"><u>[Updated] QuickShot Maker for Video+Image Sync</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-rising-above-internet-naysayers-and-detractors/"><u>[Updated] Rising Above Internet Naysayers and Detractors</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2023-top-6-facebook-lite-video-downloaders/"><u>2023 | Top 6 Facebook Lite Video Downloaders</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-navigating-youtube-partnerships-successfully/"><u>2024 Approved Navigating YouTube Partnerships Successfully</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/best-xiaomi-civi-3-disney-100th-anniversary-edition-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>Best Xiaomi Civi 3 Disney 100th Anniversary Edition Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/converting-avian-videos-avi-into-graphic-images-gif-using-filmora/"><u>Converting Avian Videos (AVI) Into Graphic Images (GIF) Using Filmora</u></a></li>
-<li><a href="https://windows11.techidaily.com/correct-keyboard-fixes-for-windows-11s-unresponsive-f-keys/"><u>Correct: Keyboard Fixes for Windows 11'S Unresponsive F Keys</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/efficient-mp4-conversion-software-facebook-targeted/"><u>Efficient MP4 Conversion Software (Facebook Targeted)</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-securely-save-fb-high-definition/"><u>In 2024, Securely Save FB High Definition</u></a></li>
-<li><a href="https://fox-info.techidaily.com/mastering-timelapse-using-gopro-hero5-black-for-2024/"><u>Mastering Timelapse Using GoPro Hero5 Black for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-a-guide-to-profitable-animated-fb-advertising-techniques/"><u>[New] A Guide to Profitable, Animated FB Advertising Techniques</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-no-more-ads-convert-fb-videos-to-1080p720p-mp4-online-for-free/"><u>[New] In 2024, No More Ads? Convert FB Videos to 1080P/720p MP4 Online for Free</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-make-every-moment-count-with-these-15-engaging-activities-while-listening-to-talk-shows/"><u>[New] Make Every Moment Count with These 15 Engaging Activities While Listening to Talk Shows</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-navigate-the-world-of-games-top-12-pc-clickers-revealed-for-2024/"><u>[New] Navigate the World of Games Top 12 PC Clickers Revealed for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-techniques-for-effortless-facebook-video-posting-pcandroid-for-2024/"><u>[New] Techniques for Effortless Facebook Video Posting, PC/Android for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-beat-infused-videos-a-step-by-step-guide-to-adding-tunes-to-fb/"><u>[Updated] 2024 Approved Beat-Infused Videos A Step-by-Step Guide to Adding Tunes to FB</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-essential-8-platforms-for-private-screenings/"><u>[Updated] 2024 Approved Essential 8 Platforms for Private Screenings</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-master-the-art-of-sharing-gaming-moments-xboxfb-livestream/"><u>[Updated] Master the Art of Sharing Gaming Moments Xbox/FB Livestream</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-navigating-the-insider-features-of-zoom-software-for-windows-11/"><u>[Updated] Navigating the Insider Features of Zoom Software for Windows 11</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/10-best-music-video-hits-on-social-media-platform-for-2024/"><u>10 Best Music Video Hits on Social Media Platform for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/effective-disk-space-management-using-windows-autodelete-functionality/"><u>Effective Disk Space Management Using Windows' AutoDelete Functionality</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/facebook-cover-video-widthheight-guide/"><u>Facebook Cover Video Width/Height Guide</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-bypass-apple-iphone-15-plus-passcode-easily-video-inside-by-drfone-ios/"><u>How to Bypass Apple iPhone 15 Plus Passcode Easily Video Inside</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-track-imei-number-of-xiaomi-redmi-note-12-proplus-5g-through-google-earth-by-drfone-android/"><u>How To Track IMEI Number Of Xiaomi Redmi Note 12 Pro+ 5G Through Google Earth?</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-infinix-hot-40i-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, Top 6 Apps/Services to Trace Any Infinix Hot 40i Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-unveiling-creativity-making-striking-slideshows-for-fb-friends/"><u>In 2024, Unveiling Creativity Making Striking SlideShows for FB Friends</u></a></li>
+<li><a href="https://some-tips.techidaily.com/m1-vs-m2-ipad-pro-showdown-how-to-select-your-perfect-tablet-for-work-or-play-digitalwise-blog/"><u>M1 Vs. M2 iPad Pro Showdown: How to Select Your Perfect Tablet for Work or Play | DigitalWise Blog</u></a></li>
+<li><a href="https://fox-links.techidaily.com/synergy-between-humans-and-computers-through-gestures-for-2024/"><u>Synergy Between Humans & Computers Through Gestures for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1099466-9781135884642-the-therapists-notebook-for-integrating-spirituality-in-counseling-i/"><u>The Therapist's Notebook for Integrating Spirituality in Counseling I | Free Book</u></a></li>
 </ul></div>
 

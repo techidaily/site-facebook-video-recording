@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Navigating Through the Top 5 New Facebook Shifts"
-date: 2024-07-20T15:23:42.778Z
-updated: 2024-07-21T15:23:42.778Z
+date: 2025-03-02T17:59:58.040Z
+updated: 2025-03-06T00:20:40.631Z
 tags:
   - ai video
   - ai facebook
@@ -47,9 +47,6 @@ thumbnail: https://thmb.techidaily.com/a333bfbef34affdca1048ed2699696db5230242a1
 
  One more interesting thing to know about this recent update to Facebook is that it now contains so many interactive filters that users can easily apply to their photos to impress the audience. If you are a biased Snapchat user then this feature can help you to move to Facebook app soon.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 3\. Facebook Live
 
  Earlier, Facebook users were utilizing Facebook Live API to live stream on Facebook from their smartphone or tablet. But now it is possible to start broadcasting directly from your Laptop or Personal desktop computer using Facebook Live Feature. Further, Admins can also tag others as Live Contributors during streaming process on pages. You can also add comments to live broadcasts which were not possible earlier. So it is right time to explore the new Facebook Live feature on your device, you will easily find it on top of the news feeds.
@@ -69,9 +66,6 @@ thumbnail: https://thmb.techidaily.com/a333bfbef34affdca1048ed2699696db5230242a1
 
  Last but not the least, Group video chat is the best solution to all crazy messenger users who wants to stay connected with all their friends on the go. The amazing news is that you can add about 50 users to one video group chat. Further, it will also help you to put fun filters to keep your chats interactive and full of laughter. In case if you find those Facebook chat heads annoying on your device screen then you can now easily remove them from profile settings. In simple words, Facebook has lots of things wrapped inside its platform for you all; get ready to have the real fun.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -88,10 +82,6 @@ Follow @Shanoon Cox
 
  The article below will provide you detailed information about five new Facebook features that were added recently in 2018\. Stay here on this page.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
 ## 1\. [Facebook 360](https://tools.techidaily.com/wondershare/filmora/download/)
 
  Facebook 360 was launched on 8th March 2017\. This app is powered by Oculus and supported in Samsung Gear VR. With this latest technology, users can share breathtaking 360 degree videos as well as stills on Facebook. Right after its launch date, this feature has been accessed by millions of users and till now one million 360 videos and 25 million 360 photos have been posted on Facebook.
@@ -125,75 +115,6 @@ DbSchema database designer for all databases, schema design in the team, schema 
 
 [How to make better Facebook video ads](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
-## 5\. Group Videos
-
- Last but not the least, Group video chat is the best solution to all crazy messenger users who wants to stay connected with all their friends on the go. The amazing news is that you can add about 50 users to one video group chat. Further, it will also help you to put fun filters to keep your chats interactive and full of laughter. In case if you find those Facebook chat heads annoying on your device screen then you can now easily remove them from profile settings. In simple words, Facebook has lots of things wrapped inside its platform for you all; get ready to have the real fun.
-
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
- There is no doubt to say that Facebook is one of the most interactive social media applications. And the great news is that developers keep on updating it time to time with new set of features. Some of you may not be aware about the changes that were made to Facebook platform but they are actually very interesting and useful. No matter whether you are using Facebook for your personal needs or it is an important business promotion platform for you; in both cases you will be benefited with new features of Facebook. So, why not to stay tuned to these latest trends and make most out of them to engage your audience on social media.
-
- The article below will provide you detailed information about five new Facebook features that were added recently in 2018\. Stay here on this page.
-
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
-## 1\. [Facebook 360](https://tools.techidaily.com/wondershare/filmora/download/)
-
- Facebook 360 was launched on 8th March 2017\. This app is powered by Oculus and supported in Samsung Gear VR. With this latest technology, users can share breathtaking 360 degree videos as well as stills on Facebook. Right after its launch date, this feature has been accessed by millions of users and till now one million 360 videos and 25 million 360 photos have been posted on Facebook.
-
- This type of videos can be shared and liked on Facebook same as other regular videos. Users can easily find the trending content on Facebook, they can save favourite media files, share videos and photos of followers or manage their favourite collection on a separate tab.
-
- If you want to download this recently updated Facebook 360 app for your Gear VR then simply open Oculus app on your device and initiate search for Facebook 360 app. You can also visit official site of Oculus to get started.
-
- You may also like: [How to Create and Post 360 Photo to Facebook](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## 2\. Messenger Day – The Snapchat Way
-
- This app was also launched in the month of March and surprisingly it appeared like biggest competitor against Instagram Stories and Snapchat. However, few features like stickers, filters and posts disappearing within 24 hours etc are also same as that of other competing platforms.
-
- You can find Messenger Day feature directly in already existing Facebook Messenger and it will help you to check people that are active for real time chats. Reviews about Messenger Day reveal that this tool boosts thought sharing on social media platform. Users can easily share about what they are doing or what are their plans ahead. For example if you have having coffee at your favourite restaurant and want to tell your friends about it then you simply need to capture a selfie, put a sticker on it and simple transfer it to your friend.
-
- One more interesting thing to know about this recent update to Facebook is that it now contains so many interactive filters that users can easily apply to their photos to impress the audience. If you are a biased Snapchat user then this feature can help you to move to Facebook app soon.
-
-## 3\. Facebook Live
-
- Earlier, Facebook users were utilizing Facebook Live API to live stream on Facebook from their smartphone or tablet. But now it is possible to start broadcasting directly from your Laptop or Personal desktop computer using Facebook Live Feature. Further, Admins can also tag others as Live Contributors during streaming process on pages. You can also add comments to live broadcasts which were not possible earlier. So it is right time to explore the new Facebook Live feature on your device, you will easily find it on top of the news feeds.
-
- Related: [How to invite people to create a split screen live streaming](https://tools.techidaily.com/wondershare/filmora/download/)
-
-## 4\. Advertising Capabilities
-
- If you are a publisher or use Facebook for business promotions then here is great news for you all. This recent update of Facebook has revolutionized your advertising capabilities and now your brand can avail maximum exposure within minimum time. Here are few interesting things that you can do now:
-
-* Publishers can now use Audience Networks to upload their ads as well as bids to Facebook so that their targeted audience can stay tuned to all latest brand updates.
-* It is now possible to merge ad breaks of about 25 seconds into live videos. That’s really impressive.
-
-[How to make better Facebook video ads](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 5\. Group Videos
 
  Last but not the least, Group video chat is the best solution to all crazy messenger users who wants to stay connected with all their friends on the go. The amazing news is that you can add about 50 users to one video group chat. Further, it will also help you to put fun filters to keep your chats interactive and full of laughter. In case if you find those Facebook chat heads annoying on your device screen then you can now easily remove them from profile settings. In simple words, Facebook has lots of things wrapped inside its platform for you all; get ready to have the real fun.
@@ -224,9 +145,6 @@ Follow @Shanoon Cox
 
  You may also like: [How to Create and Post 360 Photo to Facebook](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 2\. Messenger Day – The Snapchat Way
 
  This app was also launched in the month of March and surprisingly it appeared like biggest competitor against Instagram Stories and Snapchat. However, few features like stickers, filters and posts disappearing within 24 hours etc are also same as that of other competing platforms.
@@ -250,16 +168,63 @@ Follow @Shanoon Cox
 
 [How to make better Facebook video ads](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
 ## 5\. Group Videos
 
  Last but not the least, Group video chat is the best solution to all crazy messenger users who wants to stay connected with all their friends on the go. The amazing news is that you can add about 50 users to one video group chat. Further, it will also help you to put fun filters to keep your chats interactive and full of laughter. In case if you find those Facebook chat heads annoying on your device screen then you can now easily remove them from profile settings. In simple words, Facebook has lots of things wrapped inside its platform for you all; get ready to have the real fun.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+ There is no doubt to say that Facebook is one of the most interactive social media applications. And the great news is that developers keep on updating it time to time with new set of features. Some of you may not be aware about the changes that were made to Facebook platform but they are actually very interesting and useful. No matter whether you are using Facebook for your personal needs or it is an important business promotion platform for you; in both cases you will be benefited with new features of Facebook. So, why not to stay tuned to these latest trends and make most out of them to engage your audience on social media.
+
+ The article below will provide you detailed information about five new Facebook features that were added recently in 2018\. Stay here on this page.
+
+## 1\. [Facebook 360](https://tools.techidaily.com/wondershare/filmora/download/)
+
+ Facebook 360 was launched on 8th March 2017\. This app is powered by Oculus and supported in Samsung Gear VR. With this latest technology, users can share breathtaking 360 degree videos as well as stills on Facebook. Right after its launch date, this feature has been accessed by millions of users and till now one million 360 videos and 25 million 360 photos have been posted on Facebook.
+
+ This type of videos can be shared and liked on Facebook same as other regular videos. Users can easily find the trending content on Facebook, they can save favourite media files, share videos and photos of followers or manage their favourite collection on a separate tab.
+
+ If you want to download this recently updated Facebook 360 app for your Gear VR then simply open Oculus app on your device and initiate search for Facebook 360 app. You can also visit official site of Oculus to get started.
+
+ You may also like: [How to Create and Post 360 Photo to Facebook](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## 2\. Messenger Day – The Snapchat Way
+
+ This app was also launched in the month of March and surprisingly it appeared like biggest competitor against Instagram Stories and Snapchat. However, few features like stickers, filters and posts disappearing within 24 hours etc are also same as that of other competing platforms.
+
+ You can find Messenger Day feature directly in already existing Facebook Messenger and it will help you to check people that are active for real time chats. Reviews about Messenger Day reveal that this tool boosts thought sharing on social media platform. Users can easily share about what they are doing or what are their plans ahead. For example if you have having coffee at your favourite restaurant and want to tell your friends about it then you simply need to capture a selfie, put a sticker on it and simple transfer it to your friend.
+
+ One more interesting thing to know about this recent update to Facebook is that it now contains so many interactive filters that users can easily apply to their photos to impress the audience. If you are a biased Snapchat user then this feature can help you to move to Facebook app soon.
+
+## 3\. Facebook Live
+
+ Earlier, Facebook users were utilizing Facebook Live API to live stream on Facebook from their smartphone or tablet. But now it is possible to start broadcasting directly from your Laptop or Personal desktop computer using Facebook Live Feature. Further, Admins can also tag others as Live Contributors during streaming process on pages. You can also add comments to live broadcasts which were not possible earlier. So it is right time to explore the new Facebook Live feature on your device, you will easily find it on top of the news feeds.
+
+ Related: [How to invite people to create a split screen live streaming](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## 4\. Advertising Capabilities
+
+ If you are a publisher or use Facebook for business promotions then here is great news for you all. This recent update of Facebook has revolutionized your advertising capabilities and now your brand can avail maximum exposure within minimum time. Here are few interesting things that you can do now:
+
+* Publishers can now use Audience Networks to upload their ads as well as bids to Facebook so that their targeted audience can stay tuned to all latest brand updates.
+* It is now possible to merge ad breaks of about 25 seconds into live videos. That’s really impressive.
+
+[How to make better Facebook video ads](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## 5\. Group Videos
+
+ Last but not the least, Group video chat is the best solution to all crazy messenger users who wants to stay connected with all their friends on the go. The amazing news is that you can add about 50 users to one video group chat. Further, it will also help you to put fun filters to keep your chats interactive and full of laughter. In case if you find those Facebook chat heads annoying on your device screen then you can now easily remove them from profile settings. In simple words, Facebook has lots of things wrapped inside its platform for you all; get ready to have the real fun.
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -279,8 +244,6 @@ Follow @Shanoon Cox
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -289,7 +252,26 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-7-essential-secrets-for-delectable-cooking-clips-for-2024/"><u>[New] 7 Essential Secrets for Delectable Cooking Clips for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-top-strategies-for-integrating-facebook-live-into-your-site/"><u>[New] In 2024, Top Strategies for Integrating Facebook Live Into Your Site</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-mastering-video-boost-tips-for-enhancement-22/"><u>[New] Mastering Video Boost Tips for Enhancement (2.2)</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-navigate-the-social-media-maze-understanding-insights/"><u>[New] Navigate the Social Media Maze Understanding Insights</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-quick-clips-the-facebook-trend-for-2024/"><u>[New] Quick Clips The Facebook Trend for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-boost-your-brand-with-masterful-looped-videos-on-instagram/"><u>[Updated] 2024 Approved Boost Your Brand with Masterful Looped Videos on Instagram</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-how-to-spot-fake-followers-on-facebook-for-marketers/"><u>[Updated] 2024 Approved How to Spot Fake Followers on Facebook for Marketers</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-legal-fb-music-streaming-hub/"><u>[Updated] 2024 Approved Legal FB Music Streaming Hub</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-social-media-to-mp3-converter/"><u>[Updated] 2024 Approved Social Media to Mp3 Converter</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-collect-audio-files-from-fb-newsfeeds/"><u>[Updated] In 2024, Collect Audio Files From FB Newsfeeds</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-rank-the-best-tools-top-8-apps-to-increase-likes-on-fb-for-2024/"><u>[Updated] Rank the Best Tools Top 8 Apps to Increase Likes on FB for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-the-drone-enthusiasts-guide-to-vibration-reduction-and-image-quality-for-2024/"><u>[Updated] The Drone Enthusiast's Guide to Vibration Reduction and Image Quality for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/crafting-powerful-hashtags-for-fb-brand-identity-for-2024/"><u>Crafting Powerful Hashtags for FB Brand Identity for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/filmora-video-avi-to-image-gif-a-step-by-step-guide/"><u>Filmora Video (AVI) to Image (GIF) A Step by Step Guide</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-call-logs-from-spark-20-by-fonelab-android-recover-call-logs/"><u>How to rescue lost call logs from Spark 20</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-mastery-techniques-for-embedding-social-media-live-videos/"><u>In 2024, Mastery Techniques for Embedding Social Media Live Videos</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-pattern-locks-are-unsafe-secure-your-samsung-galaxy-f34-5g-phone-now-with-these-tips-by-drfone-android/"><u>In 2024, Pattern Locks Are Unsafe Secure Your Samsung Galaxy F34 5G Phone Now with These Tips</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-tecno-phantom-v-fold-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock Tecno Phantom V Fold Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/1714937844614-new-in-2024-how-to-add-audio-fade-in-effect/"><u>New In 2024, How to Add Audio Fade In Effect?</u></a></li>
+</ul></div>
 

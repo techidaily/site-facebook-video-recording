@@ -1,7 +1,7 @@
 ---
 title: "How to Fix Silent Mic Capture: A Tutorial for OBS Users"
-date: 2024-10-28T17:23:55.855Z
-updated: 2024-11-02T16:53:21.876Z
+date: 2025-02-28T19:00:44.699Z
+updated: 2025-03-06T00:09:57.861Z
 tags:
   - win11
   - win10
@@ -63,46 +63,13 @@ Follow these steps:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/img_5b9642d9827b4.png)
 
-<!-- affiliate ads begin -->
-<span id="1328679">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  2) Expand the category “**Sound, video and game controllers** “. Under this category, right-click on the audio device name. A context menu will pop up, then select **Disable** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/02/img_589bd515db2c0.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  3) Restart your PC. Then a Window will pop up to ask you to solve the sound problem. Just follow the on-screen instructions. Then the sound issue should resolve.
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **Method 2: Update the audio driver**
 
@@ -124,13 +91,6 @@ Follow these steps:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/image-406.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Hopefully you can fix your laptop no sound issues with the steps above. If you have any questions, please feel free to leave your comment below.
 
 * [Windows](https://tools.techidaily.com/drivereasy/download/)
@@ -150,22 +110,20 @@ Follow these steps:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-horizontal-vs-vertical-best-for-fb-videos/"><u>[New] 2024 Approved Horizontal Vs. Vertical Best for FB Videos?</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-transform-your-tech-for-successful-social-media-livestreams/"><u>[New] In 2024, Transform Your Tech for Successful Social Media Livestreams</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-syncing-songs-with-your-facebook-chronicles-for-2024/"><u>[New] Syncing Songs with Your Facebook Chronicles for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-tapping-into-the-power-of-visual-communication-on-facebook/"><u>[New] Tapping Into the Power of Visual Communication on Facebook</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-the-ultimate-guide-to-watching-fb-live-on-roku-for-2024/"><u>[New] The Ultimate Guide to Watching FB Live on Roku for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-from-cameras-to-obs-a-step-by-step-mac-and-pc-broadcast-setup/"><u>[Updated] From Cameras to OBS A Step-by-Step Mac & PC Broadcast Setup</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-mastering-smooth-playback-on-instagram-videos-for-2024/"><u>[Updated] Mastering Smooth Playback on Instagram Videos for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-the-professionals-guide-to-smoothly-inserting-online-videos-into-slides-for-2024/"><u>[Updated] The Professional's Guide to Smoothly Inserting Online Videos Into Slides for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-the-ultimate-guide-to-webinar-archiving/"><u>[Updated] The Ultimate Guide to Webinar Archiving</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/fb-live-success-strategies/"><u>FB Live Success Strategies</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-frp-from-motorola-edge-40-neo-by-drfone-android/"><u>In 2024, How to Bypass FRP from Motorola Edge 40 Neo?</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-lock-apps-on-nokia-c02-to-protect-your-individual-information-by-drfone-android/"><u>In 2024, How to Lock Apps on Nokia C02 to Protect Your Individual Information</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-maximizing-your-earnings-how-to-monetize-facebook-videos-successfully/"><u>In 2024, Maximizing Your Earnings How to Monetize Facebook Videos Successfully</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/revolutionary-tools-elevating-vr-games/"><u>Revolutionary Tools Elevating VR Games</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/the-investors-guide-to-choosing-yt-channels/"><u>The Investor's Guide to Choosing YT Channels</u></a></li>
-<li><a href="https://win-net.techidaily.com/ultimate-guide-how-to-duplicate-a-mushkin-ssd-for-free-using-windows-pcs/"><u>Ultimate Guide: How to Duplicate a Mushkin SSD for Free Using Windows PCs</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-capabilities-in-depth-review-of-the-dji-phantom-4-pro-v2/"><u>Unveiling the Capabilities: In-Depth Review of the DJI Phantom 4 Pro V2</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-demystifying-the-purpose-what-is-a-blue-image-on-facebook/"><u>[New] 2024 Approved Demystifying the Purpose What Is a Blue Image on Facebook?</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-harnessing-the-hype-how-to-hike-your-youtube-horde/"><u>[New] 2024 Approved Harnessing the Hype How to Hike Your Youtube Horde</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-boosting-engagement-profits-with-animated-ad-success-tactics-on-fb/"><u>[New] In 2024, Boosting Engagement, Profits with Animated Ad Success Tactics on FB</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-game-on-android-your-essential-list-of-15-top-simulators/"><u>[New] In 2024, Game on Android Your Essential List of 15 Top Simulators</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-expert-video-grabbing-extras-fb-and-firefox-edition/"><u>[Updated] 2024 Approved Expert Video Grabbing Extras FB & Firefox Edition</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-empowering-audiences-the-playlist-sharing-approach/"><u>[Updated] In 2024, Empowering Audiences The Playlist Sharing Approach</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-free-fb-tracks-at-your-command/"><u>2024 Approved Free FB Tracks at Your Command</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-top-value-360-cameras-delivering-cost-effective-coverage/"><u>2024 Approved Top Value 360° Cameras Delivering Cost-Effective Coverage</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-jailbreak-icloud-locked-iphone-8-plus-by-drfone-ios/"><u>In 2024, How to jailbreak iCloud locked iPhone 8 Plus</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-strategies-for-correcting-quietened-video-sounds-on-fb/"><u>In 2024, Strategies for Correcting Quietened Video Sounds on Fb</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/minecraft-opengl-problems-demystified-how-to-restore-smooth-gameplay/"><u>Minecraft OpenGL Problems Demystified: How to Restore Smooth Gameplay</u></a></li>
+<li><a href="https://games-able.techidaily.com/on-the-move-gamers-checklist-nine-key-items/"><u>On-the-Move Gamer's Checklist: Nine Key Items</u></a></li>
+<li><a href="https://discover-deluxe.techidaily.com/step-by-step-guide-to-retrieving-data-from-faulty-raid-arrays/"><u>Step-by-Step Guide to Retrieving Data From Faulty RAID Arrays</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/unveiling-facebooks-secrets-30-insider-tricks-for-growth/"><u>Unveiling Facebook's Secrets 30 Insider Tricks for Growth</u></a></li>
+<li><a href="https://win-studio.techidaily.com/yl-software-solutions-for-tracking-pc-component-temperatures/"><u>YL Software Solutions for Tracking PC Component Temperatures</u></a></li>
 </ul></div>
 

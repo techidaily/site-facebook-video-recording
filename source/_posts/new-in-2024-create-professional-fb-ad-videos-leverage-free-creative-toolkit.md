@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Create Professional FB Ad Videos  Leverage Free Creative Toolkit\""
-date: 2025-02-15T07:28:03.999Z
-updated: 2025-02-17T02:46:05.625Z
+date: 2025-03-04T20:40:47.924Z
+updated: 2025-03-05T18:01:12.031Z
 tags:
   - ai video
   - ai facebook
@@ -94,10 +94,6 @@ Once you’ve begun to create your vid, you’ll find a button under the **Media
 
 ![add Facebook ads image assets ](https://images.wondershare.com/filmora/article-images/add-image-assets.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 When adding images to media, remember to choose images that are the same size and orientation. This will make your life easier and your ad look more appealing!
 
 Also, it would be helpful to check the [image specs](https://www.facebook.com/business/ads-guide/image) and [video specs](https://www.facebook.com/business/ads-guide/video) before uploading.
@@ -111,10 +107,6 @@ If you want to create a video, the process is a little different, but not much m
 If you choose use [video ad template](https://tools.techidaily.com/wondershare/filmora/download/) to create a video, you will see lot of different options for you to choose from. There are square and vertical templates, you don’t need to worry about it too much because you can take the Square template and the Video Creation Kit will make a Vertical video as well.
 
 ![video creation kit  templates ](https://images.wondershare.com/filmora/article-images/video-creation-kit-available-template.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The template names are quite specific to what each one does, so you should have no problem choosing what would suit you:
 
@@ -142,17 +134,9 @@ You can also add your own logo, and if you’re feeling inspired or want to conv
 
 ![video creation kit  stickers ](https://images.wondershare.com/filmora/article-images/video-creation-kit-stickers.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 You can also **add text** on this screen and adjust the text color, font and positon based on your needs.
 
 ![add text on video creation kit   ](https://images.wondershare.com/filmora/article-images/add-text-on-video-creation-kit.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Once you click on **Use Video**, and it will start creating it for you in the background.
 
@@ -193,10 +177,6 @@ As we said before, Facebook has billions daily users, and here are just a few re
 
 No matter what your business, video is a tool you should be taking advantage of, and with stats like these, Facebook is a great place to start getting your video ads out there!
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### What Could You Use the Creation Kit For?
 
 Whatever the purpose of your video, you’ll find the Facebook Video Creation Kit to be quite useful for you. You can create your ad using video footage, or simply add some photos for a slideshow effect.
@@ -213,10 +193,6 @@ Video has become the go-to tool for advertising, and using the Facebook Video Cr
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -232,18 +208,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-examining-copyright-implications-of-media-sharing-via-social-networks/"><u>[New] In 2024, Examining Copyright Implications of Media Sharing via Social Networks</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-evaluating-screen-recording-software-obs-vs-bandicam/"><u>[Updated] 2024 Approved Evaluating Screen Recording Software OBS vs Bandicam</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-free-videographers-essential-openers/"><u>[Updated] 2024 Approved Free Videographer's Essential Openers</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-revamp-chrome-browsing-sharper-social-media-videos/"><u>[Updated] 2024 Approved Revamp Chrome Browsing Sharper Social Media Videos</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-eight-powerful-devices-for-prospective-filmora-alternatives-for-2024/"><u>[Updated] Eight Powerful Devices for Prospective Filmora Alternatives for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-seeking-access-to-all-mutually-shared-media-in-chats-for-2024/"><u>[Updated] Seeking Access to All Mutually-Shared Media in Chats for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-from-newbie-to-zoom-whiz-in-no-time/"><u>2024 Approved From Newbie to Zoom Whiz in No Time</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/fb-content-downloaded-masterful-mp4-edition/"><u>FB Content Downloaded Masterful MP4 Edition</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-messages-files-from-poco-c55-by-fonelab-android-recover-messages/"><u>How To Restore Missing Messages Files from Poco C55</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-explore-diverse-backdrops-for-tiktok-videos/"><u>In 2024, Explore Diverse Backdrops for TikTok Videos</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-tips-and-tricks-for-setting-up-your-google-pixel-8-phone-pattern-lock-by-drfone-android/"><u>In 2024, Tips and Tricks for Setting Up your Google Pixel 8 Phone Pattern Lock</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-uncovering-old-social-media-narratives-on-laptops-and-mobile-devices/"><u>In 2024, Uncovering Old Social Media Narratives on Laptops and Mobile Devices</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/top-10-best-zero-cost-email-services/"><u>Top 10 Best Zero-Cost Email Services</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-maximize-marketing-magic-ranking-of-8-facebook-friendly-apps-for-2024/"><u>[New] Maximize Marketing Magic Ranking of 8 Facebook-Friendly Apps for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-overcoming-youtube-buffering-a-step-by-step-guide-for-2024/"><u>[New] Overcoming YouTube Buffering A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-elevate-your-facebook-profile-with-these-11-superior-tools/"><u>[Updated] 2024 Approved Elevate Your Facebook Profile with These 11 Superior Tools</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-peek-into-past-posts-panel/"><u>[Updated] In 2024, Peek Into Past Posts Panel</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-game-sound-transformation-the-no-cost-pathway-in-free-fire-for-2024/"><u>[Updated] In-Game Sound Transformation The No-Cost Pathway in Free Fire for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-2023-discover-the-best-no-cost-fb-visual-creation-platforms/"><u>2024 Approved 2023 Discover the Best, No-Cost FB Visual Creation Platforms</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/2024-approved-ultimate-guide-to-cool-and-captivating-disco-tags/"><u>2024 Approved Ultimate Guide to Cool and Captivating Disco Tags</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-vidcapture-fb-videos-on-the-go/"><u>2024 Approved VidCapture Fb Videos on the Go</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/choosing-between-gopro-max-and-hero-11-top-cameras-compared/"><u>Choosing Between GoPro Max and Hero 11 Top Cameras Compared</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/conquer-hxtsrexe-glitches-masterful-fixes-for-windows-11-users/"><u>Conquer HxTsr.exe Glitches - Masterful Fixes for Windows 11 Users</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/in-2024-how-to-enable-disable-and-change-safari-location-on-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Enable, Disable, and Change Safari Location on Apple iPhone 13 | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-seamless-iphone-recording-creating-fb-shareable-reels/"><u>In 2024, Seamless iPhone Recording Creating FB Shareable Reels</u></a></li>
+<li><a href="https://howto.techidaily.com/oneplus-ace-2-camera-not-working-unexpected-error-fix-it-now-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>OnePlus Ace 2 Camera Not Working Unexpected Error? Fix It Now | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/step-by-step-guide-to-fixing-windows-10s-broken-brightness-control-mechanism/"><u>Step-by-Step Guide to Fixing Windows 10'S Broken Brightness Control Mechanism</u></a></li>
+<li><a href="https://solve-news.techidaily.com/step-by-step-guide-capturing-quality-gaming-footage-with-windows-10-for-youtube/"><u>Step-by-Step Guide: Capturing Quality Gaming Footage with Windows 10 for YouTube</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/transformative-strategies-in-creating-engaging-fb-content-for-2024/"><u>Transformative Strategies in Creating Engaging FB Content for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/troubleshooting-the-missing-launchdll-error-on-your-pc/"><u>Troubleshooting the Missing 'Launch.dll' Error on Your PC</u></a></li>
 </ul></div>
 

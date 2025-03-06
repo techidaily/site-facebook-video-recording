@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Enhancing Video Aesthetics with BB and LC Overlays on Facebook"
-date: 2025-02-10T22:09:33.167Z
-updated: 2025-02-16T17:58:29.690Z
+date: 2025-03-03T17:54:59.500Z
+updated: 2025-03-05T21:35:38.647Z
 tags:
   - ai video
   - ai facebook
@@ -37,10 +37,6 @@ Want to have a try? Come on!
 
 A square video in a **1:1 aspect ratio** is preferred by Facebook. There are varieties of video editing apps available in the market that allows you to create a square video and add a letterbox on it. But most of them have a complicated interface and you might need to watch a lot of video tutorials to make head and tail of it. If you want to add such a letterbox for your Facebook video, Wondershare Filmora may be a good choice for you. Currently, Filmora offers two ways to add a letterbox for your square Facebook video.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Method 1: Make a Letterbox by Project Ratio Mismatch
 
 This method is suitable for users whose source videos are not in square format (1:1). It is a simple method in which the aspect ratios of the source and project videos are compared. In this method, a letterbox will be created automatically when there is a mismatch between the aspect ratio of the original video and the project you are creating using the Filmora application. Let us see how this can be done:
@@ -48,10 +44,6 @@ This method is suitable for users whose source videos are not in square format (
 * 1\. Open Filmora, start the project at **1:1** square or Instagram mode
 
 ![start-filmora9](https://images.wondershare.com/filmora/article-images/start-filmora9.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * 2\. Go to **File**\-**Import Media** and import the source file to the Media library (let’s say it’s 1920\*1080 at 16:9)
 
@@ -73,17 +65,9 @@ And you can also go to the **Elements** tab, and add some creative elements such
 
 ![filmora9-export-panel](https://images.wondershare.com/filmora/article-images/filmora9-export-panel.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * 6\. Upload the exported square video to Facebook, and show how it looks like on Facebook.
 
 ![post-on-facebook](https://images.wondershare.com/filmora/article-images/post-on-facebook.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Method 2: Create a Letterbox by Adding Text Shapes
 
@@ -118,23 +102,11 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 
 ![post-my-video](https://images.wondershare.com/filmora/article-images/post-my-video.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## To Sum up
 
 Adding a letterbox, then designing your own texts, elements and filters will bring great creativity to your video on Facebook. Creativity will connect people and you will create your own magic! Filmora now offers 2 effective ways to add a letterbox to any videos and a variety of attractive filters, overlays, and elements. This is why we recommend you all to try and use Filmora for all your editing needs. Here you go!
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
@@ -153,19 +125,21 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-2024-approved-innovation-at-hand-creating-3d-textures-with-photo/"><u>[New] 2024 Approved Innovation at Hand Creating 3D Textures with PHOTO</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-instagram-illuminati-the-top-25-visionaries-you-need-to-see/"><u>[New] 2024 Approved Instagram Illuminati The Top 25 Visionaries You Need to See</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-sync-up-with-successful-facebook-feeds-for-2024/"><u>[New] Sync Up with Successful Facebook Feeds for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-crafting-facebook-slideshow-an-instagram-style-storytelling-guide/"><u>[Updated] 2024 Approved Crafting Facebook SlideShow An Instagram-Style Storytelling Guide</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-seamless-gopro-broadcasts-tips-for-facebook-and-periscope-channeling/"><u>[Updated] Seamless GoPro Broadcasts Tips for Facebook & Periscope Channeling</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-streamlining-video-transmission-from-facebook-to-whatsapp-for-2024/"><u>[Updated] Streamlining Video Transmission From Facebook to WhatsApp for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-eden-echoes-best-rural-role-playing-realms/"><u>2024 Approved Eden Echoes Best Rural Role-Playing Realms</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-maximizing-impact-crafting-free-ad-videos-for-youtube/"><u>2024 Approved Maximizing Impact Crafting Free Ad Videos for YouTube</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-nubia-red-magic-9-pro-pin-codepattern-lockpassword-by-drfone-android/"><u>How to Unlock Nubia Red Magic 9 Pro PIN Code/Pattern Lock/Password</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-best-practice-video-placement-on-facebook-vh/"><u>In 2024, Best Practice Video Placement on Facebook (V/H)</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/mastering-photo-editing-advanced-3d-lut-techniques-in-ps-for-2024/"><u>Mastering Photo Editing Advanced 3D LUT Techniques in PS for 2024</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/new-in-2024-essential-iphone-audio-recorders-discover-the-top-10/"><u>New In 2024, Essential iPhone Audio Recorders Discover the Top 10</u></a></li>
-<li><a href="https://common-error.techidaily.com/troubleshooting-guide-how-to-fix-the-non-functioning-aoc-monitor-compatible-with-windows-10/"><u>Troubleshooting Guide: How to Fix the Non-Functioning AOC Monitor Compatible with Windows 10</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/unveiling-excellent-video-creatives/"><u>Unveiling Excellent Video Creatives</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-facebook-fans-access-more-from-your-twitch-channel/"><u>[New] 2024 Approved Facebook Fans Access More From Your Twitch Channel</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-optimize-your-online-store-top-15-tools-for-social-media-insight-and-sales-analysis/"><u>[New] 2024 Approved Optimize Your Online Store Top 15 Tools for Social Media Insight and Sales Analysis</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-can-i-peruse-friends-shared-videos-and-pics-via-messenger-for-2024/"><u>[New] Can I Peruse Friends' Shared Videos & Pics via Messenger for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-effortless-guide-to-exporting-and-archiving-snapshot-files/"><u>[New] In 2024, Effortless Guide to Exporting and Archiving SnapShot Files</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-scan-for-collective-shared-content-on-messenger-for-2024/"><u>[New] Scan for Collective Shared Content on Messenger for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-tips-and-tricks-perfecting-webcam-recordings-on-macbook/"><u>[Updated] 2024 Approved Tips & Tricks Perfecting Webcam Recordings on MacBook</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-instagram-video-dimensions-and-story-size-the-ultimate-guide-for-perfect-posts/"><u>[Updated] Instagram Video Dimensions & Story Size [The Ultimate Guide for Perfect Posts]</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-enhancing-fb-video-content-with-streamlined-captioning-tactics/"><u>2024 Approved Enhancing FB Video Content with Streamlined Captioning Tactics</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-mastering-documentary-script-artistry/"><u>2024 Approved Mastering Documentary Script Artistry</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-realme-gt-3-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Realme GT 3 | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/al-film-and-camera-choices-for-youtube-vloggers/"><u>Optimal Film & Camera Choices for YouTube Vloggers</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/permissions-for-posting-videos-on-fb-for-2024/"><u>Permissions for Posting Videos on FB for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-next-chapter-in-language-models-when-will-gpt-5-appear/"><u>The Next Chapter in Language Models: When Will GPT-5 Appear?</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/unlocking-fb-content-windows-plus-mac-methods/"><u>Unlocking FB Content Windows + Mac Methods</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/unlocking-iphone-12-pro-max-lock-screen-3-foolproof-methods-that-actually-work-drfone-by-drfone-ios/"><u>Unlocking iPhone 12 Pro Max Lock Screen 3 Foolproof Methods that Actually Work | Dr.fone</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-in-2024-the-ultimate-selection-8-pinnacle-soundscapes-from-cinema/"><u>Updated In 2024, The Ultimate Selection 8 Pinnacle Soundscapes From Cinema</u></a></li>
 </ul></div>
 

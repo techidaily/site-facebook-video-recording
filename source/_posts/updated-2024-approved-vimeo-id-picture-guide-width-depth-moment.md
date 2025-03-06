@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Vimeo ID Picture Guide  Width, Depth, Moment\""
-date: 2024-12-23T17:39:09.857Z
-updated: 2024-12-28T17:56:00.344Z
+date: 2025-02-26T18:23:01.100Z
+updated: 2025-03-06T04:13:24.017Z
 tags:
   - ai video
   - ai facebook
@@ -57,10 +57,6 @@ Today, Facebook is such a giant hub for social interaction. There is a kind of s
 
 ![cover video used for](https://images.wondershare.com/filmora/article-images/2021/cover-video-used-for.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **●** They grab the attention
 
 **●** Best way to represent your business, product, or service
@@ -95,25 +91,13 @@ Before starting any work, it will always be wise to do some planning. As you are
 
 Most recommended Video formats for Facebook are .mov, .mp4 as per Facebook video requirements. Other formats are also usable.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. Video Size Specification
 
 Video cover Facebook size should be within 1.75 GB. Keep it medium-sized to be accessible by all users with average browsing speed.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\. Video Duration
 
 The Facebook Video duration optimally should lie between 20 to 90 seconds duration. That will get continually played in the loop.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 4\. Video Cropping
 
@@ -207,10 +191,6 @@ Before starting any work, it will always be wise to do some planning. As you are
 
 ![facebook cover video specs](https://images.wondershare.com/filmora/article-images/2021/facebook-cover-video-specs.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. Video Format
 
 Most recommended Video formats for Facebook are .mov, .mp4 as per Facebook video requirements. Other formats are also usable.
@@ -234,10 +214,6 @@ The minimum Video resolution for Facebook Cover Video is 820X312 px, or it can b
 Facebook Cover Video Aspect RatioThe required Facebook Cover Video Aspect Ratio is 16:9.
 
 To adjust or make changes in the aspect ratio of your video, you can take the help of Wondershare Filmora Video Editor. That will assist you in modifying the Video Cover Facebook size aspect ratio and help you do various video editing-related tasks.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 4 Make a Video Fit My Facebook Cover
 
@@ -331,10 +307,6 @@ Video cover Facebook size should be within 1.75 GB. Keep it medium-sized to be a
 
 The Facebook Video duration optimally should lie between 20 to 90 seconds duration. That will get continually played in the loop.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 4\. Video Cropping
 
 Make sure, while uploading the video, must take care of the center area of the video. So that critical content does not get phased out while dragging or cropping it.
@@ -382,10 +354,6 @@ However, before going into depth, understand the proper Facebook Page Cover Vide
 03 [Size, Format, and Time for Facebook Cover Video](#Part 3)
 
 04 [Make a Video Fit My Facebook Cover](#Part 4)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 1 What is Facebook Cover Video?
 
@@ -435,17 +403,9 @@ Before starting any work, it will always be wise to do some planning. As you are
 
 Most recommended Video formats for Facebook are .mov, .mp4 as per Facebook video requirements. Other formats are also usable.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. Video Size Specification
 
 Video cover Facebook size should be within 1.75 GB. Keep it medium-sized to be accessible by all users with average browsing speed.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3\. Video Duration
 
@@ -502,18 +462,20 @@ That's it. Your Facebook Cover Size Video is ready to attract users, potential c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-integrating-gopro-adventures-with-popular-social-media-channels/"><u>[New] In 2024, Integrating GoPro Adventures with Popular Social Media Channels</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-perfecting-your-photos-utilizing-psxs-erase-feature/"><u>[New] Perfecting Your Photos Utilizing PSX's Erase Feature</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-quit-quickly-leave-facebook-lives-on-pc-and-pads/"><u>[New] Quit Quickly Leave Facebook Lives on PC & Pads</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-social-media-savvy-top-101-bio-tips-and-techniques-for-facebookers/"><u>[Updated] 2024 Approved Social Media Savvy Top 101 Bio Tips & Techniques for Facebookers</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-shine-up-your-android-videos-with-these-tips/"><u>[Updated] Shine Up Your Android Videos with These Tips</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-tips-and-tricks-for-editing-your-way-to-greatness-in-facebook-reels/"><u>[Updated] Tips and Tricks for Editing Your Way to Greatness in Facebook Reels</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/audio-first-video-second-comparing-podcast-vs-youtube-for-2024/"><u>Audio First, Video Second? Comparing Podcast vs YouTube for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/crack-the-code-detailed-steps-for-extracting-messenger-media/"><u>Crack the Code Detailed Steps for Extracting Messenger Media</u></a></li>
-<li><a href="https://solve-help.techidaily.com/immediate-guide-how-to-remove-drm-from-e-books-today/"><u>Immediate Guide: How to Remove DRM From E-Books Today!</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-the-top-10-apple-iphone-11-pro-max-emualtors-for-windows-mac-and-android-drfone-by-drfone-ios/"><u>In 2024, The Top 10 Apple iPhone 11 Pro Max Emualtors for Windows, Mac and Android | Dr.fone</u></a></li>
-<li><a href="https://some-tips.techidaily.com/iphone-16-gains-enhanced-image-recognition-features-similar-to-google-lens-tech-news-by-zdnet/"><u>IPhone 16 Gains Enhanced Image Recognition Features Similar to Google Lens - Tech News by ZDNet</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/ipogo-will-be-the-new-ispoofer-on-honor-play-40c-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Honor Play 40C? | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/the-beginners-guide-to-joining-facebook-for-2024/"><u>The Beginner's Guide to Joining Facebook for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-fixing-video-transmission-issues-on-facebook-chat-for-iosandroid/"><u>[New] 2024 Approved Fixing Video Transmission Issues on Facebook Chat for iOS/Android</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-the-ultimate-guide-to-selecting-a-premier-fb-cover-photo-designer/"><u>[New] In 2024, The Ultimate Guide to Selecting a Premier FB Cover Photo Designer</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-invisible-pathways-advanced-techniques-for-chat-file-extraction/"><u>[New] Invisible Pathways Advanced Techniques for Chat File Extraction</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-live-feed-perfection-top-free-screen-capture-apps-reviewed/"><u>[New] Live Feed Perfection Top Free Screen Capture Apps Reviewed</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-pro-editors-manual-tackling-gopro-distortion/"><u>[New] Pro Editor's Manual Tackling GoPro Distortion</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-from-basics-to-brilliance-the-fb-cover-video-journey/"><u>[Updated] In 2024, From Basics to Brilliance The FB Cover Video Journey</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-simplified-guide-youtube-and-facebook-integration/"><u>2024 Approved Simplified Guide YouTube and Facebook Integration</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/mkvwmv/"><u>全自動MKV/WMV形式のフリーウェブベース変換サービス - モバヴァイ・コンバート</u></a></li>
+<li><a href="https://fox-http.techidaily.com/from-raw-renders-to-rich-realities-grading-in-post-production/"><u>From Raw Renders to Rich Realities Grading in Post-Production</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/how-to-add-videos-in-instagram-story-for-2024/"><u>How to Add Videos in Instagram Story for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-key-tips-for-sourcing-elite-filmmakers/"><u>In 2024, Key Tips for Sourcing Elite Filmmakers</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-pinterest-pin-square-advice/"><u>In 2024, Pinterest Pin Square Advice</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-prime-windows-10-photo-display/"><u>In 2024, Prime Windows 10 Photo Display</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138576113-9781449774431-speak-your-healing-from-the-homosexual-deception/"><u>Speak Your Healing from the Homosexual Deception | Free Book</u></a></li>
+<li><a href="https://change-location.techidaily.com/the-best-ispoofer-alternative-to-try-on-samsung-galaxy-a14-5g-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Samsung Galaxy A14 5G | Dr.fone</u></a></li>
 </ul></div>
 

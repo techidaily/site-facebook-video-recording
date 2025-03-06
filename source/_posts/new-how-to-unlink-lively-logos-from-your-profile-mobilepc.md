@@ -1,7 +1,7 @@
 ---
 title: "[New] How to Unlink Lively Logos From Your Profile (Mobile/PC)"
-date: 2025-02-14T02:55:09.639Z
-updated: 2025-02-17T09:07:28.029Z
+date: 2025-03-01T21:53:46.379Z
+updated: 2025-03-05T16:06:22.522Z
 tags:
   - ai video
   - ai facebook
@@ -56,19 +56,11 @@ Let's begin with the mobile Facebook application:
 
 ![Facebook Story 3 dots](https://images.wondershare.com/filmora/article-images/facebook-story-three-dots.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3: There will be a Delete Photo option. You need to select that.**
 
 ![delete Facebook Story from desktop](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-desktop.jpg)
 
 **Step 4:** Finally, click on the Delete option again, and you are done. This Facebook story is removed.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: How to Delete A Story from Facebook Story Archive?
 
@@ -79,10 +71,6 @@ If it is already enabled, follow these steps to delete the archived Facebook sto
 **Step 1:** Visit your Facebook account and click on your profile. On your profile, you will see three dots. Please click on the three dots. Once done, you will see a list of options; please click on the archive option.
 
 ![delete Facebook Story from desktop](https://images.wondershare.com/filmora/article-images/facebook-story-archive.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 2**: Now, select the Story Archive option that you see on the top. This will show all the archived stories. Next, choose a story that you want to remove permanently. The story will appear. Click on the three dots, and then click on the delete option.
 
@@ -114,14 +102,6 @@ You can make your stories visible to your friends, customize the viewers, or kee
 
 ![  Facebook Story privacy  ](https://images.wondershare.com/filmora/article-images/facebook-story-privacy.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 5: How to Hide Facebook Story from Specific People?
 
 Facebook has made sharing stories easy because of the multiple features it offers. Apart from controlling the story, you can even choose to hide the story from specific people. To do that, here's what you need to do.
@@ -139,10 +119,6 @@ If you don't want to see someone else’s story, then you can mute their stories
 Visit the Stories section, and then tap on a story of a person that you don't want to see. There will be three dots on the top right, select it and then click on the Mute option, and the specific person's stories will be muted.
 
 ![ delete other's Facebook Story  ](https://images.wondershare.com/filmora/article-images/delete-people-facebook-story.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Conclusion**
 
@@ -165,22 +141,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-compliance-with-copyright-law-when-sharing-media-through-fb/"><u>[New] 2024 Approved Compliance with Copyright Law when Sharing Media Through FB</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-unlock-free-moving-text-in-your-motion-captures/"><u>[New] 2024 Approved Unlock Free Moving Text in Your Motion Captures</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-premium-ff-downloader-suite-for-efficient-fb-media-grabs-for-2024/"><u>[New] Premium FF Downloader Suite for Efficient FB Media Grabs for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-strategies-for-harvesting-fb-status-video-archives/"><u>[New] Strategies for Harvesting FB Status Video Archives</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-optimize-call-transcription-4-proven-tips-for-fb-video-calls/"><u>[Updated] 2024 Approved Optimize Call Transcription 4 Proven Tips for FB Video Calls</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-behind-the-scenes-with-top-influencers-insights-into-their-fb-stories/"><u>[Updated] In 2024, Behind the Scenes with Top Influencers – Insights Into Their FB Stories</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-playing-fb-videos-on-your-apple-device/"><u>[Updated] Playing FB Videos on Your Apple Device</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-recording-facebook-video-calls-4-methods-for-2024/"><u>[Updated] Recording Facebook Video Calls [4 Methods] for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-the-smart-way-to-store-video-meetings-on-devices-for-2024/"><u>[Updated] The Smart Way to Store Video Meetings on Devices for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-five-premier-extensions-to-hoard-fb-videos/"><u>2024 Approved Five Premier Extensions to Hoard FB Videos</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-pursuing-perfection-in-lengthy-iphone-photography/"><u>In 2024, Pursuing Perfection in Lengthy iPhone Photography</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-unraveling-the-mystery-of-online-video-sharing/"><u>In 2024, Unraveling the Mystery of Online Video Sharing</u></a></li>
-<li><a href="https://review-topics.techidaily.com/quick-fixes-to-repair-microsoft-excel-2023-content-related-error-by-stellar-guide/"><u>Quick Fixes to Repair Microsoft Excel 2023 Content related error</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/quick-guide-macbook-pro-screen-recording-basics/"><u>Quick Guide MacBook Pro Screen Recording Basics</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/revolutionizing-data-analysis-in-excel-with-chatgpt/"><u>Revolutionizing Data Analysis in Excel with ChatGPT</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/stay-updated-in-digital-innovations-through-toms-platform/"><u>Stay Updated in Digital Innovations Through Tom's Platform</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/the-social-media-gurus-guide-to-exceptional-facebook-broadcasts/"><u>The Social Media Guru's Guide to Exceptional Facebook Broadcasts</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-the-ultimate-guide-shifting-your-profile-picture-on-global-platforms/"><u>[New] 2024 Approved The Ultimate Guide Shifting Your Profile Picture on Global Platforms</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-accessing-hidden-social-engagement-in-video-streams/"><u>[New] Accessing Hidden Social Engagement in Video Streams</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-mastering-content-capture-5-must-have-social-apps/"><u>[New] In 2024, Mastering Content Capture 5 Must-Have Social Apps</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-optimize-your-online-store-top-15-tools-for-social-media-insight-and-sales-analysis-for-2024/"><u>[New] Optimize Your Online Store Top 15 Tools for Social Media Insight and Sales Analysis for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-transform-your-memories-into-engaging-facebook-slides-for-2024/"><u>[New] Transform Your Memories Into Engaging Facebook Slides for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-maximizing-profile-visibility-in-snapchat-spotlights/"><u>[Updated] 2024 Approved Maximizing Profile Visibility in Snapchat Spotlights</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-how-can-you-view-all-shared-videos-and-photos-on-messenger/"><u>[Updated] In 2024, How Can You View All Shared Videos And Photos on Messenger?</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-social-media-sensation-top-eight-videos/"><u>[Updated] In 2024, Social Media Sensation Top Eight Videos</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-top-choice-for-fb-vids-mp4-download-toolkit/"><u>[Updated] In 2024, Top Choice for FB Vids – MP4 Download Toolkit</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-interrupt-free-live-streaming-your-2023-solution-to-facebooks-glitches-for-2024/"><u>[Updated] Interrupt-Free Live Streaming Your 2023 Solution to Facebook's Glitches for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-learn-how-to-build-youtube-backlinks-for-your-channel-for-2024/"><u>[Updated] Learn How to Build YouTube Backlinks for Your Channel for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-the-ultimate-win10-strategy-for-successful-zoom-sessions-for-2024/"><u>[Updated] The Ultimate Win10 Strategy for Successful Zoom Sessions for 2024</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/comprehensive-tutorial-effortlessly-access-pdf-documents-using-apowerpdf/"><u>Comprehensive Tutorial: Effortlessly Access PDF Documents Using ApowerPDF</u></a></li>
+<li><a href="https://techtrends.techidaily.com/embracing-the-change-artificnial-intelligences-role-in-world-transformation/"><u>Embracing the Change: Artificnial Intelligence's Role in World Transformation</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-a-lost-vivo-s17t-for-free-drfone-by-drfone-virtual-android/"><u>How to Track a Lost Vivo S17t for Free? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-fb-content-downloader-showdown-1-5-best-picks-unveiled/"><u>In 2024, FB Content Downloader Showdown - #1-5 Best Picks Unveiled</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-recommended-best-applications-for-mirroring-your-xiaomi-redmi-note-12-4g-screen-drfone-by-drfone-android/"><u>In 2024, Recommended Best Applications for Mirroring Your Xiaomi Redmi Note 12 4G Screen | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/quick-fixes-the-hands-on-guide-to-generating-timely-captions-on-fb-media/"><u>Quick Fixes The Hands-On Guide to Generating Timely Captions on FB Media</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/rekindling-relics-of-facebook-tales-step-by-device-step/"><u>Rekindling Relics of Facebook Tales Step by Device Step</u></a></li>
 </ul></div>
 

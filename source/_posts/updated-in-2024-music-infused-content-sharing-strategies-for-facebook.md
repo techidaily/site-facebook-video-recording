@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Music-Infused Content Sharing Strategies for Facebook\""
-date: 2025-01-31T16:22:33.298Z
-updated: 2025-02-07T16:18:03.077Z
+date: 2025-03-01T20:45:06.801Z
+updated: 2025-03-05T19:17:27.525Z
 tags:
   - ai video
   - ai facebook
@@ -56,10 +56,6 @@ Click done on the right corner to post the music story. Your story will be avail
 
 ![Edit FB Music](https://images.wondershare.com/filmora/article-images/edit-facebook-music-sticker.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Note: Currently, you can add music stories on Facebook mobile app only. On a desktop, you can only create a photo story or text story.
 
 ## Part 2: How to Add Music to Facebook Photo/Video Story?
@@ -76,19 +72,11 @@ After clicking a picture or making a video, tap on the sticker icon. Select the 
 
 ![add music sticker on FB](https://images.wondershare.com/filmora/article-images/add-music-sticker-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  **Step 3: Add music**   **and**   **post**
 
 After tapping on the music sticker, click on the song you want to play with your story. When you are done editing the sticker and your story, click   **Done** on the top right corner to post it.
 
 ![add music sticker  ](https://images.wondershare.com/filmora/article-images/add-music-with-facebook-music-sticker.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: How to Add My Own Music to Facebook Story?
 
@@ -112,10 +100,6 @@ Double click on the audio file within the panel given on the top of the Filmora 
 
 ![edit FB music story  ](https://images.wondershare.com/filmora/article-images/edit-facebook-story-music-filmora.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  **Step 4: Export edited file**
 
 You can save the edited file. WMV or .MP4 formats by clicking on the export option on the top. You can rename the file before saving it.
@@ -128,10 +112,6 @@ _For more details about editing videos on Filmora, you can check [How to Edit Vi
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 4: How to Customize the Appearance of Your Facebook Story Song?
 
 If you don't know already, you can also edit the music sticker on your story to make it look more attractive. There are various features such as editing the music sticker image, changing color, selecting the 30-second part of the song, and enabling lyrics.
@@ -141,10 +121,6 @@ If you don't know already, you can also edit the music sticker on your story to 
 You can click on the play button after selecting the song, and it will appear in your stories. You will see a few options above the music sticker, which you can use to edit the music story. Click on the Aa option to enable the lyrics, and they will appear when a viewer views your story. You can enable lyrics only if they are available with the songs.
 
 ![enable FB music story lyric  ](https://images.wondershare.com/filmora/article-images/enable-facebook-music-sticker-lyric-mode.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  **Step**  2: Change the color **and**   **add elements**
 
@@ -185,20 +161,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-accelerate-your-file-changing-game-srt-to-txt-in-a-flash-for-2024/"><u>[New] Accelerate Your File Changing Game SRT to TXT in a Flash for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-direct-engagement-broadcasting-from-your-xbox-to-fb-for-2024/"><u>[New] Direct Engagement Broadcasting From Your Xbox to FB for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-from-timeless-tales-in-tone-on-tone-to-dynamic-digital-narratives/"><u>[New] From Timeless Tales in Tone-On-Tone to Dynamic Digital Narratives</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-strategies-to-successfully-broadcast-facespace-lives-on-tv/"><u>[New] In 2024, Strategies to Successfully Broadcast Facespace Lives on TV</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-unleash-potential-stardews-premium-mod-lineup-7-14/"><u>[New] In 2024, Unleash Potential Stardew's Premium Mod Lineup #7-14</u></a></li>
-<li><a href="https://program-issues.techidaily.com/solved-swtor-not-launching-issues/"><u>[Solved] SWTOR Not Launching Issues</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-downloading-fb-content-the-ultimate-guide-top-5-list/"><u>[Updated] In 2024, Downloading FB Content The Ultimate Guide - TOP 5 List</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-unlock-the-secret-to-pop-in-audio-on-social-video-shares/"><u>[Updated] In 2024, Unlock the Secret to Pop-In Audio on Social Video Shares</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-integrating-multimedia-elements-for-engaging-facebook-slideshows/"><u>[Updated] Integrating Multimedia Elements for Engaging Facebook Slideshows</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-iphones-panoramic-videos-explained-for-fb-sharing/"><u>[Updated] IPhone's Panoramic Videos Explained for FB Sharing</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-photographing-the-stars-at-night-with-iphones-for-2024/"><u>[Updated] Photographing the Stars at Night with iPhones for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-the-complete-2023-guide-to-effortless-fb-posting-tools-for-2024/"><u>[Updated] The Complete 2023 Guide to Effortless FB Posting Tools for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-window-wonders-how-to-capture-and-save-for-2024/"><u>[Updated] Window Wonders How to Capture & Save for 2024</u></a></li>
-<li><a href="https://win-community.techidaily.com/complete-step-by-step-tutorial-upgrading-your-dhcp-servers-from-windows-server-2012-to-server-2022/"><u>Complete Step-by-Step Tutorial: Upgrading Your DHCP Servers From Windows Server 2012 to Server 2022</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1128034-9781609258511-the-mark-of-the-beast/"><u>The Mark of the Beast | Free Book</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-step-by-step-screen-recording-in-win10-gaming/"><u>[New] 2024 Approved Step-by-Step Screen Recording in Win10 Gaming</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-navigating-gopro-livestreams-to-popular-channels-facebook-and-periscope/"><u>[New] In 2024, Navigating GoPro Livestreams to Popular Channels (Facebook & Periscope)</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-uncovering-true-reflection-in-distorted-facebook-video/"><u>[New] Uncovering True Reflection in Distorted Facebook Video</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-unveiling-the-artist-within-using-auditions-gradual-volume-increase-for-2024/"><u>[New] Unveiling the Artist Within Using Audition's Gradual Volume Increase for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-facebooks-new-era-breaking-down-2023s-sneak-peek-into-short-video-trends/"><u>[Updated] Facebook's New Era Breaking Down 2023'S Sneak Peek Into Short Video Trends</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-screencast-o-matic-review/"><u>[Updated] In 2024, Screencast-O-Matic Review</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-mastering-ipad-screen-capture-techniques/"><u>[Updated] Mastering iPad Screen Capture Techniques</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-mastering-video-metrics-the-role-of-thumbnail-size/"><u>2024 Approved Mastering Video Metrics The Role of Thumbnail Size</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/avoid-hassles-simple-iphone-screen-sharing/"><u>Avoid Hassles Simple Iphone Screen Sharing</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/essential-steps-to-overcome-fb-video-transmission-failure-iosandroid/"><u>Essential Steps to Overcome FB Video Transmission Failure (iOS/Android)</u></a></li>
+<li><a href="https://win-community.techidaily.com/fabriquer-un-peripherique-de-demarrage-sur-une-cle-usb-guides-etape-par-etape-pour-les-debutants/"><u>Fabriquer Un Périphérique De Démarrage Sur Une Clé USB : Guides Étape Par Étape Pour Les Débutants</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/facebooks-prime-video-hits-the-best-of-five-for-2024/"><u>Facebook's Prime Video Hits - The Best of Five for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/facesave-quickly-grab-facebook-media/"><u>FaceSave Quickly Grab Facebook Media</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-from-phone-screen-to-home-screen-enabling-fb-video-viewing-on-appletv/"><u>In 2024, From Phone-Screen to Home Screen Enabling FB Video Viewing on AppleTV</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-unlink-your-apple-iphone-6-from-your-apple-id-by-drfone-ios/"><u>In 2024, How To Unlink Your Apple iPhone 6 From Your Apple ID</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/integrating-facebook-video-into-home-screen-apps/"><u>Integrating Facebook Video Into Home Screen Apps</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/pcandroid-friendly-methods-to-post-videos-on-facebook-successfully-for-2024/"><u>PC/Android-Friendly Methods to Post Videos on Facebook Successfully for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/top-8-fb-movie-extraction-tools/"><u>Top 8 FB Movie Extraction Tools</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722979104891-upgrade-to-the-latest-nvidia-rtx-3080-ti-drivers-on-windows-download-now/"><u>Upgrade to the Latest NVIDIA RTX 3080 Ti Drivers on Windows - Download Now</u></a></li>
 </ul></div>
 

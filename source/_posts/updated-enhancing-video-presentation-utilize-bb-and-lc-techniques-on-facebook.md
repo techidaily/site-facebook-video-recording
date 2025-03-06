@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Enhancing Video Presentation  Utilize BB and LC Techniques on Facebook\""
-date: 2025-02-15T23:00:42.681Z
-updated: 2025-02-16T20:32:21.566Z
+date: 2025-02-27T20:47:25.358Z
+updated: 2025-03-05T17:37:33.515Z
 tags:
   - ai video
   - ai facebook
@@ -53,17 +53,9 @@ This method is suitable for users whose source videos are not in square format (
 
 ![automatic-letterbox](https://images.wondershare.com/filmora/article-images/automatic-letterbox.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * 4\. Add a subtitle under **Titles** tab to the letterbox at the top and bottom and custom the texts you want.
 
 ![add-letterbox-title](https://images.wondershare.com/filmora/article-images/add-letterbox-title.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 And you can also go to the **Elements** tab, and add some creative elements such as emoji to the letterbox.
 
@@ -89,18 +81,10 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 
 ![no-letterbox](https://images.wondershare.com/filmora/article-images/no-letterbox.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * 3\. To create a letterbox, choose the option **Titles**. Now you will be shown a variety of subtitles and credit styles
 * 4\. Select **Subtitles**, then add a subtitle style that has a black background to your video, such as Subtitle 1,2,3, etc.
 
 ![add-doll-subtitle](https://images.wondershare.com/filmora/article-images/add-doll-subtitle.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * 5\. You will see that the subtitle appears on the video in real time. Here you can adjust the width and height of the subtitle. Make it so that that black bar covers the lower end of the video completely and delete the text
 
@@ -114,21 +98,9 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 
 ![get-both-letterbox](https://images.wondershare.com/filmora/article-images/get-both-letterbox.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * 8\. Export the video to your computer or phone in mp4, then upload it to Facebook, and finally, you will see the magic!
 
 ![post-my-video](https://images.wondershare.com/filmora/article-images/post-my-video.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## To Sum up
 
@@ -153,20 +125,22 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-iphoneandroid-integrating-playlists-into-your-fb-music/"><u>[New] 2024 Approved IPhone/Android Integrating Playlists Into Your FB Music</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-navigating-fb-stories-downloads-top-5-tips-for-all-devices/"><u>[New] 2024 Approved Navigating FB Stories Downloads Top 5 Tips for All Devices</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-frametaker-high-quality-edition/"><u>[New] FrameTaker High-Quality Edition</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-harvesting-high-res-hangouts/"><u>[New] Harvesting High-Res Hangouts</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-is-auroras-hdr-enhancing-your-viewing-experience-in-2024/"><u>[Updated] Is Aurora's HDR Enhancing Your Viewing Experience, In 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-unlocking-video-view-growth-top-10-reasons-behind-zero-views/"><u>[Updated] Unlocking Video View Growth Top 10 Reasons Behind Zero Views</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/dive-deep-into-the-world-of-high-performance-laptops-with-our-review-of-the-asus-zenbook-s1-6-where-we-thoroughly-examine-and-test-its-capabilities-when-pow29/"><u>Dive Deep Into the World of High-Performance Laptops with Our Review of the Asus Zenbook S1 6, Where We Thoroughly Examine and Test Its Capabilities when Powered by the Advanced AMD Ryzen AI 9 HX 370 CPU</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/enhance-igtv-posts-with-best-video-edit-apps-for-2024/"><u>Enhance IGTV Posts with Best Video Edit Apps for 2024</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/forgot-apple-iphone-xs-backup-password-heres-what-to-do-drfone-by-drfone-ios/"><u>Forgot Apple iPhone XS Backup Password? Heres What to Do | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-change-itel-p55t-lock-screen-password-by-drfone-android/"><u>How To Change Itel P55T Lock Screen Password?</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-6-ways-to-transfer-contacts-from-vivo-y17s-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 6 Ways To Transfer Contacts From Vivo Y17s to iPhone | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-deciphering-facebooks-iconic-blue-emoji-usage-in-messages/"><u>In 2024, Deciphering Facebook's Iconic Blue Emoji Usage in Messages</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/leveraging-social-media-power-optimal-use-of-hash-tags-on-fb-for-2024/"><u>Leveraging Social Media Power Optimal Use of Hash Tags on FB for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/techniques-for-immaculate-vr-gaming-footage/"><u>Techniques for Immaculate VR Gaming Footage</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/tips-and-tricks-for-successful-social-media-video/"><u>Tips & Tricks for Successful Social Media Video</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-accessible-archives-downloading-everyday-facebook-feed/"><u>[New] 2024 Approved Accessible Archives Downloading Everyday Facebook Feed</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-a-stepwise-approach-for-creating-an-interactive-skype-conversation-among-users-from-multiple-operating-systems/"><u>[New] A Stepwise Approach for Creating an Interactive Skype Conversation Among Users From Multiple Operating Systems</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-becoming-a-live-broadcast-pro-the-essential-guide-to-wirecast-and-fb-for-2024/"><u>[New] Becoming a Live Broadcast Pro The Essential Guide to Wirecast and FB for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-advanced-mp4-to-facebook-converter/"><u>[New] In 2024, Advanced MP4-to-Facebook Converter</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-inside-the-high-definition-world-of-nikon-j5/"><u>[Updated] 2024 Approved Inside the High-Definition World of Nikon J5</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-socialmediavidextractor-app/"><u>[Updated] 2024 Approved SocialMediaVidExtractor App</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-facebooks-full-spectrum-maximizing-story-linking-for-2024/"><u>[Updated] Facebook's Full Spectrum Maximizing Story Linking for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-avoiding-mishaps-tips-to-enhance-google-meet-chats/"><u>[Updated] In 2024, Avoiding Mishaps Tips to Enhance Google Meet Chats</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-2023-fb-live-essentials-watching-made-easy/"><u>2024 Approved 2023 FB Live Essentials Watching Made Easy</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-poco-x5-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Poco X5 | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-ios-mastery-effortlessly-extracting-youtube-videos/"><u>In 2024, IOS Mastery Effortlessly Extracting Youtube Videos</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-professional-edge-adding-letterbox-frame-to-your-fb-videos/"><u>In 2024, Professional Edge Adding Letterbox Frame to Your FB Videos</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-seamlessly-blend-sound-and-visuals-editing-tips-for-canva-videos/"><u>In 2024, Seamlessly Blend Sound & Visuals Editing Tips for Canva Videos</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-realme-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Simple and Effective Ways to Change Your Country on YouTube App Of your Realme 12 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-top-5-tools-to-transform-your-instant-feeds-into-videos/"><u>In 2024, Top 5 Tools to Transform Your Instant Feeds Into Videos</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-the-tcl-50s425-50-inch-4k-smart-tv-quality-and-affordability-explored/"><u>Ultimate Guide to the TCL 50S425 50-Inch 4K Smart TV: Quality and Affordability Explored</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/wireless-synchronization-linking-your-apple-homepod-device-to-a-tv-setup/"><u>Wireless Synchronization: Linking Your Apple HomePod Device to a TV Setup</u></a></li>
 </ul></div>
 

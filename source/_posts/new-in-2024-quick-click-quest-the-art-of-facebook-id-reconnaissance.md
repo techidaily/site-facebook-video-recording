@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Quick Click Quest  The Art of Facebook ID Reconnaissance\""
-date: 2024-12-31T03:24:21.897Z
-updated: 2025-01-07T12:31:08.473Z
+date: 2025-03-02T17:45:09.202Z
+updated: 2025-03-05T20:12:42.695Z
 tags:
   - ai video
   - ai facebook
@@ -52,21 +52,9 @@ To reach the friend’s finder page, click on “find friends” from the friend
 
 ![friends finder facebook](https://images.wondershare.com/filmora/article-images/friends-finder-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Step 4: Friends Search
 
 On the top right of old friends search, you can find the “search for your friends” filters. To search your old friends by name, you have to enter their part or full names in the name field and look for them. To find your friends by their location, you may enter your friend’s hometown city’s name in the hometown field to search them by the place when they earlier lived in. To find your school friends or High school and university friends, you may enter the schools’ name and search for them. For searching your old colleagues, you may enter the company or employer’s name and find people who worked in the same organization.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Step 5: Check the results
 
@@ -84,10 +72,6 @@ On a browser open the [Search is Back site](https://searchisback.com/). You can 
 
 In the second step, you need to input your choices or you can see it as filters. From the search for option, you may choose all people, friends, non-friends, or friends of friends. You may also filter gender, relationship status, location, company, school, language spoken and if an employer, you may also search people by job title.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\. Add People as Friends
 
 Once you have filled in all the filters in the page, you can hit Find People button at the end. When you hit the button, you are directed to the Facebook page to show your friend list.
@@ -97,10 +81,6 @@ Once you have filled in all the filters in the page, you can hit Find People but
 **Note**: If there are no results on the redirected Facebook page, you must get back to the Search is Back page and change your search filters to start a new round of search.
 
 Like Find People tab at the top of the page, you may also search events, posts, shares and photos from the event, post & shares, and photos tabs at the top of the page.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -113,10 +93,6 @@ If you want to make Facebook videos, try to use [Filmora](https://tools.techidai
 [](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -135,16 +111,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-digital-dollars-at-a-click-monetization-made-simple-on-fb/"><u>[New] Digital Dollars at a Click Monetization Made Simple on FB</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-streamlining-your-site-facebook-live-integration-guide/"><u>[New] In 2024, Streamlining Your Site Facebook LIVE Integration Guide</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-premier-dramatic-structuring-zone/"><u>[New] Premier Dramatic Structuring Zone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-revisit-the-past-easy-access-to-fb-story-archive-for-2024/"><u>[New] Revisit the Past Easy Access to FB Story Archive for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-what-is-behind-the-blue-icon-that-graces-your-messenger-chat-window-in-2024/"><u>[New] What Is Behind the Blue Icon that Graces Your Messenger Chat Window, In 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-your-wayback-machine-facebooks-story-archives-at-your-service/"><u>[Updated] In 2024, Your Wayback Machine Facebook’s Story Archives at Your Service</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-insta-spin-wonders-expert-techniques-to-enthrall-your-followers-with-flipped-photos-for-2024/"><u>[Updated] Insta Spin Wonders Expert Techniques to Enthrall Your Followers with Flipped Photos for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-becoming-a-true-connoisseur-of-srt-text-creation/"><u>2024 Approved Becoming a True Connoisseur of SRT Text Creation</u></a></li>
-<li><a href="https://win11.techidaily.com/insiders-tactics-secrets-to-mac-acquisition-on-windows-11/"><u>Insider's Tactics: Secrets to MAC Acquisition on WIndows 11</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/smooth-gameplay-ahead-solutions-for-valheim-pc-crashes-and-delays/"><u>Smooth Gameplay Ahead: Solutions for Valheim PC Crashes and Delays</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/the-ultimate-guide-to-sharing-your-favorite-tracks-on-spotify-with-pals/"><u>The Ultimate Guide to Sharing Your Favorite Tracks on Spotify With Pals</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-how-to-disable-instagrams-igtv/"><u>[New] 2024 Approved How to Disable Instagram's IGTV</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-breaking-down-facebooks-latest-developments/"><u>[New] In 2024, Breaking Down Facebook's Latest Developments</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-stream-to-file-conversion-effortless-archive-creation/"><u>[New] In 2024, Stream-to-File Conversion Effortless Archive Creation</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-unpacking-facebooks-freshest-features-in-top-vids/"><u>[New] In 2024, Unpacking Facebook's Freshest Features in Top Vids</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-unveiling-the-secrets-to-effective-fb-video-advertising-with-best-practices/"><u>[New] Unveiling the Secrets to Effective FB Video Advertising with Best Practices</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-how-to-watch-facebook-live-on-your-apple-media-hub/"><u>[Updated] In 2024, How to Watch Facebook Live on Your Apple Media Hub</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-veiled-viewer-in-the-social-sphere/"><u>[Updated] In 2024, Veiled Viewer in the Social Sphere</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-navigating-through-top-10-youtube-mp3-extractors/"><u>[Updated] Navigating Through Top 10 YouTube Mp3 Extractors</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-sharing-the-vibe-how-to-post-tiktok-videos-to-facebook/"><u>2024 Approved Sharing the Vibe How to Post TikTok Videos to Facebook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578963934-explore-the-world-of-hindi-mondlys-top-8-secrets/"><u>Explore the World of Hindi - Mondly's Top 8 Secrets</u></a></li>
+<li><a href="https://windows11.techidaily.com/fixing-non-initialized-disks-a-windows-guide/"><u>Fixing Non-Initialized Disks: A Windows Guide</u></a></li>
+<li><a href="https://extra-information.techidaily.com/how-to-use-movie-maker-on-windows-8/"><u>How to Use Movie Maker on Windows 8</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-from-the-shooting-range-to-streaming-real-time-dslr-and-pcmac-connection/"><u>In 2024, From the Shooting Range to Streaming Real-Time DSLR & PC/Mac Connection</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-what-you-want-to-know-about-two-factor-authentication-for-icloud-on-your-apple-iphone-11-by-drfone-ios/"><u>In 2024, What You Want To Know About Two-Factor Authentication for iCloud On your Apple iPhone 11</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-the-ultimate-list-10-free-online-video-looper-tools/"><u>New In 2024, The Ultimate List 10 Free Online Video Looper Tools</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/pixel-slate-review-a-chromeos-mess/"><u>Pixel Slate Review: A ChromeOS Mess</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/step-by-step-guide-transforming-m4a-files-into-captivating-m4r-iphone-ringtones/"><u>Step-by-Step Guide: Transforming M4A Files Into Captivating M4R iPhone Ringtones</u></a></li>
 </ul></div>
 

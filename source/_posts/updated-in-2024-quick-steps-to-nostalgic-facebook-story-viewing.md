@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Quick Steps to Nostalgic Facebook Story Viewing"
-date: 2025-02-10T17:00:10.428Z
-updated: 2025-02-17T09:06:35.410Z
+date: 2025-03-01T01:45:12.393Z
+updated: 2025-03-05T17:15:38.528Z
 tags:
   - ai video
   - ai facebook
@@ -36,10 +36,6 @@ Here is the step by step guide to see old stories on Facebook:
 * [Part 3: How to Watch Old Stories on Facebook on your Mobile?](#part3)
 * [Part 4: Can you See Friends' Old Stories on Facebook?](#part4)
 * [Part 5: Bonus Tip - How to Create Facebook Videos with Ease?](#part5)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 1: What is Facebook Story and how is it Work？
 
@@ -77,10 +73,6 @@ You can find and see the old stories on Facebook with the help of the archived s
 
 ![watch old stories facebook](https://images.wondershare.com/filmora/article-images/2021/watch-old-stories-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 4:** Scroll towards the right and select on Story Archives tab.
 
 ![story archive facebook mobile](https://images.wondershare.com/filmora/article-images/2021/story-archive-facebook-mobile.jpg)
@@ -101,10 +93,6 @@ An old highlighted story shared by your friend would appear on your friend’s p
 
 So for the above discussed all ways the only must thing is to setting archive on which would allow you to re-watch stories again and solve your doubt of how to view old stories on Facebook.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 5: How to Create Facebook Videos with Ease?
 
 If you think that to create amazing videos for Facebook, you need to be a professional then let me tell you that it is not at all necessary. But yes you need to be aware of the right video editing software to help you with and solve your need to create a stunning video.
@@ -112,10 +100,6 @@ If you think that to create amazing videos for Facebook, you need to be a profes
 To attract more audience and gain more likes, comments all you need is a smart [video editor](https://tools.techidaily.com/wondershare/filmora/download/) like a Wondershare Filmora. It is one of the most effective video editing tools that help you edit your elements quickly and easily upload over Facebook.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Features:**
 
@@ -142,10 +126,6 @@ Once you are done with installing Wondershare Filmora, you need to click on the�
 You can crop, trim, cut, split, and merge your video in a few clicks in Wondershare Filmora. Also, it has more than 300 effects available in Filmora. You can add various overlays, filters, motion elements, transitions, and much more to your video.
 
 Also, you can add various text effects and add Lower 3rds and subtitles. It has nearly 300 filters, overlays, and elements embedded in Filmora that you can use for your Facebook video and make it look amazing.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Export and Share
 
@@ -178,16 +158,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-unlimited-christmas-classics-9-films-available-for-no-charge/"><u>[New] In 2024, Unlimited Christmas Classics 9 Films Available for No Charge!</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-tweettube-ios-devices-go-to-twitter-video-grabber-for-2024/"><u>[New] TweetTube IOS Device's Go-To Twitter Video Grabber for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-elevating-engagement-tips-to-share-your-screen-on-facebook-lives/"><u>[Updated] 2024 Approved Elevating Engagement Tips to Share Your Screen on Facebook Lives</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-the-ultimate-list-8-best-hidden-video-downloader-apps-2023/"><u>[Updated] In 2024, The Ultimate List 8 Best Hidden-Video Downloader Apps, 2023</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-pioneers-in-digital-avengers-landscapes-for-2024/"><u>[Updated] Pioneers in Digital Avengers Landscapes for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-instant-photo-browser-for-modern-windows/"><u>2024 Approved Instant Photo Browser for Modern Windows</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhance-your-security-a-detailed-walkthrough-of-adjusting-windows-n11-settings-by-yl-computing-experts/"><u>Enhance Your Security: A Detailed Walkthrough of Adjusting Windows N11 Settings by YL Computing Experts</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-fb-video-highlights-our-top-5-favorites/"><u>In 2024, FB Video Highlights Our Top 5 Favorites</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-whatsapp-messages-on-tecno-pova-5-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track WhatsApp Messages on Tecno Pova 5 Without Them Knowing? | Dr.fone</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-zero-fee-techniques-for-vibrant-video-text-effects/"><u>In 2024, Zero-Fee Techniques for Vibrant Video Text Effects</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/top-10-mobile-selections-efficiently-save-facebook-videos-on-android/"><u>Top 10 Mobile Selections Efficiently Save Facebook Videos on Android</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-fb-call-video-logging-essential-steps-in-4-ways/"><u>[New] 2024 Approved FB Call Video Logging - Essential Steps in 4 Ways</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-fixing-half-muted-content-on-twitter-live-streams/"><u>[New] 2024 Approved Fixing Half-Muted Content on Twitter Live Streams</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-ultimate-3-fb-movie-extractors/"><u>[New] 2024 Approved Ultimate 3 Fb Movie Extractors</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-fix-hidden-suggested-youtube-and-facebook-videos-explained/"><u>[New] Fix Hidden Suggested YouTube & Facebook Videos Explained</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ive-from-the-couch-the-essential-dos-and-donts-of-home-streaming/"><u>[New] Live From the Couch The Essential Do's & Don'ts of Home Streaming</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-superior-mp4-streamer-to-fb-for-2024/"><u>[New] Superior MP4 Streamer to FB for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-supercharge-your-farming-fun-in-stardew-valley-top-7-upgrades/"><u>[Updated] Supercharge Your Farming Fun in Stardew Valley (Top 7 Upgrades)</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-amplifying-tv-screens-through-fb-live-integration/"><u>2024 Approved Amplifying TV Screens Through FB Live Integration</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-audiovisual-ascension-masterful-lighting-techniques-unveiled/"><u>2024 Approved Audiovisual Ascension Masterful Lighting Techniques Unveiled</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-recording-revolution-tactics-for-extracting-live-data/"><u>2024 Approved Recording Revolution Tactics for Extracting LIVE Data</u></a></li>
+<li><a href="https://location-social.techidaily.com/4-feasible-ways-to-fake-location-on-facebook-for-your-motorola-edge-40-pro-drfone-by-drfone-virtual-android/"><u>4 Feasible Ways to Fake Location on Facebook For your Motorola Edge 40 Pro | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/best-techniques-for-downloading-and-setting-up-the-av1-codec-extension-in-windows-10-and-11/"><u>Best Techniques for Downloading and Setting Up the AV1 Codec Extension in Windows 10 & 11</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/design-tips-for-captivating-facebook-slideshows-for-2024/"><u>Design Tips for Captivating Facebook Slideshows for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-enable-usb-debugging-on-a-locked-htc-u23-pro-phone-by-drfone-android/"><u>How To Enable USB Debugging on a Locked HTC U23 Pro Phone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-elevate-your-broadcast-screen-share-techniques-for-the-modern-broadcaster/"><u>In 2024, Elevate Your Broadcast Screen-Share Techniques for the Modern Broadcaster</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-facebook-video-downloader-round-up-1-5-edition/"><u>In 2024, Facebook Video Downloader Round-Up #1-5 Edition</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>In 2024, Ways to trade pokemon go from far away On Apple iPhone 14? | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/smooth-gameplay-ahead-how-to-eliminate-fallout-n4-hitches-and-halts/"><u>Smooth Gameplay Ahead! How to Eliminate Fallout N4 Hitches and Halts</u></a></li>
+<li><a href="https://fake-location.techidaily.com/thinking-about-changing-your-netflix-region-without-a-vpn-on-infinix-note-30-vip-racing-edition-drfone-by-drfone-virtual-android/"><u>Thinking About Changing Your Netflix Region Without a VPN On Infinix Note 30 VIP Racing Edition? | Dr.fone</u></a></li>
 </ul></div>
 

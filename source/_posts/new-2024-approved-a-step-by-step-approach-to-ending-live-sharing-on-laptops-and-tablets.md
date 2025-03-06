@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  A Step-by-Step Approach to Ending Live Sharing on Laptops and Tablets\""
-date: 2025-02-13T17:23:47.907Z
-updated: 2025-02-16T18:24:51.272Z
+date: 2025-02-27T23:37:48.334Z
+updated: 2025-03-05T18:49:56.380Z
 tags:
   - ai video
   - ai facebook
@@ -56,10 +56,6 @@ Let's begin with the mobile Facebook application:
 
 ![Facebook Story 3 dots](https://images.wondershare.com/filmora/article-images/facebook-story-three-dots.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3: There will be a Delete Photo option. You need to select that.**
 
 ![delete Facebook Story from desktop](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-desktop.jpg)
@@ -81,10 +77,6 @@ If it is already enabled, follow these steps to delete the archived Facebook sto
 ![delete Facebook Story from archive](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-archive.jpg)
 
 This is how you will remove the stories from Facebook archived.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: How to Delete My Story on Facebook Messenger on iPhone, iPad, And Android?
 
@@ -110,14 +102,6 @@ You can make your stories visible to your friends, customize the viewers, or kee
 
 ![  Facebook Story privacy  ](https://images.wondershare.com/filmora/article-images/facebook-story-privacy.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 5: How to Hide Facebook Story from Specific People?
 
 Facebook has made sharing stories easy because of the multiple features it offers. Apart from controlling the story, you can even choose to hide the story from specific people. To do that, here's what you need to do.
@@ -125,10 +109,6 @@ Facebook has made sharing stories easy because of the multiple features it offer
 **Step 1:** Launch your Facebook account, and then upload something on your story and set the privacy to Friends. After that, you need to click on the Hide Story From option.
 
 ![  Facebook Story hide from specific person  ](https://images.wondershare.com/filmora/article-images/hide-facebook-story-from-specific-people.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 2:** You will be shown the complete list of people you are connected with on Facebook. Select the people you don't want to share your stories with, and then click on done.
 
@@ -139,10 +119,6 @@ If you don't want to see someone else’s story, then you can mute their stories
 Visit the Stories section, and then tap on a story of a person that you don't want to see. There will be three dots on the top right, select it and then click on the Mute option, and the specific person's stories will be muted.
 
 ![ delete other's Facebook Story  ](https://images.wondershare.com/filmora/article-images/delete-people-facebook-story.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Conclusion**
 
@@ -165,17 +141,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-key-components-to-successful-ad-textual-content-creation/"><u>[New] In 2024, Key Components to Successful Ad Textual Content Creation</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-the-art-of-crafting-an-engaging-facebook-biography-in-under-157-characters/"><u>[New] In 2024, The Art of Crafting an Engaging Facebook Biography in Under 157 Characters</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-the-unseen-loss-rapid-video-expulsion/"><u>[New] In 2024, The Unseen Loss Rapid Video Expulsion</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/he-ultimate-checklist-before-choosing-youtube-tv/"><u>[New] The Ultimate Checklist Before Choosing YouTube TV</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-win11s-top-5-cost-free-applications-for-recording-screens-for-2024/"><u>[New] Win11's Top 5 Cost-Free Applications for Recording Screens for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-ignite-customer-interest-and-increase-revenue-top-15-tools-for-fb-data-analysis-for-2024/"><u>[Updated] Ignite Customer Interest & Increase Revenue Top 15 Tools for FB Data Analysis for 2024</u></a></li>
-<li><a href="https://win-advanced.techidaily.com/1-troubleshooting-tips-resolving-issues-when-your-windows-programs-fail-to-launch-yl-solutions/"><u>1. Troubleshooting Tips: Resolving Issues When Your Window's Programs Fail to Launch (YL Solutions)</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-miniature-film-script-sketch/"><u>2024 Approved Miniature Film Script Sketch</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-rapid-review-windows-files-made-simple/"><u>In 2024, Rapid Review Windows Files Made Simple</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-the-ultimate-selection-top-6-lite-video-downloaders-from-facebook/"><u>In 2024, The Ultimate Selection Top 6 Lite Video Downloaders From Facebook</u></a></li>
-<li><a href="https://common-error.techidaily.com/troubleshooting-guide-for-resolving-windows-error-0x80004005-the-unspecified-problem/"><u>Troubleshooting Guide for Resolving Windows Error 0X80004005: The Unspecified Problem</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/updated-top-8-stop-motion-animation-software-for-mac-and-pc-for-2024/"><u>Updated Top 8 Stop Motion Animation Software for Mac and PC for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-capturing-horizon-views-for-successful-drone-livestreams/"><u>[New] Capturing Horizon Views for Successful Drone Livestreams</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-fix-in-a-flash-rapid-recovery-techniques-for-disrupted-fb-lives/"><u>[New] In 2024, Fix in a Flash Rapid Recovery Techniques for Disrupted FB Lives</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-principles-for-designing-fb-ad-content-for-2024/"><u>[New] Principles for Designing FB Ad Content for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-proper-steps-for-incorporating-previous-sessions-in-live-views-for-2024/"><u>[New] Proper Steps for Incorporating Previous Sessions in Live Views for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-a-step-by-step-approach-to-choosing-superior-fpv-drone-propellers/"><u>[Updated] In 2024, A Step-by-Step Approach to Choosing Superior FPV Drone Propellers</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-echoes-of-now-strategies-for-downloading-current-events/"><u>[Updated] In 2024, Echoes of Now Strategies for Downloading Current Events</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-master-the-art-of-live-content-utilizing-wirecast-for-fb/"><u>[Updated] In 2024, Master the Art of Live Content Utilizing Wirecast for FB</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-direct-stream-from-youtube-to-facebook-without-pauses-or-holds/"><u>2024 Approved Direct Stream From YouTube to Facebook without Pauses or Holds</u></a></li>
+<li><a href="https://some-tips.techidaily.com/enhance-user-experience-and-conversions-through-cookiebot-driven-optimization/"><u>Enhance User Experience & Conversions Through Cookiebot-Driven Optimization</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/facebooks-top-additions-for-savvy-users-unveiled-for-2024/"><u>Facebook's Top Additions for Savvy Users Unveiled for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-screen-to-htc-u23-pro-phones-drfone-by-drfone-android/"><u>How to Mirror PC Screen to HTC U23 Pro Phones? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-zte-nubia-flip-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For ZTE Nubia Flip 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/leverage-both-platforms-youtube-and-facebook-integration-for-2024/"><u>Leverage Both Platforms YouTube and Facebook Integration for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/overcoming-connection-hurdles-in-lost-ark-a-guide-to-stable-gameplay/"><u>Overcoming Connection Hurdles in Lost Ark - A Guide to Stable Gameplay</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-reality-of-prompt-engineering-in-tech-industries/"><u>The Reality of Prompt Engineering in Tech Industries</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/1722870889617-upcoming-m4-mac-mini-revealed-anticipated-launch-details-and-pricing-insights/"><u>Upcoming M4 Mac Mini Revealed – Anticipated Launch Details & Pricing Insights</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-top-10-free-video-rotators-to-rotateflip-videos-for-2024/"><u>Updated Top 10 Free Video Rotators to Rotate/Flip Videos for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Guide to the Uniden R3: Strong Build & Extended Range Capabilities"
-date: 2025-02-16T08:11:04.857Z
-updated: 2025-02-17T07:25:21.406Z
+date: 2025-03-02T23:58:09.303Z
+updated: 2025-03-05T18:51:32.335Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive Guide to the Uniden R3: Strong Build & Extended Range Capabilities"
@@ -36,10 +36,6 @@ Lifewire / Kelsey Simon
 [View On Amazon $16](https://www.amazon.com/dp/B00H5V9S6E?tag=lifewire-onsite-prod-20&ascsubtag=4589413%7Cnb345abd6a8a24db59409ccb49e33139709%7CB00H5V9S6E) [View On Walmart $15](https://www.walmart.com/ip/33859470) [View On Gamestop.com](https://www.gamestop.com/video-games/xbox-one/games/products/rayman-legends/10113261.html)
 
 4.6
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Ubisoft Rayman Legends
 
@@ -81,15 +77,7 @@ Lifewire / Kelsey Simon
 
 ![Rayman Legends](https://www.lifewire.com/thmb/-Un250xgOCxgaGgFeykC6pihaaU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/RaymanLegends_20190118212347-5c8ffe8d46e0fb0001f8d0cc.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Gameplay: What this is really about**
 
@@ -104,10 +92,6 @@ Lifewire / Kelsey Simon
  In the game, there are six levels, each with roughly ten maps. You’ll have to work your way through the first level to unlock the second, and so forth. Unlocks are achieved when you reach a certain number of Teensies saved―which the Magician has locked up and hidden in various places throughout each map. There is also a type of in-game currency called "Lums" that you collect as you run through each map (they look like pink or gold fireflies).
 
 ![Rayman Legends](https://www.lifewire.com/thmb/oJz1vIp26cdVH1115RCHTapRpTE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/RaymanLegends_20190118215643-5c8ffe7346e0fb000146adbb.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -141,10 +125,6 @@ Lifewire / Kelsey Simon
 
  The beauty of these maps is how well the gameplay is designed to match the beats of the song, from how each jump will strike with the strum of a guitar, or how the smash of a drum will be timed with the slaying of an enemy. The levels might take you a few tries to finish, as they’re timed and require precision, but they’re fun enough you won’t mind doing them again.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Very reasonable for the content**
 
  Rayman Legends can be purchased for most systems at around $20\. Sometimes PlayStation will put the item on sale, and you might even be able to get a copy for less than $15.
@@ -154,10 +134,6 @@ Lifewire / Kelsey Simon
  Deal alert
 
  Sometimes PlayStation will put the item on sale, and you might even be able to get a copy for less than $15.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Competition: More co-op platformers**
 
@@ -205,22 +181,18 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-broadcasting-to-the-household-watching-facebook-videos/"><u>[New] 2024 Approved Broadcasting to the Household Watching Facebook Videos?</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-battle-of-broadcasting-is-obs-or-twitch-studio-superior-for-2024/"><u>[New] Battle of Broadcasting Is OBS or Twitch Studio Superior for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/everaging-youtubes-tagging-system-for-enhanced-visibility/"><u>[New] Leveraging YouTube's Tagging System for Enhanced Visibility</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-three-foundational-elements-for-powerful-facebook-ad-headlines-for-2024/"><u>[New] Three Foundational Elements for Powerful Facebook Ad Headlines for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-mixer-connectivity-seamless-live-broadcast-on-macos/"><u>[Updated] Mixer Connectivity Seamless Live Broadcast on macOS</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-navigating-youtubes-puzzling-buffering-patterns/"><u>[Updated] Navigating YouTube's Puzzling Buffering Patterns</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-transition-from-mobile-screen-to-big-tv-with-fb-videos/"><u>[Updated] Transition From Mobile Screen to Big TV with FB Videos</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-tecno-phantom-v-flip-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Tecno Phantom V Flip</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/carlsberg-beschleunigung-zur-weltweiten-bierbraukronung-durch-abbyy/"><u>Carlsberg: Beschleunigung Zur Weltweiten Bierbraukrönung Durch ABBYY</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/how-to-track-apple-iphone-12-pro-by-phone-number-drfone-by-drfone-virtual-ios/"><u>How to Track Apple iPhone 12 Pro by Phone Number | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-easy-listening-top-hits-from-facebook/"><u>In 2024, Easy Listening Top Hits From Facebook</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-rectifying-half-volume-issues-on-fb-media/"><u>In 2024, Rectifying Half-Volume Issues on Fb Media</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-the-ultimate-laptop-and-mobile-roadmap-for-old-facebook-stories/"><u>In 2024, The Ultimate Laptop & Mobile Roadmap for Old Facebook Stories</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/tango-app-review-premium-messaging-experience-at-zero-cost-enhanced-calling-options-available/"><u>Tango App Review: Premium Messaging Experience at Zero Cost – Enhanced Calling Options Available</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/the-complete-list-of-the-12-greatest-free-online-cinemas/"><u>The Complete List of the 12 Greatest Free Online Cinemas</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/tiktok-to-facebook-social-media-linking-guide/"><u>TikTok-to-Facebook Social Media Linking Guide</u></a></li>
-<li><a href="https://driver-download.techidaily.com/upgrade-your-graphics-nvidia-rtx-3070-driver-update-and-install-for-windows/"><u>Upgrade Your Graphics: NVIDIA RTX 3070 Driver Update & Install for Windows</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-teamwork-made-simple-the-ultimate-guide-to-8-schedulers/"><u>[New] 2024 Approved Teamwork Made Simple The Ultimate Guide to 8 Schedulers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ow-to-start-a-successful-youtube-gaming-channel/"><u>[New] How to Start a Successful YouTube Gaming Channel</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-10-effortless-tips-for-amplifying-video-engagement-on-facebook/"><u>[New] In 2024, 10 Effortless Tips for Amplifying Video Engagement on Facebook</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-prime-fb-videos-deciding-on-the-best-ten/"><u>[New] In 2024, Prime FB Videos Deciding on the Best Ten</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-step-by-step-periscope-utilization-complete-manual/"><u>[New] In 2024, Step-by-Step Periscope Utilization Complete Manual</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-shadowed-reader-of-facebook-flashes-for-2024/"><u>[New] Shadowed Reader of Facebook Flashes for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-the-art-of-visual-storytelling-for-online-platforms-for-2024/"><u>[New] The Art of Visual Storytelling for Online Platforms for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-complete-blueprint-for-tracking-yt-viewsrevenue/"><u>[Updated] Complete Blueprint for Tracking YT Views/Revenue</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-understanding-snapchats-emojis-more-than-just-fun/"><u>[Updated] In 2024, Understanding Snapchat's Emojis More Than Just Fun</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/diving-into-claude-the-next-generation-ai-whats-possible/"><u>Diving Into Claude The Next Generation AI - What's Possible?</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/tips-to-handle-unintended-self-presence-in-video-conversations/"><u>Tips to Handle Unintended Self-Presence in Video Conversations</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/unlocking-the-secrets-of-retrieving-erased-content-on-iphones-via-stellar-software/"><u>Unlocking the Secrets of Retrieving Erased Content on iPhones Via Stellar Software</u></a></li>
+<li><a href="https://win-best.techidaily.com/yl-computings-premium-hd-pokemon-desktops-and-backgrounds-for-enhanced-display-quality/"><u>YL Computing's Premium HD Pokémon Desktops & Backgrounds for Enhanced Display Quality</u></a></li>
 </ul></div>
 
